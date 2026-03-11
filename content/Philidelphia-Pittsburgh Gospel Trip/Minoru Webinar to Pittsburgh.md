@@ -1,0 +1,19 @@
+The Lord has provided a marvelous opening through the World Cup (fifa) and the olympics. The church is being called to rise up to this circumstance. We are entrusted with the ministry, and this ministry needs to go out into the hands of the ones attending. 
+
+There are many HUNGRY saints. Hungry for bread and water (food of life). These ones are inwardly discontented and unsatisfied. These ones need to hear the ministry.
+
+The truth is the gospel, and the gospel is the truth. The truth simply means all of the spiritual realities in the Bible. We are herolds of the truth. To be herald
+
+The Lord said "You shall know the truth, and the truth shall set you free" [[John-08#v32|John 8:32]] We owe this truth to all of the people in this country, especially to the young people. There are so many who are looking and are open to hear this word. Without those who are being sent, they will not hear the Word. How will they believe in the Word if they do not hear it? The feet of those who preach the gospel are beautiful. [[Romans-10#v15|Romans 10:15]]
+
+Our commission is to dispense the truth that is found in the Recovery version of the Bible. We have the entire bible in the Recovery version, but specifically the New Testament needs to be distributed to the seeking ones. The amount of New Testament Bibles being given out needs to increase. We need ones who fulfill this high commission. This Recovery version Bible is a condensed and crystalized version of the entire ministry of Watchman Nee and Witness Lee.
+
+If each of the saints would hand out ONE bible to a genuine seeker... the testimony of the Lord would grow rapidly. We need to give all of our brothers and sisters just one taste of the gospel. There will be some from this category who are wanting to go and look deeper. These ones will want to come and study the Bible with you and it will provide us with the opportunity to shepherd them. This is the genuine God-Ordained Way.
+
+If we go out during this crucial time and spread these truths, we WILL become the faithful servants who serve food to God's people at the appointed time. We will fulfill the commission of the Lord's Recovery through this. We need to pray that God would open to us (ones in the Lord's Recovery), a DOOR to spread and speak a word. The interpreted word of the Bible as the gospel to minister to all the hungry seekers around us. May the Lord BLESS the Lord's Recovery.
+
+The coordination and execution of the gospel outreach/distribution will be the responsibility of the nearby localities. B of A is responsible for providing the study bibles and gospel tracks to the churches. BofA is planning to provide 1) Recovery Version New Testament with a copy of the Basic Elements of the Christian Life plus a guide with how to use the features of the study bible. 2) A number of Spanish copies to hand out. We anticipate that we will have a big population of visitors who are primarily Spanish speaking. These ones also will be provided with the three items that are included in English. 3) Other titles will be available to handout, books of the ministry. One namely for new believers to learn about morning revival and the importance of incorporating morning revival into regular daily life. Also "A letter of introduction", and "Rulers and principalities".
+
+A group of brothers will gather together online from all over the world to pray and also to take care of the facilitation and practice for how to practically take care of this gospel outreach. The GOAL is not only to increase the members of the church, but also to knit together existing churches and provide much opportunity for blending. There will be much need for coordination amongst the saints, which would strengthen the oneness of the believers from all over the country. 
+
+I like this verse to encourage us to go out on the gospel. [[Amos-08#v11|Amos 8:11]]

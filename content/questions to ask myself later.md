@@ -1,0 +1,1 @@
+Is there an obsidian plugin that lets you write or highlight things inbetween an embedded note?

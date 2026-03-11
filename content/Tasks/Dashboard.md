@@ -1,0 +1,1 @@
+- [ ] ⏫ Create footnotes for Genesis 1:1
