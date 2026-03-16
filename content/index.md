@@ -3,10 +3,18 @@ title: Home
 ---
 
 # Welcome
+C:\Users\Antho\quartz\content\FTTA\Term 2\Classes\Body of Christ
+Hello Mom and Dad
 
-Hey Mom and Dad!!
+## FTTA Classes
+- [[FTTA/Term 2/Classes/Body of Christ]]
+- [[FTTA/Term 2/Classes/God-Ordained Way]]
+- [[FTTA/Term 2/Classes/God's Economy]]
+- [[FTTA/Term 2/Classes/Lessons for YP]]
+- [[FTTA/Term 2/Classes/The Experience of Christ as Life]]
+- [[FTTA/Term 2/Classes/The Full Ministry of Christ]]
+- [[FTTA/Term 2/Classes/The Spirit]]
+- [[FTTA/Term 2/Classes/The Triune God]]
 
-## Start Here
-- [[Ministry-Project/Recovery-Version-Bible/New-Testament/40---Matthew/Matthew-01]]
-- [[Notes]]
-- [[Projects]]
+## Other Main Areas
+- [[FTTA/General]]
