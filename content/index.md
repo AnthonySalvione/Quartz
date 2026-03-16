@@ -4,9 +4,9 @@ title: Home
 
 # Welcome
 
-This is my homepage.
+Hey Mom and Dad!!
 
 ## Start Here
-- [[About]]
+- [[Ministry-Project/Recovery-Version-Bible/New-Testament/40---Matthew/Matthew-01]]
 - [[Notes]]
 - [[Projects]]
