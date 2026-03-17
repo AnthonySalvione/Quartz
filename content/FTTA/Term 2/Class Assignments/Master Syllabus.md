@@ -10,7 +10,7 @@
 ## [[FTTA/Term 2/Classes/God's Economy/Syllabus|God's Economy]]
 
 ![[FTTA/Term 2/Classes/God's Economy/Syllabus|Syllabus]]
-# [[FTTA/Term 2/Classes/Lessons for YP/Syllabus|Lessons for Young People]]
+## [[FTTA/Term 2/Classes/Lessons for YP/Syllabus|Lessons for Young People]]
 ![[FTTA/Term 2/Classes/Lessons for YP/Syllabus|Syllabus]]
 
 # [[FTTA/Term 2/Classes/The Experience of Christ as Life/Syllabus|The Experience of Christ as Life]]

@@ -1,120 +1,274 @@
-The Failure of the Church - title
-speaker - David Dong
-readings - [[FTTA/Term 2/Classes/Body of Christ/Readings/Week 2 Reading#The Conclusion of the New Testament, Messages 221-222|Conclusion of the New Testament, msg. 221-222]].
+---
+speaker:
+  - David Dong
+hymn:
+  - "[[Hymn-1273]]"
+  - "[[Hymn-1271]]"
+reading: "[[FTTA/Term 2/Classes/Body of Christ/Readings/Week 1 Reading#The Conclusion of the New Testament, Messages 221-222|Week 1 Reading]]"
+class: Body of Christ
+---
+# Message Portion
+## XI. The failures in the churches:
 
-It is negative. We don't like the failures right? We like success... but the Lord gives us some failures. The Bible is very fair - it didn't just record the success ofthe church, but als othe failures of the church. So, we must learn about both. Let's be in the Lord - and overcome in the Lord.
+This title is negative. We do not like failures, right? We like success. But the Lord gives us some failures. The Bible is very fair—it does not record only the success of the church, but also the failures of the church. So we must learn about both. Let us be in the Lord and overcome in the Lord.
 
-Hymn 1273, 1271
+Normally we would have a presentation team. You study the text, and then you give us a presentation. But this morning, because we are just now beginning the class and you just received your outlines and syllabus, we will not do that. The presentation team should be posted somewhere.
 
-normally we would have a presentation team. You study the text, and then you give us a presentation, but this morning because we are just now beginning the class and you just received your outlines and syllabus. So, the presentation team should be posted somewhere. 
+This morning, we will just go directly into the depths. Unless you have prepared something? No? Alright.
 
-This morning, we will just go into the depths directly. Unless you've prepared anything? No? Alright.
+This class is regarding messages 221–222 of the Conclusion of the New Testament: **The Failure of the Church**.
 
-This is messages 221-222 - the failure of the church.
+I think it would be better if you checked with the second-termers. Some of you are first term, some are second. Check with the second-termers who know my name. I will not tell you my name.
+### A. Hypocrisy
+[[Acts-05#v1|Acts 5:1-11]]:
 
-I think that it would be better if you checked with the second termers (first termers). Some of you are first some are second. Check with the second termers who know my name. I won't tell you my name. 
+At the ICSC conference two weekends ago, they talked about three people: Noah, Daniel, and Job. Daniel refused to eat the king’s choice provision—the demonic food. But we are very concerned that you probably eat a lot of food from the internet. You probably eat a lot of food from the internet.
 
-This ICSC conference two weekends ago - talked about three peopole. Noah, Daniel and Job. Daniel - he refused to eat the kings choice provision - the demonic food. But, we were very concerned that you probably eat a lot of food from the internet. You probably eat a lot of food from the internet. When the first thing in the morning, when you get up, what do you do? You go to the Word, or you go to your phone. You should go to the word. Going to the word does not mean that you're truly getting water in the word. The water in the word - remember - beautifies you. You must not just touch the words themsevles.. but the WATER and the MILK in the word. 1 Peter chapter 2 - milk of the word. You must grow thereby. You must grow by eating Jesus, not knowldge... or studying Jesus. You must eat Jesus to grow in Jesus. Jesus' life in us is growing.
+When you get up first thing in the morning, what do you do? Do you go to the Word, or do you go to your phone? You should go to the Word.
 
-The problem with us though is that we think we know a lot. "Lord Jesus, you have a lot of knowledge". Before you come to the training, you already went through SST - you already know about God, Christ, the SPirit - his redemption, the bible, the word, his economy...
+But going to the Word does not necessarily mean that you are truly getting the water in the Word. The water in the Word, remember, beautifies you. You must not just touch the words themselves, but the **water** and the **milk** in the Word. In 1 Peter chapter 2, it speaks of the milk of the word. You must grow thereby. You must grow by eating Jesus, not by merely knowing Jesus or studying Jesus. You must eat Jesus to grow in Jesus. Jesus’ life in us is growing.
 
-So, the song we just sang - "overcome by eating Jesus is the way". Only eating Jesus is the way. What does that mean? The Lord Jesus is in your spirit - he is not just knowledge to you, He must be a living person in you. In your spirit. The Lord Jesus must live out from you. The Lord Jesus is not just a doctrine, and a historical figure, right? He must be living in you. He must be the One who lives in you and lives out from you, so that the people that see you don't see you, but rather Christ. However, if we don't eat Jesus, we will not live Jesus. That is why eating Jesus is the way. If you don't eat Jesus, you will not live Jesus. 
+The problem with us, though, is that we think we know a lot. “Lord Jesus, You have a lot of knowledge.” Before you come to the training, you may have already gone through SST. You already know about God, Christ, the Spirit, His redemption, the Bible, the Word, His economy.
 
-Maybe you have a lot of knowledge of Jesus, but that does not by any means mean you live Jesus. The Lord Jesus is living in you. We live in knowledge so much and religion and the mind, which prevents us from living Jesus which Jesus wants to do.
+So, the song we just sang says, **“Overcome by eating Jesus is the way.”** Only eating Jesus is the way. What does that mean? The Lord Jesus is in your spirit. He is not just knowledge to you. He must be a living person in you, in your spirit. The Lord Jesus must live out from you. The Lord Jesus is not just a doctrine or a historical figure. He must be living in you. He must be the One who lives in you and lives out from you, so that the people who see you do not see you, but rather Christ. However, if we do not eat Jesus, we will not live Jesus. That is why eating Jesus is the way. If you do not eat Jesus, you will not live Jesus.
 
-John Wesley for instance, when he got the burden to preach the gospel - he preached the gospel, he did. BUT he was a one who preached the gospel on horsebacks, and he just went on all the way into rural areas and preached the gospel. In his age and time, people were gathering in the churches to hear the word, but he didn't care... he just went where people are to preach the gospel. That's John. First generation of John... He's got a burden for the gospel, but after he died, they formed a religion over his speakings and beliefs... because they want to keep his teaching "alive". They want to make sure that the followers know their teaching and background. Instead, the followers did not get a burden from the Lord, and by result they formed a religion to keep what they saw and what they had. That is why they have something called Methodists today, which are formed through John Wesley's teaching. He found out a way to be holy, and he has a method in order to be holy, and his followers after he died became methodists because they followed a method rather than Christ.
+Maybe you have a lot of knowledge of Jesus, but that does not by any means mean that you live Jesus. The Lord Jesus is living in you. We live so much in knowledge, religion, and the mind, and this prevents us from living Jesus, which is what Jesus wants to do.
 
-So in the Lord's Recovery, while recovering all these things, it's not a recovery of just doctrines and truth, but the Recovery of Jesus Christ Himself. The recovery is a matter of eating Jesus. Eating Jesus is the way. If you eat the Lord Jesus in you, then the Lord Jesus will live in you. If you don't eat the Lord Jesus, and instead eat internet and AI... a lot of them are false, not necesarilly true... but people feed them with some information so that they can spit it back out to you. 
+John Wesley, for instance, when he received the burden to preach the gospel, really did preach the gospel. He was one who preached the gospel on horseback, and he went all the way into rural areas to preach. In his age and time, people were gathering in churches to hear the word, but he did not care. He just went where the people were in order to preach the gospel.
 
-Okay, so you eat the internet... and you have this kind of concept - for instance, you have the concept that EVERYBODY is created equal, and everybody is VERY GOOD. No, not everybody is good. Everybody is evil. Everyone is one with Satan, right?
+That was John Wesley. He had a burden for the gospel. But after he died, they formed a religion based on his speaking and beliefs because they wanted to keep his teaching “alive.” They wanted to make sure that the followers knew their teaching and background. Instead, the followers did not receive a burden from the Lord, and as a result they formed a religion to preserve what they had seen and what they had received. That is why there is something called the Methodists today, formed through John Wesley’s teaching. He found a way to be holy, and he had a method in order to be holy. His followers, after he died, became Methodists because they followed a method rather than Christ.
 
-The first failure in the church was the failure Ananias and Sapphira.  The first failure was hypocrisy. It's ambitious. Remember the Lord Jesus said in John chapter 12, satan has nothing in him, no ground, no hope... no possibility of anything happening, right? BUT Ananias and Sapphira had something in them that brother lee calls ambition. Something in them is Satanic. Something in them that causes satan to have the ground in them. WE ALL HAVE THIS SAME KIND OF GROUND IN OURSELVES. We are proud, ambitious, we like pretend, right? We like to be somebody that we are not. However, the Lord says, you need to real, but how can you be real?
+So in the Lord’s recovery, while recovering all these things, it is not merely a recovery of doctrines and truths, but the recovery of Jesus Christ Himself. The recovery is a matter of eating Jesus. Eating Jesus is the way. If you eat the Lord Jesus in you, then the Lord Jesus will live in you. If you do not eat the Lord Jesus, and instead eat the internet and AI—much of which is false, or at least not necessarily true—then you are feeding on things that people input so that they can be spit back out to you.
+#### 1. Letting Satan fill the heart
+[[Acts-05#v3|v. 3]].
 
-The Lord says - in me, Satan has nothing. So, if you EAT JESUS, satan has nothing in you. You will realize that you are fallen and are one with Satan. You all think you are human beings... but you human beings don't know how to be true human beings because you only know how to be a fallen human and a human one with Satan. You condemn Ananias and Sapphira, you say "wow! they are bad! They pretended!" but no, you do the EXACT same thing that they do.
+So you eat the internet, and then you have concepts such as, for instance, that everybody is created equal and everybody is very good. No—not everybody is good. Everybody is evil. Everyone is one with Satan, right?
 
-In our church life, we sometimes pretend (everytime when you stand up to say sometihnbg) that we REALLY GOT AND ENOJYED THE WORD - or are you pretending? BEcause everybody else is doing the same thing, so you just want to be one of them. You want to be seen as the same as the disciples. This is what Ananias did. They withheld money from the church and apostles. I'm glad this practice of giving didn't last long.
+The first failure in the church was the failure of Ananias and Sapphira. The first failure was hypocrisy. It is ambitious. Remember, the Lord Jesus said in John chapter 12 that Satan had nothing in Him—no ground, no hope, no possibility of anything happening. But Ananias and Sapphira had something in them that Brother Lee calls ambition. Something in them was satanic. Something in them gave Satan ground. **We all have this same kind of ground in ourselves.** We are proud, ambitious, and we like to pretend. We like to be somebody we are not. However, the Lord says that we need to be real. But how can you be real?
 
-If human beings eat different food, they will become that kind of person. This is touching the second failure in the church. You have to be careful that - you know in you that there is something one with Satan - so you must be in your spirit. A lot of times when you want to make decisions... the decisions you made most likely are according to the wordly people, like for instance, if you get out of here and graduate from the FTTA and are looking for a job - if three jobs offer, which one will you take? What do you consider? What do you do? Which one has a better benefit, right? Higher salary... or whether they are remote jobs or not? INSTEAD OF PRAYING TO THE LORD and finding out where the Lord wants you to be... you choose the job by the opening of the Job instead.
+The Lord says, “In Me Satan has nothing.” So, if you **eat Jesus**, Satan has nothing in you. You will realize that you are fallen and one with Satan. You all think you are human beings, but you human beings do not know how to be true human beings, because you only know how to be fallen humans, humans who are one with Satan. You condemn Ananias and Sapphira. You say, “Wow, they were bad! They pretended!” But no—you do the exact same thing they did.
 
-Would you go to a place where the Lord says, "you go, but you don't go because the salary is not good enough". We eat Jesus, we say we eat Jesus... but we don't eat Jesus. We really don't eat Jesus. This causes ALL FAILURES in the church. Failure in the church is not as bad as degredation in the church. In message 223-224, there is degredation in the church, but the failure in the church is already leading to the degredation of the church.
+In our church life, we sometimes pretend. Every time you stand up to say something, did you really get and enjoy the Word, or are you pretending? Because everybody else is doing the same thing, you just want to be one of them. You want to be seen as being the same as the disciples. This is what Ananias did. They withheld money from the church and the apostles. I am glad this practice of giving did not last long.
+#### 2. Lying to and testing the Holy Spirit—God
+[[Acts-05#v3|vv. 3-4]].
 
-You will find out the difference between degredation and failure in the church. Failure is probably sometihng personal, it's not as serious, but degredation is laying the axe on the root to cut off the root. Like, you think that Watchman Nee is a human being right? Yes. So, Brother Lee when he was in Shanghai... they asked him, "is watchman nee a human or not"? He said yes he is human. Human beings make mistakes right? You know waht brother lee answered? "whether he makes mistakes or not - it is not my business" IT IS NOT YOUR BUSINESS. YOU DO NOT CARE FOR THEM. THE LORD DID NOT GIVE YOU THE RIGHT TO JUDGE. The Lord gave all the judgement to His SON. The judgement is not yours. You don't judge people according to what they believer or what they eat or how they behave. We don't judge them. Lord Jesus.
+If human beings eat different food, they will become that kind of person. This touches the second failure in the church. You have to be careful, because there is something in you that is one with Satan, so you must be in your spirit.
 
-So, in Romans 14, Paul says "those who eat meat, do not criticize those who do not eat meat". You know, we ALWAYS criticize people who dont d othe same thing we do. we think, "Look at you, you go out to the campuses..." - I hope you don't go out to look for the people who you consider to be the right people. If you meet some people who do not pray-read the word, do not call on the name of the Lord, what do you do? You have to check with whether they believe in the Lord or not. If they have belief in the Lord then they are my brother. Whether they believe in pray-reading the word, or calling or not... it is up to them, not up to me. I do not judge them. The Lord did not give me the judgement and the judgement seat. It is the Lord's work instead. The Lord's responsibility, not mine. DO NOT GET INTO RIGHT OR WRONG.
+A lot of times, when you want to make decisions, the decisions you make are according to worldly people. For instance, if you graduate from the FTTA and are looking for a job, and three jobs offer you positions, which one will you take? What do you consider? Which one has better benefits? Higher salary? Whether they are remote jobs or not? Instead of praying to the Lord and finding out where the Lord wants you to be, you choose the job according to the opening, instead of according to the Lord.
 
-Do you know why there was a storm in the past - 1978 and 1989-90? Therewere some storms in the churches, because they were in the realm of right and wrong. They thought brother lee was wrong. Probably... i dont konw. But it isnt my business if he is right or wrong, i dont care. I received life from him. So, I want to receive more life from him, I don't care wehterh he is right or wrong, because he passes on god's economy and a vision and a revelation to me, NOT KONWLEDGE.
+Would you go to a place where the Lord says, “You go,” but you do not go because the salary is not good enough?
 
-Today, I am not judging people because of knowledge... and whether I know they are right or wrong. This one line says - "We know everything we know, and everything they know"... you know that God's economy, redemption, choosing, you know, everything, right? You have all the knowledge. But that is just your knowledge, when you come to your flesh, you have nothing to deal with your felsh, you still sin in the same flesh. If you lie, you lie. If we pretend ourselves, we will continue to pretend. You say, "I like to improve myself, I want to change myself, I want to be reformed in myself to be a better person", but you cannot. You can't do this. Romans chapter 7 tells us that we do things bad, we know it is not us but rather sin in the flesh. But I still try to do good, so I tell the Lord "next time I will not do this". How many people have done this? We already have this concept in us. When next time comes, I still do it. I still have so many failures and sin because satan is in me. You know, peter could see a vision in one moment and in the next moment he could be one with satan. The Lord told to him "satan get behind me". He directly called Peter one with Satan.
+We say we eat Jesus, but we do not eat Jesus. We really do not eat Jesus. This causes all failures in the church. Failure in the church is not as bad as degradation in the church. In messages 223–224, there is degradation in the church. But the failure in the church is already leading to the degradation of the church.
 
-So, the problem is not the failure of Jesus, but it is a failure of a man. A failure of Ananias and Sapphira. Their failure was NOT because they were acting or pretending to do sometihng... but the bigger preoblem is that they became one with Satan. Satan dwelt in them. That is why we say, we have both Satan dwelling in us, and also God as the Spirit dwelling in us. We have to be in our spirit a lot. If we are not in our spirit, Paul says the matter of the spirit - he says "therefore my conscience is clear. A good conscience both to god and to men". To man is easier because you cannot see me through... but to God you cannot hide. Oh Lord Jesus. If Paul can say, he has a good conscience both to god and to man, we must have a good conscience. A good conscience is part of the spirit. So if you exercise your conscience, you exercise your spirit. Don't try to cheat others by your behaviors... you have to learn to be in your spirit to exercise your conscience. Your conscience will tell you whether you are pretending or not, right?
+You will find out the difference between degradation and failure in the church. Failure is probably something personal. It is not as serious. But degradation is laying the axe at the root to cut off the root.
+#### 3. Pretending to be absolute for the Lord
+[[Acts-05#v3|vv. 3b-4a]], [[Acts-05#v8|8]].
 
-The biggest sin in their problem was not they pretending and ambition, but that they were one with satan. 
+You think that Watchman Nee was a human being, right? Yes. So Brother Lee, when he was in Shanghai, was asked, “Is Watchman Nee a human or not?” He said, “Yes, he is human.” Human beings make mistakes, right? Do you know what Brother Lee answered? **“Whether he makes mistakes or not, it is not my business.”**
 
-You need to realize that you have two people living in you. One is God, one is Satan. If Satan is living in you... if you don't eat Jesus, you will become one with Satan automatically. So, the failure of the church here comes from oneness with Satan as the source. Satan tried to cheat you. Lots of people left Brother Lee because they had slid-back into right or wrong... which cut themselves off from the source of life. They got into right and wrong, and they had no life, that is degredation in the church.
+It is not your business. You do not care for that. The Lord did not give you the right to judge. The Lord gave all judgment to His Son. The judgment is not yours. You do not judge people according to what they believe, what they eat, or how they behave. We do not judge them. Lord Jesus.
 
-A - hypocrisy
-B - overcome by racial differences - you know, racial is not a problem with races, its with the culture. You know why we don't like Spanish people? We are in an area where there are a lot of Spanish people, right? The Lord has put us soverignly in southern california where over 50 percent of the people you meet on the street is Spanish. But you have a problem with Spanish because you have a different culture. We Chinese have a different culture - high moral culture, but the problem with us Chinese is that we don't follow that... we had a teacher named Confuscious who taught very high morality, but we don't follow that. The problem is that they dispise the ones who don't follow it. We despise the spanish people, because they do not value the education as much as you do. Why do you value education to the extent that you do? BEcause my PARENTS told me to be that way. That is culture. Brother Lee saw in colossians, Paul was against culture. He was against anything that is not Christ. Culture can be something that you live out but not Christ. So, brother Lee came to this country, and said "eating Jesus is the way", but we don't eat Jesus, we eat culture, we eat different things, internet... newspapes, magazines, lots of things, but not Jesus. Lord Jesus, have mercy on us - we want to turn back to the true word and eat Jesus! Not just to get some kind of knowledge of Jesus, but we really want to get the revelation of Jesus. I want Jesus to live in me - this is God's Economy. God's Econmy is God's dispensing himself into you and to live out from you. God wants to be experienced by you, enjoyed by you, and expressed by you. So, you are in God's image. You were created in God's image so you need to express him. God is invisible... I don't know why he ordained it that way, or why he desires us so much, but he chose certain people to come into them, saturate them with Himself, and live through them and out of them. To be glorified is not just to be full of "light". God wants to be expressed in your SUFFERING just as much.
+So in Romans 14, Paul says that those who eat meat should not criticize those who do not eat meat. We always criticize people who do not do the same thing we do. We think, “Look at you, you go out to the campuses...” I hope you do not go out looking only for the people you consider to be the right people.
 
-This treasure in earthen vessels - "The excellency of the power may be of God and not of man". Chapter 4 verse 7, right? I was pressed on every side but not constricted, unable to find a way out but not utterly without a way out. Persecuted but not abandoned. Cast down, but not destroyed. The Lords life in you - the more push it, it's like the ball in water... the deeper you push, the higher it jumps. Right? 
+If you meet some people who do not pray-read the Word and do not call on the name of the Lord, what do you do? You have to check whether they believe in the Lord or not. If they believe in the Lord, then they are my brother. Whether they believe in pray-reading the Word or calling on the Lord is up to them, not up to me. I do not judge them. The Lord did not give me the judgment seat. That is the Lord’s work, the Lord’s responsibility, not mine. **Do not get into right and wrong.**
 
-The Lord's life in you - how buoyant is He! Hymn 505! 
+Do you know why there were storms in the past—in 1978 and again in 1989–90? There were storms in the churches because people entered into the realm of right and wrong. They thought Brother Lee was wrong. Probably—I do not know. But it is not my business whether he is right or wrong. I do not care. I received life from him. So I want to receive more life from him. I do not care whether he is right or wrong, because he passes on God’s economy and a vision and a revelation to me, not mere knowledge.
 
-The deeper you press His life down, the higher He jumps. Paul says that the treasure is in earthen vessels. But this treasure, who can see it? If you don't eat jesus and just live by yourself and bouncing back just as yourself and your own energy but without the Lord, Paul says, I don't care for that. He even prayed three times for the Lord to remove the thron from his side, the Lord just said "my grace is sufficient for you", I dont want to heal you, I want you to enjoy my grace!! This is what the Lord wants. But, we want to be healed right? It's too painful! The Lord says "you can endure the pain because my grace is sufficient for you". The Lord cares for His grace to work in Paul, reconstitute Paul, and change Paul into a God-man. Not just a good man... He doesn't care for a good man. 
+Today I am not judging people according to knowledge, or according to whether I know they are right or wrong. You may know everything—God’s economy, redemption, choosing, and so on. You may have all the knowledge. But that is just your knowledge. When you come to your flesh, you still have nothing with which to deal with your flesh. You still sin in the same flesh. If you lie, you lie. If you pretend, you continue to pretend.
 
-The third person is Job, right? He was a very good person. He had human integrity, and even when he was suffering... he told the people and friends, that God gives and God takes away. He takes away but He also gives. So, Job doesn't care whether he is suffering or not suffering... because he said "God gives and takes". However, ALL OF US would complain if we were in this kind of situation. When Paul was in Philippi - he was in prison - but he did not complain about being in prison. He didnt say, "Lord Jesus, you sent me here to Phillipi, why would you put me here in this prison??? WHY?". No, he didn;t complain in that way, he was just singing and praying. Wow. What an apostle. Christ lived out from him, singing and praying, and the Lord opened the door to save the jailor!
+You say, “I would like to improve myself. I want to change myself. I want to reform myself to be a better person.” But you cannot. Romans 7 tells us that when we do bad things, it is not us, but sin in the flesh. Yet I still try to do good, so I tell the Lord, “Next time I will not do this.” How many people have done this? We already have this concept in us. But when next time comes, I still do it. I still have many failures and sins because Satan is in me.
 
-Okay, so don't think that the Lord always does things according to your concept of good. The Lord does not do that. He just cares that His grace is sufficient for you. He cares to be your grace. What is grace? We know, that grace is God enjoyed by man. If God did not incarnate, there is NO GRACE. In the Old Testament there is no grace... there is favor, but no grace. There is compassion, but no grace.
+Peter could see a vision in one moment, and in the next moment he could be one with Satan. The Lord told him, “Satan, get behind Me.” He directly addressed Peter in that way because Peter had become one with Satan.
 
-GRACE AND REALITY CAME THROUGH JESUS CHRIST. Grace upon grace. You cannot receive God's grace at one time, sorry, you are too small. Your vessel is too small. The Lord cannot give you everything of grace, but rather grace upon grace... just a little bit of riches and then a little bit more - based off of how much you are able to receive.
+So the problem is not a failure of Jesus, but a failure of man—a failure of Ananias and Sapphira. Their failure was not merely that they were acting or pretending to do something. The bigger problem was that they became one with Satan. Satan dwelt in them. That is why we say that both Satan and God as the Spirit dwell in us. We have to be in our spirit very much.
 
-The Lord did not remove the pain from Paul, but rather He increased His grace. What does grace do? God enjoyed by you TO DO EVERYTHING FOR YOU. Can you really enjoy grace? "Lord, I would like to be healed!" but the Lord says his grace is suffience for you. "I would rather boast in my weakness". Who would boast in their weakness??? If you went to a job interview, would you boast in your weakness?? You would boast in your strength. YOu will talk about how smart you are and how quickly you can learn. We would highlight our strenghts... we need to sell your strong point!  BUT PAUL SAYS THAT HE LIKES TO BOAST IN HIS WEAKNESS. "Im sloppy, im bad"... paul would just say that! That the power of God might be overshadowing him.
+If we are not in our spirit, then this becomes a problem. Paul says that his conscience was clear—a good conscience both toward God and toward men. Toward men is easier, because people cannot always see through you. But before God, you cannot hide. Oh Lord Jesus. If Paul could say that he had a good conscience both before God and men, then we too must have a good conscience.
 
-Paul didn't overcome these pains because of his weaknesses, but rather the grace of God. The Father wants to dispense His Grace into you.
+A good conscience is part of the spirit. So if you exercise your conscience, you exercise your spirit. Do not try to cheat others by your behavior. You have to learn to be in your spirit and exercise your conscience. Your conscience will tell you whether you are pretending or not.
 
-C - bringing the legal practice of the old testament.We all like to be the same as everyone else, so in Galatia, there were some people who came from James to Galatia, and they wanted everyone to be the same as them. Peter separated himself and also Barnabas, they ate with the Gentiles but then they separated themselves and ate with the Jews. Making divions causes the departing form the teaching of the apostles.
+The biggest sin in their problem was not merely pretending or ambition, but that they were one with Satan.
 
-If you depart from the teaching of the apostles, that is the biggest failure because it leads to degredation.
+You need to realize that there are two persons living in you. One is God, and one is Satan. If Satan is living in you, then if you do not eat Jesus, you will automatically become one with Satan. So the failure of the church here comes from oneness with Satan as the source. Satan tries to cheat you.
 
-Committing fornication - okay, today, in this world, fornication is VERY RAMPANT. People do not care for keeping your virginity anymore. AMong Christians, we should keep away from fornication. Before your marriage, you should not fornicate. Do not follow the world and it's ideology. 
+Lots of people left Brother Lee because they had slid back into right and wrong, which cut them off from the source of life. They entered into right and wrong, and they had no life. That is degradation in the church.
+### B. Being overcome by racial difference 
+[[Acts-06#v1|6:1]]:
 
-Using craftiness to cheat the saints for money - this was a HUGE FIALURE for the apostles. They spent themselves and all they had on the church. They said "who is stumbled and i myself is not burned", he is burned because of the other people... not because of himself. It also says that the anxiaties of all the churches was upon him daily, right? He really loved the church and gave himself to the church... but t he people in the church criticized him saying he had alterior motive and taking moeny from them... Oh Lord, this is definitely a failure in the church (local church), because it was a localized problem, not widespread yet.
+You know, “racial” is not merely a problem of race; it is a problem of culture. Why do we not like Spanish people? We are in an area where there are many Spanish people. The Lord has sovereignly placed us in Southern California, where over 50 percent of the people you meet on the street are Spanish. But you may have a problem with Spanish people because they have a different culture.
 
-The practice of the Nicolaitans - the Lord hates, but it alter became the teaching of the Nicolaitians which is actually worse. Do not take your failure and MAKE IT into a degredation.
+We Chinese have a different culture—a high moral culture. But the problem with us Chinese is that we do not follow that culture ourselves. We had a teacher named Confucius who taught very high morality, but we do not follow it. The problem is that people despise those who do not follow their own standard.
 
-The failure you should keep in your own local church, because if it because a teaching and spreads to other churches... degredation begins.
+We may despise Spanish people because they do not value education as much as we do. But why do you value education to the extent that you do? Because your parents told you to. That is culture.
 
-Eating bread and taking the cup in an unworthy manner and not dicerning the body. Abusing the gift of tongue speaking, and saying no to the Lord's resurrection. Walking in a disorderly way.
+Brother Lee saw in Colossians that Paul was against culture. He was against anything that is not Christ. Culture can be something that you live out instead of Christ.
 
-We say, "Lord, you are coming back so soon so I don't need to work. I just would like to live by others". NO. You have to work. "He who does not work does not eat", paul says.
+So Brother Lee came to this country and said, **“Eating Jesus is the way.”** But we do not eat Jesus. We eat culture. We eat different things—the internet, newspapers, magazines, many things—but not Jesus. Lord Jesus, have mercy on us. We want to turn back to the true Word and eat Jesus—not merely to gain some knowledge of Jesus, but to receive the revelation of Jesus.
 
-These are the failures in the church. This is just in a locality because of the human beings, and not because of the divine life. If it is widespread in the local churches... then it becomes a degredation. So, failure, don't take failure as something not serious... it is serious, but it is also a localized issue, but you have to deal with it.
+I want Jesus to live in me. This is God’s economy. God’s economy is God dispensing Himself into you and living out from you. God wants to be experienced by you, enjoyed by you, and expressed by you. You are in God’s image. You were created in God’s image, so you need to express Him. God is invisible. I do not know why He ordained it that way, or why He desires us so much, but He chose certain people to come into them, saturate them with Himself, and live through them and out of them. To be glorified is not merely to be full of “light.” God wants to be expressed in your suffering just as much.
+#### 1. In the matter of eating
+[[Acts-06#v1|v. 1]]
+#### 2. Causing the practice of having all things common to wane
+[[Acts-02#v4|2:4-45]]:
 
-We have 7 minutes to testify concerning this message.
+“This treasure in earthen vessels, that the excellency of the power may be of God and not of us.” Chapter 4, verse 7, right?
 
-Daniel Zheng - its easy to look at this outline and just decide i want to avoid this at all costs, but we must realize that if we are not EATING JESUS, WE ARE NOT UMMUNE T FAILING. Hallelujah we have the blood if we fail. And we can eat jesus as the way. I was also touched by hypocrisy, the bible says we cannot decieve the holy spirit. You can decieve everybody else, but not the Holy SPriit. The solution, praise the lord, is not to look anbd improve yourselve, but rather eat Jesus.
+“I was pressed on every side but not constricted, unable to find a way out but not utterly without a way out, persecuted but not abandoned, cast down but not destroyed.”
 
-Anthony Mendoza - we need to be mingled in spirit with the Lord. We need to muse on him, and as our brother was saying, eat the Lord. In Galatians 2:12-13, Peter the leading apostles, was practising hypocrisy. He had a fear of even eating with the circumcised ones, becaue he did not want to be seen eating with uncircumcised... The leading apostle had crakcs in his faith. We need to take this warning, and choose to eat the Lord and eat His word. Paul was with the nazarites and fulfilled his vow - but had contradictions with the Lord's New Testament Economy... which God was not pleased with. We need to be mingled in spirit and enjoy the Lord in the word.
+The Lord’s life in you—the more you push it, it is like a ball in water: the deeper you push it, the higher it rises. Right?
 
-Kayla - i was touched by the matter of eating. It's easy to think - oh thats their failure, its not me thankfully. It reminded me of when in Leviticus it talks about all of our discharges - blood, disease... etc. We are fallen thats why. That is why leviticus STRESSES OUR EATING SO MUCH. W eneed to be faithful to stay in the word so that we become the word and become living members of the local church.
+The Lord’s life in you—how buoyant He is. Hymn 505.
 
-sister - I realized that, looking through all these failures, you see (also what was emphasized) - the reason these came in was because these people thought they knew how to live. They thought they knew what was right, how to judge people, what to do... that was a real opening for satan to become one with them. I appreciated the way to overcome this is to eat Christ. His life is indestructable in us. This makes me appreciate his humanity even more - he passed through all tests with no shortcut. We have this life in us.
+The deeper you press His life down, the higher He rises. Paul says that the treasure is in earthen vessels. But who can see this treasure? If you do not eat Jesus and just live by yourself, bouncing back merely as yourself and in your own energy, but without the Lord, Paul says, in effect, “I do not care for that.”
 
-jony - The Lord Jesus stated that Satan had no ground in him. This statement should cause us to DESPERATELY pray to the Lord for His life. I am most touched with I see something of Christ, no amount of conviction, self-effort, or performance will help us to improve. No amount of knowledge will help. It's a matter purely of eating and seeing Christ.
+He even prayed three times for the Lord to remove the thorn from his side. But the Lord said, “My grace is sufficient for you.” In other words: I do not want to heal you; I want you to enjoy My grace. This is what the Lord wants. But we want to be healed, right? It is too painful. Yet the Lord says that you can endure the pain because His grace is sufficient for you.
 
-Andrew malarski - It's not introspection, its not "how do we do better"? If we do better, thats actually worse.. but i appreciated what brother lee said concerning watchman nee. they asked "was nee right or wrong???", right after he dealt with the matter of the tree of life and had teburculosis - we realized that EATING JESUS IS THE WAY from this situation.
+The Lord cares for His grace to work in Paul, reconstitute Paul, and change Paul into a God-man, not merely a good man. He does not care merely for a good man.
 
-nicolia - i liekd the matter of eating the lord as well. Over the training I try to memorize verses, lots of self-striving, because I thought that that was what eating the Lord was. I was touched that we can be in the word and get no water, because the Lord Jesus IS THE WATER IN THE WORD. When we touch this water, we touch the person.
+The third person is Job, right? He was a very good person. He had human integrity. Even when he was suffering, he told his friends that God gives and God takes away. He takes away, but He also gives. So Job did not care whether he was suffering or not suffering, because he said, “God gives and takes away.”
 
-Kameron - i was touched that this failure of Ananias was this ambition. THis is how satan got the ground in them, and to deceive their givings from the church. We need to be careful with our ambition. We have both Satan and the Lord living in us... so we need to be careful. We shouldn't accept the idea of being somebody in the church, this gives Satan the gorund. We need to be careful and eat the Lord.
+However, all of us would complain if we were in that kind of situation.
 
-Jayden P - we touch the matter of failures... but it isnt the failures we need to look at, the BIGGER PROBLEM is being one with satan. We need LIGHT to see "what am I one with right now"? We realize that we are one with what we are eatoing. I enojyed frm the reading and this class - we need to be constituted with the word of GOd. THis is our food. Another point - knowledge does not withstand the flesh, but life overcomes.
+When Paul was in Philippi, he was in prison, but he did not complain about being in prison. He did not say, “Lord Jesus, You sent me here to Philippi. Why would You put me here in this prison?” No, he did not complain like that. He was simply singing and praying. Wow. What an apostle. Christ lived out from him in singing and praying, and the Lord opened the door to save the jailer.
 
-christian o - they had vainglory and wanted to be something. We have both Satan and the Holy SPirit in us. Satan has the gorund in us and is waiting for the opportunity when we slip up and eenter into ambition
+So do not think that the Lord always does things according to your concept of what is good. The Lord does not do that. He simply cares that His grace is sufficient for you. He cares to be your grace.
 
-sister - this is a matter of life and death. I was so convicted from the reading - these were people who lioved the lrod, but they were not immune. I was touched - should never try to look at myself or try and improve it... but I need to eat Jesus. All we can do to cooperate is to eat Jesus in the Word. Eating Jesus in the word is the realizating that we are not coming to the words in the bible but the person Jesus Himself.
+What is grace? We know that grace is God enjoyed by man. If God had not become incarnate, there would be no grace. In the Old Testament there is favor, but no grace. There is compassion, but no grace. Grace and reality came through Jesus Christ.
 
-sister- without this failure, we would never know how Paul dealt with these things. I appreciated 1 Corinthians 4:3 - "i don not even examine myself" - we need to bring all these matters to the lord, and it is only by his shinging that he imparts himself into us
+Grace upon grace. You cannot receive all of God’s grace at one time—you are too small. Your vessel is too small. The Lord cannot give you everything at once. Rather, it is grace upon grace, just a little bit of riches, and then a little more, based on how much you are able to receive.
 
+The Lord did not remove the pain from Paul, but rather He increased His grace. What does grace do? It is God enjoyed by you to do everything for you.
 
+Can you really enjoy grace? We say, “Lord, I would like to be healed.” But the Lord says that His grace is sufficient for you. Paul says, “I would rather boast in my weakness.” Who would boast in weakness? If you went to a job interview, would you boast in your weakness? No—you would boast in your strength. You would talk about how smart you are and how quickly you can learn. We highlight our strengths. We try to sell our strong points. **But Paul says that he likes to boast in his weakness**, so that the power of God might overshadow him.
 
+Paul did not overcome these pains by his own strength, but by the grace of God. The Father wants to dispense His grace into you.
+### C. Bringing in the legal practices of the Old Testament
+[[Acts-15#v1|15:1-2]]:
 
+We all like to be the same as everyone else. So in Galatia, there were some people who came from James, and they wanted everyone to be the same as them. Peter separated himself, and even Barnabas was affected. They had been eating with the Gentiles, but then they separated themselves and ate only with the Jews. Making divisions causes a departure from the teaching of the apostles.
+
+If you depart from the teaching of the apostles, that is the biggest failure, because it leads to degradation.
+
+Committing fornication—today, in this world, fornication is very rampant. People no longer care about keeping their virginity. Among Christians, we should stay away from fornication. Before marriage, you should not commit fornication. Do not follow the world and its ideology.
+
+Using craftiness to cheat the saints for money—this was a huge failure. The apostles spent themselves and all they had on the church. Paul said, “Who is stumbled, and I myself do not burn?” He burned because of other people, not because of himself. It also says that the anxieties of all the churches were upon him daily. He really loved the church and gave himself to the church. But people in the church criticized him, saying that he had ulterior motives and was taking money from them. Oh Lord, this is definitely a failure in the church, because it was a localized problem, not yet something widespread.
+
+The practice of the Nicolaitans—the Lord hates this. But later it became the teaching of the Nicolaitans, which is actually worse. Do not take your failure and turn it into degradation.
+
+A failure should be kept from spreading in your local church, because if it becomes a teaching and spreads to other churches, degradation begins.
+
+Eating the bread and taking the cup in an unworthy manner and not discerning the Body; abusing the gift of tongue-speaking; saying no to the Lord’s resurrection; walking in a disorderly way.
+
+We may say, “Lord, You are coming back soon, so I do not need to work. I would just like to live off others.” No. You have to work. “He who does not work shall not eat,” Paul says.
+
+These are the failures in the church. This is a matter in a locality because of human beings, not because of the divine life. If it becomes widespread in the local churches, then it becomes degradation. So do not take failure as something insignificant. It is serious. It may be localized, but it still must be dealt with.
+#### 1. Circumcision on the flesh
+[[Philippians-03#v2|Phil. 3:2]]; [[Galatians-05#v2|Gal. 5:2]].
+#### 2. Annulling the freedom in Christ
+[[Galatians-02#v3|Gal. 2:3-4]]:
+#### 3. Even causing Peter to play hypocrisy, the rest of the Jewish believers who were with him to join him in hypocrisy, and even Barnabas to be carried away by their hypocrisy
+[[Galatians-05#v12|12-13]].
+### D. Compromising with Judaism
+[[Acts-21#v20|Acts 21:20-26]]:
+
+I am going to breeze through this last section of the outline, so that you can have some time of your own to speak and confirm this message.
+#### 1. Bringing in the mixture of Judaism with God's pure grace.
+#### 2. Spoiling the purity of the church life.
+#### 3. Damaging the pure testimony of Jesus Christ as the embodiment of God's pure grace
+[[John-01#v17|John 1:17]].
+#### 4. Resulting in the termination of the church, polluted with the satanic mixture, by the judgment of God through the destruction of Jerusalem by the Roman army under Titus in A.D. 70.
+### E. Judging one another in the matters of eating and observing of days
+[[Romans-14#v2|Rom. 14:2-5]], [[Romans-14#v10|10]], [[Romans-14#v20|20]].
+### F. Making divisions and causes of falling contrary to the teaching of the apostles
+[[Romans-16#v17|16:17]]; [[1 Timothy-06#v3|1 Tim. 6:3]].
+### G. Being puffed up on behalf of one gifted person against another unto strife and divisions
+[[1 Corinthians-01#v11|1 Cor. 1:11-12]].
+### H. Committing fornication
+[[1 Corinthians-05#v1|5:1]].
+### I. Having lawsuits one against another
+[[1 Corinthians-06#v6|6:6]].
+### J. Questioning the Apostle's apostleship and charging the Apostle with being crafty in making gain with guile
+[[1 Corinthians-09#v1|9:1-3]]; [[2 Corinthians-12#v16|2 Cor. 12:16]].
+### K. Partaking of the table of the Lord and of the table of the demons
+[[1 Corinthians-10#v21|1 Cor. 10:21]].
+### L. Eating the bread and drinking the cup of the Lord in an unworthy manner and not discerning the Body
+[[1 Corinthians-11#v27|11:27]], [[1 Corinthians-11#v29|29]].
+### M. Abusing the gift of tongue-speaking
+[[1 Corinthians-14#v23|14:23]].
+### N. Saying that there is no resurrection of the dead
+[[1 Corinthians-15#v12|15:12]].
+### O. Walking disorderly
+[[2 Thessalonians-03#v11|2 Thes. 3:11]].
+
+# Trainee Speaking
+
+## Daniel Zheng
+
+It is easy to look at this outline and simply decide, “I want to avoid this at all costs.” But we must realize that if we are not **eating Jesus**, we are not immune to failing. Hallelujah, if we fail, we have the blood. And we can eat Jesus as the way.
+
+I was also touched by hypocrisy. The Bible shows that we cannot deceive the Holy Spirit. You may deceive everybody else, but you cannot deceive the Holy Spirit. The solution, praise the Lord, is not to look at yourself and try to improve yourself, but rather to eat Jesus.
+
+## Anthony Mendoza
+
+We need to be mingled in spirit with the Lord. We need to muse on Him, and as our brother was saying, eat the Lord.
+
+In Galatians 2:12-13, Peter, the leading apostle, was practicing hypocrisy. He even had fear in the matter of eating with the Gentiles, because he did not want to be seen eating with the uncircumcised. The leading apostle had cracks in his faith. We need to take this as a warning and choose to eat the Lord and eat His Word.
+
+Paul also was with the Nazarites and fulfilled his vow, but that involved contradictions with the Lord’s New Testament economy, with which God was not pleased. We need to be mingled in spirit and enjoy the Lord in the Word.
+
+## Kayla
+
+I was touched by the matter of eating. It is easy to think, “Oh, that was their failure, not me, thankfully.” But it reminded me of Leviticus, where it talks about all of our discharges—blood, disease, and so on. We are fallen; that is why. That is also why Leviticus stresses our eating so much.
+
+We need to be faithful to stay in the Word so that we become the Word and become living members of the local church.
+
+## Sister
+
+I realized, in looking through all these failures, that the reason these things came in was because these people thought they knew how to live. They thought they knew what was right, how to judge people, and what to do. That became a real opening for Satan to become one with them.
+
+I appreciated that the way to overcome this is to eat Christ. His life is indestructible in us. This made me appreciate His humanity even more—He passed through all the tests with no shortcut. We have this life in us.
+
+## Jonathan Birchman
+
+The Lord Jesus stated that Satan had no ground in Him. This statement should cause us to desperately pray to the Lord for His life.
+
+What touched me most is that when I see something of Christ, I realize that no amount of conviction, self-effort, or performance will help us improve. No amount of knowledge will help. It is purely a matter of eating and seeing Christ.
+
+## Andrew Malarski
+
+It is not a matter of introspection. It is not, “How do we do better?” If we try to do better, that may actually make things worse.
+
+But I appreciated what Brother Lee said concerning Watchman Nee. They asked, “Was Nee right or wrong?” Right after he dealt with the matter of the tree of life and after he had tuberculosis, we realize from this situation that **eating Jesus is the way**.
+
+## Nicolina
+
+I also liked the matter of eating the Lord. During the training I have tried to memorize verses with a lot of self-striving, because I thought that was what eating the Lord was.
+
+But I was touched by the fact that we can be in the Word and still get no water, because the Lord Jesus **is the water in the Word**. When we touch this water, we touch the person.
+
+## Kameron
+
+I was touched that the failure of Ananias was related to ambition. This is how Satan got the ground in them and caused them to deceive in the matter of their giving to the church.
+
+We need to be careful with our ambition. We have both Satan and the Lord living in us, so we need to be careful. We should not accept the idea of being somebody in the church, because this gives Satan the ground. We need to be careful and eat the Lord.
+
+## Jayden P.
+
+We touched the matter of failures, but it is not mainly the failures we need to look at. The bigger problem is being one with Satan.
+
+We need light to see, “What am I one with right now?” We realize that we become one with what we are eating. I enjoyed from the reading and from this class that we need to be constituted with the Word of God. This is our food.
+
+Another point is that knowledge does not withstand the flesh, but life overcomes.
+
+## Christian O.
+
+They had vainglory and wanted to be something. We have both Satan and the Holy Spirit in us. Satan has ground in us and is waiting for the opportunity when we slip up and enter into ambition.
+
+## Sister
+
+This is a matter of life and death. I was so convicted from the reading—these were people who loved the Lord, but they were not immune.
+
+I was touched that I should never try to look at myself or improve myself. I need to eat Jesus. All we can do to cooperate is to eat Jesus in the Word. Eating Jesus in the Word is the realization that we are not merely coming to the words in the Bible, but to the person of Jesus Himself.
+
+## Sister
+
+Without this failure, we would never know how Paul dealt with these things. I appreciated 1 Corinthians 4:3: **“I do not even examine myself.”** We need to bring all these matters to the Lord, and it is only by His shining that He imparts Himself into us.

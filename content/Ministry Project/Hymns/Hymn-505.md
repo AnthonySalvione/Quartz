@@ -1,0 +1,55 @@
+---
+Category: Experience of Christ
+Subcategory: As Life
+Lyricist:
+  - Mary E. McDonough
+Melody: John Wade's Cantus Diversi
+---
+## Stanza 1
+There's a Man in the glory      
+Whose Life is for me.      
+He's pure and He's holy,      
+Triumphant and free.      
+He's wise and He's loving,      
+How tender is He!      
+His Life in the glory,      
+My life must be;      
+His Life in the glory,      
+My life must be.
+
+## Stanza 2
+There's a Man in the glory
+Whose Life is for me.
+He overcame Satan;
+From bondage He's free.
+In Life He is reigning;
+How kingly is He!
+His Life in the glory,
+My life must be;
+His Life in the glory,
+My life must be.
+
+## Stanza 3
+There's a Man in the glory
+Whose Life is for me.
+In Him is no sickness;
+No weakness has He.
+He's strong and in vigor,
+How buoyant is He!
+His Life in the glory
+My life may be;
+His Life in the glory
+My life may be.
+
+## Stanza 4
+There's a Man in the glory
+Whose Life is for me.
+His peace is abiding;
+How patient is He!
+He's joyful and radiant,
+Expecting to see
+His Life in the glory
+Lived out in me;
+His life in the glory
+Lived out in me.
+
