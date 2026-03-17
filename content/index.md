@@ -3,7 +3,6 @@ title: Home
 ---
 
 # Welcome
-C:\Users\Antho\quartz\content\FTTA\Term 2\Classes\Body of Christ
 Hello Mom and Dad
 
 ## FTTA Classes
