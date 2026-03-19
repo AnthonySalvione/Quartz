@@ -35,8 +35,13 @@ export const defaultContentPageLayout: PageLayout = {
 
     Component.ConditionalRender({
       component: Component.RecentNotes({
-        title: "Recent Notes",
-        limit: 10,
+        title: "Recently Added Notes",
+        limit: 12,
+        sort: (a, b) => {
+          const aDate = a.dates?.created ?? a.dates?.modified ?? new Date(0)
+          const bDate = b.dates?.created ?? b.dates?.modified ?? new Date(0)
+          return aDate.getTime() - bDate.getTime()
+        },
       }),
       condition: (page) => page.fileData.slug === "index",
     }),
@@ -76,7 +81,11 @@ export const defaultContentPageLayout: PageLayout = {
 
 // components for pages that display lists of pages (e.g. tags or folders)
 export const defaultListPageLayout: PageLayout = {
-  beforeBody: [Component.Breadcrumbs(), Component.ArticleTitle(), Component.ContentMeta()],
+  beforeBody: [
+    Component.Breadcrumbs(),
+    Component.ArticleTitle(),
+    Component.ContentMeta(),
+  ],
 
   left: [
     Component.PageTitle(),
@@ -88,10 +97,13 @@ export const defaultListPageLayout: PageLayout = {
           grow: true,
         },
         { Component: Component.Darkmode() },
+        { Component: Component.ReaderMode() },
       ],
     }),
     Component.Explorer(),
   ],
 
-  right: [],
+  right: [
+    Component.DesktopOnly(Component.TableOfContents()),
+  ],
 }
