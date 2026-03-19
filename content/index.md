@@ -6,9 +6,15 @@ title: Home
 
 Hello Mom and Dad!!!
 
+Here are a few notes I especially wanted to share with you.
+
 ## Featured Notes
-[!info] Lord's Move in Germany
-- [[FTTA/Term 2/GERMANY.md|Open this note]]
+
+> [!info] Lord's Move in AFRICA!!
+> This is the note I want you to check out!
+>
+> [[FTTA/Term 2/Fellowships/The Lord's Move/The Lord's Move in Africa.md|Open this note]]
+
 
 ## FTTA Classes
 - [[FTTA/Term 2/Classes/Body of Christ]]

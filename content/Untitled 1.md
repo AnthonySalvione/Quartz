@@ -68,3 +68,16 @@ So that is where I am right now. I am in the MCC, and I just finished my reading
 Hopefully this message finds you well. Thank you again for your time. Let me know if you have any questions or concerns. 
 
 Anthony
+
+## Message 3
+
+Hi Andrew, just sending over another shorter update.
+
+Yesterday I got a text back from the sister in mental health. She had just apologized for not responding back to me, and said that she is still planning to write me back soon but isn't able to yet. I did connect with my mom though, which was pretty grounding.
+
+Today everything has been good. I was scheduled to drive with my gospel partner (Kevin) and two short-term trainees to work time (I knew them both), but Kevin had to stay back to fix the church van, so I just drove the two short-termers and Kevin drove his own car. We had a really good appointment with a new one we just met last week.
+
+I was scheduled to do dinner prep, but I was unavoidably tasked with driving the short-term brothers back to grace, which would cause me to be 15 minutes late at least to the service. So I was helped to find somebody to trade that dinner prep for their restroom service. So that's what I'll do now.
+
+Currently I'm studying at the MCC early before check-in.
+
