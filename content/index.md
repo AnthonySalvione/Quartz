@@ -1,6 +1,4 @@
----
-title: Home
----
+
 
 # Welcome
 
@@ -18,8 +16,6 @@ Hello Mom and Dad!!!
 - [[FTTA/Term 2/Classes/The Full Ministry of Christ]]
 - [[FTTA/Term 2/Classes/The Spirit]]
 - [[FTTA/Term 2/Classes/The Triune God]]
-
-## Recently Added Notes
 
 ## Other Main Areas
 - [[FTTA/General]]

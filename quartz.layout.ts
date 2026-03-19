@@ -32,19 +32,6 @@ export const defaultContentPageLayout: PageLayout = {
       component: Component.TagList(),
       condition: (page) => page.fileData.slug !== "index",
     }),
-
-    Component.ConditionalRender({
-      component: Component.RecentNotes({
-        title: "Recently Added Notes",
-        limit: 12,
-        sort: (a, b) => {
-          const aDate = a.dates?.created ?? a.dates?.modified ?? new Date(0)
-          const bDate = b.dates?.created ?? b.dates?.modified ?? new Date(0)
-          return aDate.getTime() - bDate.getTime()
-        },
-      }),
-      condition: (page) => page.fileData.slug === "index",
-    }),
   ],
 
   left: [
