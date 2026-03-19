@@ -10,7 +10,7 @@ Here are a few notes I especially wanted to share with you.
 
 ## Featured Notes
 
-> [!info] Lord's Move in AFRICA!!
+> [!note] Lord's Move in AFRICA!!
 > This is the note I want you to check out!
 >
 > [[FTTA/Term 2/Fellowships/The Lord's Move/The Lord's Move in Africa.md|Open this note]]
