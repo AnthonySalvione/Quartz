@@ -1,11 +1,14 @@
-
+---
+title: Home
+---
 
 # Welcome
 
 Hello Mom and Dad!!!
 
 ## Featured Notes
-
+[!info] Lord's Move in Germany
+- [[FTTA/Term 2/GERMANY.md|Open this note]]
 
 ## FTTA Classes
 - [[FTTA/Term 2/Classes/Body of Christ]]
