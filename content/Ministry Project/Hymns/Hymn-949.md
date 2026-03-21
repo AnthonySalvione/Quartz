@@ -5,6 +5,7 @@ Lyricist:
   - Witness Lee
 Melody: Alfred Henry Ackley
 ---
+# Christ is the hope of glory, my very life is He
 ## Stanza 1
 Christ is the hope of glory, my very life is He,
 He has regenerated and saturated me;

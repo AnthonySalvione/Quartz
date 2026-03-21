@@ -5,6 +5,7 @@ Lyricist:
   - Mary E. McDonough
 Melody: John Wade's Cantus Diversi
 ---
+# There's a Man in the glory
 ## Stanza 1
 There's a Man in the glory      
 Whose Life is for me.      

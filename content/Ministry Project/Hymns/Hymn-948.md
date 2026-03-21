@@ -5,7 +5,7 @@ Lyricist:
   - Witness Lee
 Melody: George Frederick Root
 ---
-
+# Myst'ry hid from ages now revealed to me
 ## Stanza 1
 Myst’ry hid from ages now revealed to me,
 ’Tis the Christ of God’s reality.

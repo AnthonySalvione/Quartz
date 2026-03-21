@@ -5,6 +5,7 @@ Lyricist:
   - Witness Lee
 Melody: James Mountain
 ---
+# God intends that all His being
 ## Stanza 1
 
 God intends that all His being

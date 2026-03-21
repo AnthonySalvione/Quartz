@@ -5,7 +5,7 @@ Lyricist:
   - Witness Lee
 Melody: Lowell Mason
 ---
-
+# By the blood of Christ the Victor
 ## Stanza 1
 By the blood of Christ the Victor
 Overcome the enemy;

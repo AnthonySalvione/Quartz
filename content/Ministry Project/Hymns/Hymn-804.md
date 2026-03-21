@@ -6,7 +6,6 @@ Lyricist:
   - Bernard Barton
 Melody: Gottfried Wilhelm Fink
 ---
-
 # Thy Word is like a storehouse, Lord
 ## Stanza 1
 Thy Word is like a storehouse, Lord,

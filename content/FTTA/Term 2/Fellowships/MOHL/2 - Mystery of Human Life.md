@@ -1,5 +1,4 @@
 
-
 If you touch peoples mind and not their conscience, then the situation is hopeless. If we exercise the second key, we are enabled to touch peoples conscience without causing an offense. We are all just redeemed sinners, amen? So before we preach this key, we need to confess and pray and be in the spirit of love instead of accusing, so then we present we are clear that it is not for condeming, and hopefully from our speaking people could see some light from our speaking and get convicted by the holy spriit.
 
 BEN RAMOS DEMONSTRATION.

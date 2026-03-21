@@ -5,7 +5,7 @@ Lyricist:
   - Witness Lee
 Melody: Joseph Grigg
 ---
-
+# Lord Jesus, Thou art Lord of all
 ## Stanza 1
 Lord Jesus, Thou art Lord of all,
 With glory ever crowned;

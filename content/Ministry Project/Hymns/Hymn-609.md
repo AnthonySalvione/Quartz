@@ -5,6 +5,7 @@ Lyricist:
   - Witness Lee
 Melody: Ralph Harrison
 ---
+# I praise Thee for Thy mystery
 ## Stanza 1
 I praise Thee for Thy mystery,
 That I may truly contact Thee;

@@ -6,7 +6,7 @@ timeslot: 7PM
 ---
 # Introduction
 
-This message began with some overflow from the trainees which I recorded in [[Week 1 Overflow|this note!]]
+This message began with some overflow from the trainees which I recorded in [[Monday Overflow - 1|this note!]]
 
 ---
 

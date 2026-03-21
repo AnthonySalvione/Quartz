@@ -5,7 +5,7 @@ Lyricist:
   - Witness Lee
 Melody: C. T. McCorkell
 ---
-
+# Death cannot hold the resurrection life
 ## Stanza 1
 
 Death cannot hold the resurrection life,
