@@ -1,0 +1,41 @@
+---
+Category:
+  - Spiritual Warfare
+Subcategory:
+  - By Obedience
+Lyricist:
+  - Margaret E. Barber
+  - Watchman Nee
+Melody:
+  - William Batchelder Bradbury
+---
+# To the foe my word is always, No
+## Stanza 1
+To the foe my word is always, "No,"
+To the Father it is, "Yes,"
+That His plan and all His counsel
+Be accomplished with success;
+When Thine orders I'm obeying,
+Grant me, Lord, authority
+To fulfill Thy plan eternal
+Thru the Spirit's power in me.
+
+## Stanza 2
+To the foe my word is always, "No,"
+To the Father it is, "Yes,"
+'Tis my attitude eternal;
+May the Lord protect and bless,
+Lest while walking in obedience
+Satan undermine the way;
+When I'm list'ning to Thine orders,
+Grant me mercy, Lord, I pray.
+
+## Stanza 3
+To the foe my word is always, "No,"
+To the Father it is, "Yes,"
+I completely would obey Him,
+Though deep suff'ring may oppress.
+If the Lord will save and keep me,
+As I forward press with Him,
+Then no trials shall prevent me,
+Nor will opposition grim.

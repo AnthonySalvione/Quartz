@@ -4,7 +4,7 @@ Now the Philistines were fighting against Israel; and the men of Israel fled fro
 
 ## v2
 
-And the Philistines chased Saul and his sons; and the Philistines struck down Jonathan and Abinadab and Malchi-shua, Saul’s sons.
+And the Philistines chased Saul and his sons; and the Philistines struck down [[1 Samuel-31.fn#Footnote 2.1 — Jonathan|Jonathan]] and Abinadab and Malchi-shua, Saul’s sons.
 
 ## v3
 
@@ -20,7 +20,7 @@ And when his armor bearer saw that Saul was dead, he likewise fell on his sword 
 
 ## v6
 
-So Saul and his three sons and his armor bearer, as well as all his men, died that day together.
+So Saul and his three sons and his armor bearer, as well as all his men, [[1 Samuel-31.fn#Footnote 6.1 — died|died]] that day together.
 
 ## v7
 

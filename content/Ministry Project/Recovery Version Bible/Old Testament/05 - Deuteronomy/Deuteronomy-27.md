@@ -8,7 +8,7 @@ And in the day when you cross over the Jordan into the land which Jehovah your G
 
 ## v3
 
-And you shall write upon them all the words of this law when you cross over, in order that you may enter the land which Jehovah your God is giving you, a land flowing with milk and honey, as Jehovah, the God of your fathers, promised to you.
+And you shall write upon them [[Deuteronomy-27.fn#Footnote 3.1 — all|all]] the words of this law when you cross over, in order that you may enter the land which Jehovah your God is giving you, a land flowing with milk and honey, as Jehovah, the God of your fathers, promised to you.
 
 ## v4
 
@@ -16,7 +16,7 @@ And when you cross over the Jordan, you shall erect these stones, concerning whi
 
 ## v5
 
-And you shall build there an altar to Jehovah your God, an altar of stones; you shall not use an iron tool upon them;
+And you shall build there an [[Deuteronomy-27.fn#Footnote 5.1 — altar|altar]] to Jehovah your God, an altar of stones; you shall not use an [[Deuteronomy-27.fn#Footnote 5.2 — iron|iron]] tool upon them;
 
 ## v6
 
@@ -56,7 +56,7 @@ And the Levites shall respond and say to all the men of Israel with a loud voice
 
 ## v15
 
-Cursed is the man who makes an idol or a molten image, an abomination to Jehovah, the work of the craftsman’s hands, and puts it in a secret place. And all the people shall answer and say, Amen.
+Cursed is the man who makes an idol or a molten image, an abomination to Jehovah, the work of the craftsman’s hands, and puts it in a secret place. And all the people shall answer and say, [[Deuteronomy-27.fn#Footnote 15.1 — Amen|Amen]].
 
 ## v16
 

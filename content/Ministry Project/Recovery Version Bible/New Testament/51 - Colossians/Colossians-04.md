@@ -7,11 +7,11 @@ Masters, grant to your slaves that which is just and equal, knowing that you als
 
 ## v2
 
-Persevere in prayer, watching in it with thanksgiving,
+[[Colossians-04.fn#Footnote 2.1 — Persevere|Persevere]] in [[Colossians-04.fn#Footnote 2.2 — prayer|prayer]], [[Colossians-04.fn#Footnote 2.3 — watching|watching]] in it with thanksgiving,
 
 ## v3
 
-Praying at the same time for us also, that God would open to us a door for the word, to speak the mystery of Christ (because of which also I am bound),
+Praying at the same time for us also, that God would open to us a [[Colossians-04.fn#Footnote 3.1 — door|door]] for the word, to speak the mystery of Christ (because of which also I am bound),
 
 ## v4
 
@@ -19,15 +19,15 @@ That I may make it manifest as I ought to speak.
 
 ## v5
 
-Walk in wisdom toward those who are without, redeeming the time.
+Walk in wisdom toward those who are without, [[Colossians-04.fn#Footnote 5.1 — redeeming|redeeming]] the time.
 
 ## v6
 
-Let your speech be always with grace, seasoned with salt, that you may know how you ought to answer each one.
+Let your speech be always with [[Colossians-04.fn#Footnote 6.1 — grace|grace]], seasoned with [[Colossians-04.fn#Footnote 6.2 — salt|salt]], that you may know how you ought to answer each one.
 
 ## v7
 
-All the things concerning me, Tychicus, the beloved brother and faithful minister and fellow slave in the Lord, will make known to you,
+[[Colossians-04.fn#Footnote 7.1 — All|All]] the things concerning me, Tychicus, the beloved brother and faithful minister and fellow slave in the Lord, will make known to you,
 
 ## v8
 
@@ -47,7 +47,7 @@ And Jesus, who is called Justus; these alone of the circumcision are my fellow w
 
 ## v12
 
-Epaphras, who is one of you, a slave of Christ Jesus, greets you, always struggling on your behalf in his prayers that you may stand mature and fully assured in all the will of God.
+Epaphras, who is one of you, a slave of Christ Jesus, greets you, always struggling on your behalf in his prayers that you may [[Colossians-04.fn#Footnote 12.1 — stand|stand]] [[Colossians-04.fn#Footnote 12.2 — mature|mature]] and fully assured in all the [[Colossians-04.fn#Footnote 12.3 — will|will]] of God.
 
 ## v13
 
@@ -59,7 +59,7 @@ Luke, the beloved physician, greets you, as well as Demas.
 
 ## v15
 
-Greet the brothers in Laodicea, as well as Nymphas and the church, which is in his house.
+Greet the brothers in Laodicea, as well as Nymphas and the [[Colossians-04.fn#Footnote 15.1 — church|church]], which is in [[Colossians-04.fn#Footnote 15.2 — his|his]] house.
 
 ## v16
 

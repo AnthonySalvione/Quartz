@@ -12,7 +12,7 @@ And he did what was right in the sight of Jehovah, according to all that David h
 
 ## v4
 
-He removed the high places and broke down the pillars and cut down the Asherah and broke in pieces the bronze serpent that Moses had made, for until those days the children of Israel had burned incense to it; and he called it Nehushtan.
+He removed the high places and broke down the pillars and cut down the Asherah and broke in pieces the bronze serpent that Moses had made, for until those days the children of Israel had burned incense to it; and he called it [[2 Kings-18.fn#Footnote 4.1 — Nehushtan|Nehushtan]].
 
 ## v5
 
@@ -48,7 +48,7 @@ For they would not listen to the voice of Jehovah their God but transgressed His
 
 ## v13
 
-And in the fourteenth year of King Hezekiah, Sennacherib the king of Assyria went up against all the fortified cities of Judah and took them.
+[[2 Kings-18.fn#Footnote 13.1 — And|And]] in the fourteenth year of King Hezekiah, Sennacherib the king of Assyria went up against all the fortified cities of Judah and took them.
 
 ## v14
 
@@ -100,7 +100,7 @@ Have I now come up apart from Jehovah against this place to destroy it? Jehovah 
 
 ## v26
 
-And Eliakim the son of Hilkiah and Shebnah and Joah said to the Rab-shakeh, Please speak to your servants in Aramaic, because we understand it; and do not speak with us in the Jews’ language in the hearing of the people who are upon the wall.
+And Eliakim the son of Hilkiah and Shebnah and Joah said to the Rab-shakeh, Please speak to your servants in [[2 Kings-18.fn#Footnote 26.1 — Aramaic|Aramaic]], because we understand it; and do not speak with us in the [[2 Kings-18.fn#Footnote 26.2 — Jews’|Jews’]] language in the hearing of the people who are upon the wall.
 
 ## v27
 
@@ -112,7 +112,7 @@ And the Rab-shakeh stood and cried with a loud voice in the Jews’ language and
 
 ## v29
 
-Thus says the king, Do not let Hezekiah deceive you, because he is not able to deliver you out of my hand.
+Thus says the king, Do not let Hezekiah deceive you, because he is not able to deliver you out of [[2 Kings-18.fn#Footnote 29.1 — my|my]] hand.
 
 ## v30
 
@@ -120,7 +120,7 @@ Neither let Hezekiah cause you to trust in Jehovah, saying, Jehovah will surely 
 
 ## v31
 
-Do not listen to Hezekiah; for thus says the king of Assyria, Make your peace with me, and come out to me; and let each eat from his own vine and each from his own fig tree, and let each drink the waters of his own cistern,
+Do not listen to Hezekiah; for thus says the king of Assyria, Make [[2 Kings-18.fn#Footnote 31.1 — your|your]] peace with me, and come out to me; and let each eat from his own vine and each from his own fig tree, and let each drink the waters of his own cistern,
 
 ## v32
 

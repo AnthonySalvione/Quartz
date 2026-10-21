@@ -1,0 +1,46 @@
+---
+Category:
+  - Praise of the Lord
+Subcategory:
+  - His Love
+Lyricist:
+  - Jennie Evelyn Hussey
+Melody:
+  - William James Kirkpatrick
+---
+# King of my life, I crown Thee now
+## Stanza 1
+King of my life, I crown Thee now,
+Thine shall the glory be;
+Lest I forget Thy thorn-crowned brow,
+Lead me to Calvary.
+
+## Chorus
+	Lest I forget Gethsemane;
+	Lest I forget Thine agony;
+	Lest I forget Thy love for me,
+	Lead me to Calvary.
+
+## Stanza 2
+Show me the tomb where Thou wast laid,
+Tenderly mourned and wept;
+Angels in robes of light arrayed
+Guarded Thee while Thou slept.
+
+## Stanza 3
+Let me like Mary, through the gloom,
+Come with a gift to Thee;
+Show to me now the empty tomb,
+Lead me to Calvary.
+
+## Stanza 4
+May I be willing, Lord, to bear
+Daily my cross for Thee;
+Even Thy cup of grief to share,
+Thou hast borne all for me.
+
+## Stanza 5
+Fill me, O Lord, with Thy desire
+For all that know not Thee;
+Then touch my lips with holy fire,
+To speak of Calvary.

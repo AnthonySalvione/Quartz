@@ -1,6 +1,6 @@
 ## v1
 
-These are the words of the covenant which Jehovah commanded Moses to make with the children of Israel in the land of Moab, besides the covenant that He made with them at Horeb.
+These are the words of the [[Deuteronomy-29.fn#Footnote 1.1 — covenant|covenant]] which Jehovah commanded Moses to make with the children of Israel in the land of Moab, besides the [[Deuteronomy-29.fn#Footnote 1.1 — covenant|covenant]] that He made with them at Horeb.
 
 ## v2
 
@@ -12,7 +12,7 @@ The great trials which your eyes have seen, those great signs and wonders.
 
 ## v4
 
-But Jehovah has not given you a heart to understand and eyes to see and ears to hear until this day.
+But Jehovah has not given you a [[Deuteronomy-29.fn#Footnote 4.1 — heart|heart]] to understand and eyes to see and ears to hear until this day.
 
 ## v5
 
@@ -36,7 +36,7 @@ Therefore keep the words of this covenant and do them in order that you may pros
 
 ## v10
 
-You are standing today, all of you, before Jehovah your God, your leaders of your tribes, your elders, and your officers, every man of Israel,
+You are standing today, all of you, before Jehovah your God, [[Deuteronomy-29.fn#Footnote 10.1 — your|your]] leaders of your tribes, your elders, and your officers, every man of Israel,
 
 ## v11
 
@@ -68,11 +68,11 @@ And you saw their detestable images and their idols, mere wood and stone, silver
 
 ## v18
 
-Beware that there is not among you any man or woman or family or tribe whose heart turns away, even today, from Jehovah our God, to go and serve the gods of those nations; that there is not among you a root bearing poisonous fruit and wormwood;
+Beware that there is not among you any man or woman or family or tribe whose heart turns away, even today, from Jehovah our God, to go and serve the [[Deuteronomy-29.fn#Footnote 18.1 — gods|gods]] of those nations; that there is not among you a [[Deuteronomy-29.fn#Footnote 18.2 — root|root]] bearing poisonous fruit and wormwood;
 
 ## v19
 
-And that when he hears the words of this oath, he blesses himself in his heart, saying, I will have peace, though I walk in the stubbornness of my heart; to the ruin of the moist with the dry.
+And that when he hears the words of this [[Deuteronomy-29.fn#Footnote 19.1 — oath|oath]], he blesses himself in his heart, saying, I will have peace, though I walk in the stubbornness of my heart; [[Deuteronomy-29.fn#Footnote 19.2 — to|to]] the ruin of the moist with the dry.
 
 ## v20
 
@@ -112,4 +112,4 @@ And Jehovah plucked them off their land in anger and in burning wrath and in gre
 
 ## v29
 
-The things that are hidden belong to Jehovah our God; but the things that are revealed, to us and our children forever, that we may do all the words of this law.
+The things that are [[Deuteronomy-29.fn#Footnote 29.1 — hidden|hidden]] belong to Jehovah our God; but the things that are [[Deuteronomy-29.fn#Footnote 29.1 — hidden|revealed]], to us and our children forever, that we may do all the words of this law.

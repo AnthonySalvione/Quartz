@@ -12,11 +12,11 @@ And Moab was very afraid of the people because they were many, and Moab was dist
 
 ## v4
 
-And Moab said to the elders of Midian, This multitude will now lick up all that is around us, as the ox licks up the grass of the field. Now Balak the son of Zippor was king of Moab at that time.
+And [[Numbers-22.fn#Footnote 4.1 — Moab|Moab]] said to the elders of [[Numbers-22.fn#Footnote 4.1 — Moab|Midian]], This multitude will now lick up all that is around us, as the ox licks up the grass of the field. Now Balak the son of Zippor was king of Moab at that time.
 
 ## v5
 
-And he sent messengers to Balaam the son of Beor, to Pethor, which is by the River, to the land of the children of his people, to call him, saying, There is a people here who have come out from Egypt; now they cover the surface of the land and have settled over against me.
+And he sent messengers to [[Numbers-22.fn#Footnote 5.1 — Balaam|Balaam]] the son of Beor, to Pethor, which is by the [[Numbers-22.fn#Footnote 5.2 — River|River]], to the land of the children of his people, to call him, saying, There is a people here who have come out from Egypt; now they cover the surface of the land and have settled over against me.
 
 ## v6
 
@@ -28,7 +28,7 @@ So the elders of Moab and the elders of Midian departed with fees for divination
 
 ## v8
 
-And he said to them, Spend tonight here, and I will bring back word to you as Jehovah speaks to me. And the rulers of Moab stayed with Balaam.
+And he said to them, Spend tonight here, and I will bring back word to you as [[Numbers-22.fn#Footnote 8.1 — Jehovah|Jehovah]] speaks to me. And the rulers of Moab stayed with Balaam.
 
 ## v9
 
@@ -44,7 +44,7 @@ There is a people who came out of Egypt, and they cover the surface of the land.
 
 ## v12
 
-And God said to Balaam, You shall not go with them; you shall not curse the people, for they are blessed.
+And God said to Balaam, You shall not go with them; you shall not [[Numbers-22.fn#Footnote 12.1 — curse|curse]] the people, for they are [[Numbers-22.fn#Footnote 12.1 — curse|blessed]].
 
 ## v13
 
@@ -76,7 +76,7 @@ Now you therefore please stay here tonight also, so that I may know what more Je
 
 ## v20
 
-And God came to Balaam at night and said to him, Since the men have come to call you, rise up; go with them, but only what I speak to you shall you do.
+And God came to Balaam at night and said to him, Since the men have come to call you, rise up; [[Numbers-22.fn#Footnote 20.1 — go|go]] with them, but only what I speak to you shall you do.
 
 ## v21
 
@@ -84,7 +84,7 @@ And Balaam rose up in the morning and saddled his donkey and went with the ruler
 
 ## v22
 
-And God’s anger was kindled because he was going, and the Angel of Jehovah took His stand in the way as an adversary against him. Now he was riding on his donkey, and his two servants were with him.
+And God’s anger was kindled because he was going, and the [[Numbers-22.fn#Footnote 22.1 — Angel|Angel]] of Jehovah took His stand in the way as an adversary against him. Now he was riding on his donkey, and his two servants were with him.
 
 ## v23
 
@@ -116,4 +116,48 @@ And Balaam said to the donkey, Because you have mocked me! If I had a sword in m
 
 ## v30
 
-And the donkey said to Balaam, Am I not your donkey on which you have ridden all your life to this day? Have I ever been accustomed to do so to you? And he said,
+And the donkey said to Balaam, Am I not your donkey on which you have ridden all your life to this day? Have I ever been accustomed to do so to you? And he said, No.
+
+## v31
+
+Then Jehovah opened the eyes of Balaam, and he saw the Angel of Jehovah standing in the way with His drawn sword in His hand, and he bowed his head and fell on his face.
+
+## v32
+
+And the Angel of Jehovah said to him, Why have you struck your donkey these three times? I am here, having come out as an adversary, because your way was unrestrained before Me.
+
+## v33
+
+And the donkey saw Me and turned aside before Me these three times. If she had not turned aside from Me, I would surely have killed you just now and let her live.
+
+## v34
+
+And Balaam said to the Angel of Jehovah, I have sinned, for I did not know that You were standing in the way against me. Now then, if it displeases You, I will turn back.
+
+## v35
+
+And the Angel of Jehovah said to Balaam, Go with the men; but you shall speak only the word that I shall speak to you. So Balaam went with the rulers from Balak.
+
+## v36
+
+And when Balak heard that Balaam was coming, he went out to meet him at the city of Moab, which is on the border of the Arnon, at the farthest point of the border.
+
+## v37
+
+And Balak said to Balaam, Did I not send word urgently to you to call you? Why did you not come to me? Am I not indeed able to honor you?
+
+## v38
+
+And Balaam said to Balak, Here I am; I have come to you now. Am I able to speak anything at all? The word that God puts in my mouth, that I shall speak.
+
+## v39
+
+And Balaam went with Balak, and they came to Kiriath-huzoth.
+
+## v40
+
+And Balak sacrificed oxen and sheep, and sent them to Balaam and to the rulers who were with him.
+
+## v41
+
+And in the morning Balak took Balaam and brought him up to [[Numbers-22.fn#Footnote 41.1 — Bamoth-baal|Bamoth-baal]], and he saw from there the edge of the people.

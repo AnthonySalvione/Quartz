@@ -1,6 +1,6 @@
 ## v1
 
-And Bezalel made the Ark of acacia wood: two and a half cubits was its length; and one and a half cubits, its width; and one and a half cubits, its height.
+And Bezalel made the [[Exodus-37.fn#Footnote 1.1 — Ark|Ark]] of acacia wood: two and a half cubits was its length; and one and a half cubits, its width; and one and a half cubits, its height.
 
 ## v2
 
@@ -36,7 +36,7 @@ And the cherubim spread out their wings above the cover, covering the expiation 
 
 ## v10
 
-And he made the table of acacia wood: two cubits was its length, and a cubit its width, and one and a half cubits its height.
+And he made the [[Exodus-37.fn#Footnote 10.1 — table|table]] of acacia wood: two cubits was its length, and a cubit its width, and one and a half cubits its height.
 
 ## v11
 
@@ -64,7 +64,7 @@ And he made the utensils which were to be upon the table: its plates and its cup
 
 ## v17
 
-And he made the lampstand of pure gold. He made the lampstand with its base and its shaft of beaten work; its cups, its calyxes, and its blossom buds were of one piece with it.
+And he made the [[Exodus-37.fn#Footnote 17.1 — lampstand|lampstand]] of pure gold. He made the lampstand with its base and its shaft of beaten work; its cups, its calyxes, and its blossom buds were of one piece with it.
 
 ## v18
 
@@ -96,7 +96,7 @@ He made it of a talent of pure gold, and all its utensils.
 
 ## v25
 
-And he made the altar of incense of acacia wood; a cubit was its length, and a cubit, its width, square; and two cubits, its height; its horns were of one piece with it.
+And he made the [[Exodus-37.fn#Footnote 25.1 — altar|altar]] of incense of acacia wood; a cubit was its length, and a cubit, its width, square; and two cubits, its height; its horns were of one piece with it.
 
 ## v26
 
@@ -112,4 +112,4 @@ And he made the poles of acacia wood and overlaid them with gold.
 
 ## v29
 
-And he made the holy anointing oil and the pure fragrant incense, the work of a compounder.
+And he made the holy [[Exodus-37.fn#Footnote 29.1 — anointing|anointing]] oil and the pure [[Exodus-37.fn#Footnote 29.1 — anointing|fragrant]] incense, the work of a compounder.

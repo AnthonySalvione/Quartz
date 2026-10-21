@@ -72,7 +72,7 @@ Being stationed until then at the king’s gate on the east. These were the gate
 
 ## v19
 
-And Shallum the son of Kore, the son of Ebiasaph, the son of Korah, and his brothers of his father’s house, the Korahites, were over the work of the service as keepers of the thresholds of the tent; and their fathers had been over the camp of Jehovah, keepers of the entrance.
+And Shallum the son of Kore, the son of Ebiasaph, the son of [[1 Chronicles-09.fn#Footnote 19.1 — Korah|Korah]], and his brothers of his father’s house, the Korahites, were over the work of the service as keepers of the thresholds of the tent; and their fathers had been over the camp of Jehovah, keepers of the entrance.
 
 ## v20
 
@@ -160,7 +160,7 @@ And the son of Jonathan was Merib-baal; and Merib-baal begot Micah.
 
 ## v41
 
-And the sons of Micah: Pithon and Melech and Tahrea and Ahaz.
+And the sons of Micah: Pithon and Melech and Tahrea [[1 Chronicles-09.fn#Footnote 41.1 — and|and]] Ahaz.
 
 ## v42
 

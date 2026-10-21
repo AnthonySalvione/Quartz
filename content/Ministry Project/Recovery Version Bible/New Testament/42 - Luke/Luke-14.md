@@ -3,11 +3,11 @@ Author: Luke
 ---
 ## v1
 
-And as He went into the house of one of the rulers of the Pharisees on a Sabbath to eat bread, they were watching Him closely.
+And as He went into the house of one of the rulers of the Pharisees on a Sabbath to eat bread, they were [[Luke-14.fn#Footnote 1.1 — watching|watching]] Him closely.
 
 ## v2
 
-And behold, there was before Him a certain man suffering from dropsy.
+And behold, there was before Him a certain man suffering from [[Luke-14.fn#Footnote 2.1 — dropsy|dropsy]].
 
 ## v3
 
@@ -19,7 +19,7 @@ But they were quiet. And He took hold of him and healed him and sent him away.
 
 ## v5
 
-And He said to them, Which of you having a donkey or an ox that falls into a well will not immediately pull it out on the Sabbath day?
+And He said to them, Which of you having a [[Luke-14.fn#Footnote 5.1 — donkey|donkey]] or an ox that falls into a well will not immediately pull it out on the Sabbath day?
 
 ## v6
 
@@ -51,11 +51,11 @@ And He said also to the one who had invited Him, When you make a morning meal or
 
 ## v13
 
-But when you give a reception, invite the poor, the crippled, the lame, the blind,
+But when you give a reception, invite the [[Luke-14.fn#Footnote 13.1 — poor|poor]], the crippled, the lame, the blind,
 
 ## v14
 
-And you will be blessed, because they do not have anything with which to repay you; for it will be repaid to you in the resurrection of the righteous.
+And you will be blessed, because they do not have anything with which to repay you; for it will be repaid to you in the [[Luke-14.fn#Footnote 14.1 — resurrection|resurrection]] of the righteous.
 
 ## v15
 
@@ -63,7 +63,7 @@ And one of those reclining at table with Him, hearing these things, said to Him,
 
 ## v16
 
-And He said to him, A certain man was making a great dinner and invited many;
+And He said to him, A certain man was making a [[Luke-14.fn#Footnote 16.1 — great|great]] dinner and invited many;
 
 ## v17
 
@@ -103,15 +103,15 @@ And there were great crowds going along with Him, and He turned and said to them
 
 ## v26
 
-If anyone comes to Me and does not hate his own father and mother and wife and children and brothers and sisters, and moreover, even his own soul-life, he cannot be My disciple.
+[[Luke-14.fn#Footnote 26.1 — If|If]] anyone comes to Me and does not hate his own father and mother and wife and children and brothers and sisters, and moreover, even his own soul-life, he cannot be My disciple.
 
 ## v27
 
-Whoever does not carry his own cross and come after Me cannot be My disciple.
+Whoever does not carry his own [[Luke-14.fn#Footnote 27.1 — cross|cross]] and come after Me cannot be My disciple.
 
 ## v28
 
-For which of you, wanting to build a tower, does not first sit down and calculate the cost, whether he has enough to complete it?
+For which of you, wanting to build a tower, does not first sit down and calculate the cost, whether he has [[Luke-14.fn#Footnote 28.1 — enough|enough]] to complete it?
 
 ## v29
 
@@ -135,7 +135,7 @@ In the same way therefore everyone of you who does not forsake all his own posse
 
 ## v34
 
-Therefore salt is good; but if even the salt becomes tasteless, with what will its saltiness be restored?
+[[Luke-14.fn#Footnote 34.1 — Therefore|Therefore]] [[Luke-14.fn#Footnote 34.2 — salt|salt]] is good; but if even the salt becomes tasteless, with what will its saltiness be restored?
 
 ## v35
 

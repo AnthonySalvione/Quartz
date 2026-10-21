@@ -4,7 +4,7 @@ And Jacob went on his way, and the angels of God met him.
 
 ## v2
 
-And Jacob said when he saw them, This is God’s camp. So he called the name of that place Mahanaim.
+And Jacob said when he saw them, This is God’s camp. So he called the name of that place [[Genesis-32.fn#Footnote 2.1 — Mahanaim|Mahanaim]].
 
 ## v3
 
@@ -48,7 +48,7 @@ But You have said, I will surely do you good and make your seed like the sand of
 
 ## v13
 
-And he spent that night there. Then from what he had with him he took a present for Esau his brother:
+And he spent that night there. Then from what he had with him he took a [[Genesis-32.fn#Footnote 13.1 — present|present]] for Esau his brother:
 
 ## v14
 
@@ -92,35 +92,35 @@ And he took them and sent them over the stream and sent over what he had.
 
 ## v24
 
-And Jacob was left alone, and a man wrestled with him until the break of dawn.
+And Jacob was left alone, and a [[Genesis-32.fn#Footnote 24.1 — man|man]] wrestled with him until the break of dawn.
 
 ## v25
 
-And when the man saw that He did not prevail against him, He touched the socket of his hip; and the socket of Jacob’s hip was dislocated as he wrestled with Him.
+And when [[Genesis-32.fn#Footnote 25.1 — the|the]] man saw that He did not prevail against him, He [[Genesis-32.fn#Footnote 25.2 — touched|touched]] the socket of his hip; and the socket of Jacob’s hip was dislocated as he wrestled with Him.
 
 ## v26
 
-And the man said, Let Me go, for the dawn is breaking. But Jacob said, I will not let You go unless You bless me.
+And the [[Genesis-32.fn#Footnote 26.1 — man|man]] said, Let Me go, for the dawn is breaking. But [[Genesis-32.fn#Footnote 26.2 — Jacob|Jacob]] said, I will not let You go unless You bless me.
 
 ## v27
 
-And He said to him, What is your name? And he said, Jacob.
+And He said to him, [[Genesis-32.fn#Footnote 27.1 — What|What]] is your name? And he said, Jacob.
 
 ## v28
 
-And He said, Your name will no longer be called Jacob, but Israel; for you have struggled with God and with men, and have prevailed.
+And He said, Your name will no longer be called Jacob, but [[Genesis-32.fn#Footnote 28.1 — Israel|Israel]]; for you have struggled with God and with men, and have prevailed.
 
 ## v29
 
-And Jacob asked Him and said, Please tell me Your name. But He said, Why is it that you ask My name? And He blessed him there.
+And Jacob asked Him and said, Please tell me Your name. But He said, Why is it that you ask My name? And He blessed him [[Genesis-32.fn#Footnote 29.1 — there|there]].
 
 ## v30
 
-And Jacob called the name of the place Peniel, for, he said, I have seen God face to face, and yet my life has been preserved.
+And Jacob called the name of the place [[Genesis-32.fn#Footnote 30.1 — Peniel|Peniel]], for, he said, I have seen God face to face, and yet my life has been preserved.
 
 ## v31
 
-And the sun rose upon him as he crossed over Penuel, and he limped because of his hip.
+And the [[Genesis-32.fn#Footnote 31.1 — sun|sun]] rose upon him as he crossed over Penuel, and he limped because of his hip.
 
 ## v32
 

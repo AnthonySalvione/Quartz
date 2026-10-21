@@ -1,6 +1,6 @@
 ## v1
 
-After these things King Ahasuerus promoted Haman the son of Hammedatha the Agagite, and he advanced him and set his seat above all the princes who were with him.
+After these things King Ahasuerus promoted Haman the son of Hammedatha the [[Esther-03.fn#Footnote 1.1 — Agagite|Agagite]], and he [[Esther-03.fn#Footnote 1.2 — advanced|advanced]] him and set his seat above all the princes who were with him.
 
 ## v2
 

@@ -1,6 +1,6 @@
 ## v1
 
-Can you draw out leviathan with a hook,  
+Can you draw out [[Job-41.fn#Footnote 1.1 — leviathan|leviathan]] with a hook,  
 Or press down his tongue with a cord?
 
 ## v2
@@ -120,7 +120,7 @@ Indeed as firm as the lower millstone.
 
 ## v25
 
-At his rising up, the mighty fear;  
+At his rising up, [[Job-41.fn#Footnote 25.1 — the|the]] mighty fear;  
 They are beside themselves with consternation.
 
 ## v26
@@ -146,7 +146,7 @@ He laughs at the quivering javelin.
 ## v30
 
 His underparts are like sharp potsherds;  
-He spreads himself like a threshing sledge upon the mire.
+He spreads himself like a [[Job-41.fn#Footnote 30.1 — threshing|threshing]] sledge upon the mire.
 
 ## v31
 

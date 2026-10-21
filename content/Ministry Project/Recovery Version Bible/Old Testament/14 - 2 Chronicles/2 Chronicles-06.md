@@ -32,7 +32,7 @@ But Jehovah said to David my father, Because it was on your heart to build a hou
 
 ## v9
 
-However you will not build the house, but your son, who will come forth from your loins, he will build the house for My name.
+However you will not build the house, but your [[2 Chronicles-06.fn#Footnote 9.1 — son|son]], who will come forth from your loins, he will build the house for My name.
 
 ## v10
 
@@ -108,7 +108,7 @@ Then hear in the heavens and forgive the sin of Your servants and of Your people
 
 ## v28
 
-If there is famine in the land, if there is pestilence, if there is blight or mildew, swarming locust or consuming locust, if their enemies besiege them in the land of their cities, whatever plague, and whatever sickness there is;
+If there is famine in the land, if there is pestilence, if there is blight or mildew, swarming locust or consuming locust, if their enemies besiege them in the land of their [[2 Chronicles-06.fn#Footnote 28.1 — cities|cities]], whatever plague, and whatever sickness there is;
 
 ## v29
 

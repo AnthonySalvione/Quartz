@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses on Mount Sinai, saying,
 
 ## v2
 
-Speak to the children of Israel, and say to them, When you come into the land which I am giving you, the land shall observe a Sabbath to Jehovah.
+Speak to the children of Israel, and say to them, When you come into the land which I am giving you, the land shall observe a [[Leviticus-25.fn#Footnote 2.1 — Sabbath|Sabbath]] to Jehovah.
 
 ## v3
 
@@ -12,7 +12,7 @@ Six years you shall sow your field, and six years you shall prune your vineyard 
 
 ## v4
 
-But in the seventh year the land shall have a Sabbath of complete rest, a Sabbath to Jehovah; you shall not sow your field nor prune your vineyard.
+But in the seventh year the land shall have a Sabbath of complete rest, a Sabbath to Jehovah; you shall [[Leviticus-25.fn#Footnote 4.1 — not|not]] sow your field nor prune your vineyard.
 
 ## v5
 
@@ -20,7 +20,7 @@ The aftergrowth of your harvest you shall not reap, and the grapes of your unpru
 
 ## v6
 
-And the Sabbath produce of the land shall be for food for you; for you and for your male slaves and for your female slaves, and for your hired servant and for your stranger, who sojourns with you,
+And the Sabbath produce of the land shall be for [[Leviticus-25.fn#Footnote 6.1 — food|food]] for you; for you and for your male slaves and for your female slaves, and for your hired servant and for your stranger, who sojourns with you,
 
 ## v7
 
@@ -28,19 +28,19 @@ And for your cattle and for the animals that are in your land, shall all its pro
 
 ## v8
 
-And you shall count off seven Sabbaths of years to yourself, seven times seven years, so that you have the time of seven Sabbaths of years, that is, forty-nine years.
+And you shall count off [[Leviticus-25.fn#Footnote 8.1 — seven|seven]] Sabbaths of years to yourself, seven times seven years, so that you have the time of seven Sabbaths of years, that is, forty-nine years.
 
 ## v9
 
-Then you shall sound aloud the ram’s horn in the seventh month on the tenth day of the month; on the Day of Expiation you shall sound the trumpet throughout all your land.
+Then you shall sound aloud the ram’s horn in the seventh month on the tenth day of the month; on the [[Leviticus-25.fn#Footnote 9.1 — Day|Day]] of Expiation you shall sound the trumpet throughout all your land.
 
 ## v10
 
-And you shall sanctify the fiftieth year, and proclaim liberty throughout the land to all its inhabitants. It shall be a jubilee for you; and each of you shall return to his possession, and each of you shall return to his family.
+And you shall sanctify the [[Leviticus-25.fn#Footnote 10.1 — fiftieth|fiftieth]] year, and proclaim [[Leviticus-25.fn#Footnote 10.2 — liberty|liberty]] throughout the land to all its inhabitants. It shall be a [[Leviticus-25.fn#Footnote 10.3 — jubilee|jubilee]] for you; and each of you shall return to his [[Leviticus-25.fn#Footnote 10.2 — liberty|possession]], and each of you shall return to his [[Leviticus-25.fn#Footnote 10.2 — liberty|family]].
 
 ## v11
 
-The fiftieth year shall be a jubilee for you; you shall not sow nor reap its aftergrowth nor gather from its unpruned vines.
+The fiftieth year shall be a jubilee for you; you shall [[Leviticus-25.fn#Footnote 11.1 — not|not]] sow nor reap its aftergrowth nor gather from its unpruned vines.
 
 ## v12
 
@@ -80,7 +80,7 @@ And if you should say, What shall we eat the seventh year if we do not sow or ga
 
 ## v21
 
-Then I will command My blessing for you in the sixth year, and it shall bring forth produce for three years.
+Then I will command My blessing for you in the sixth year, and it shall bring forth produce for [[Leviticus-25.fn#Footnote 21.1 — three|three]] years.
 
 ## v22
 
@@ -88,11 +88,11 @@ When you sow in the eighth year you will eat of the old produce until the ninth 
 
 ## v23
 
-And the land shall not be sold in perpetuity, because the land is Mine; for you are strangers and sojourners with Me.
+And the land shall not be sold in perpetuity, because the land is [[Leviticus-25.fn#Footnote 23.1 — Mine|Mine]]; for you are strangers and sojourners with Me.
 
 ## v24
 
-And in all the land of your possession you shall provide for the redemption of the land.
+And in all the land of your possession you shall provide for the [[Leviticus-25.fn#Footnote 24.1 — redemption|redemption]] of the land.
 
 ## v25
 
@@ -112,7 +112,7 @@ But if he has not found sufficient means to restore it for himself, then what he
 
 ## v29
 
-And if anyone sells a dwelling house in a walled city, then he may redeem it until the end of a year from its sale; for a full year he shall have the right of redemption.
+And if anyone sells a dwelling [[Leviticus-25.fn#Footnote 29.1 — house|house]] in a walled city, then he may redeem it until the end of a year from its sale; for a full year he shall have the right of redemption.
 
 ## v30
 
@@ -120,11 +120,11 @@ But if it is not redeemed within the space of a full year, then the house that i
 
 ## v31
 
-But the houses of the villages which have no wall all around them shall be reckoned with the fields of the country; they may be redeemed, and they shall go out in the jubilee.
+But the [[Leviticus-25.fn#Footnote 31.1 — houses|houses]] of the villages which have no wall all around them shall be reckoned with the fields of the country; they may be redeemed, and they shall go out in the jubilee.
 
 ## v32
 
-As for the cities of the Levites, that is, the houses of the cities of their possession, the Levites shall have the permanent right of redemption.
+As for the cities of the Levites, that is, the [[Leviticus-25.fn#Footnote 32.1 — houses|houses]] of the cities of their possession, the Levites shall have the permanent right of redemption.
 
 ## v33
 
@@ -132,11 +132,11 @@ And what can be redeemed from the Levites, that is, a house that was sold in a c
 
 ## v34
 
-But the field of the suburbs of their cities may not be sold, for it is their perpetual possession.
+But the [[Leviticus-25.fn#Footnote 34.1 — field|field]] of the suburbs of their cities may not be sold, for it is their perpetual possession.
 
 ## v35
 
-And if your brother becomes poor, and he is unable to support himself as he lives beside you, then you shall support him, like a stranger and a sojourner, so that he may live beside you.
+And if your [[Leviticus-25.fn#Footnote 35.1 — brother|brother]] becomes poor, and [[Leviticus-25.fn#Footnote 35.2 — he|he]] is unable to support himself as he lives beside you, then you shall support him, like a stranger and a sojourner, so that he may live beside you.
 
 ## v36
 
@@ -152,7 +152,7 @@ I am Jehovah your God, who brought you out of the land of Egypt to give you the 
 
 ## v39
 
-And if your brother beside you becomes poor, and he sells himself to you, you shall not make him serve as a slave.
+And if your brother beside you becomes poor, and he [[Leviticus-25.fn#Footnote 39.1 — sells|sells]] himself to you, you shall not make him serve as a slave.
 
 ## v40
 
@@ -172,7 +172,7 @@ You shall not rule over him with severity, but you shall fear your God.
 
 ## v44
 
-And as for your male slaves and female slaves whom you may have, they shall come from the nations that are around you; from them you may buy male slaves and female slaves.
+And as for your male slaves and female slaves whom you may have, they shall come from the [[Leviticus-25.fn#Footnote 44.1 — nations|nations]] that are around you; from them you may buy male slaves and female slaves.
 
 ## v45
 
@@ -184,7 +184,7 @@ And you shall make them an inheritance for your children after you, to receive a
 
 ## v47
 
-And if a stranger or sojourner with you can afford it, and your brother beside him becomes poor and sells himself to the stranger or sojourner with you, or to the descendants of the stranger’s family;
+And if a stranger or sojourner with you can afford it, and your [[Leviticus-25.fn#Footnote 47.1 — brother|brother]] beside him becomes poor and sells himself to the stranger or sojourner with you, or to the descendants of the stranger’s family;
 
 ## v48
 

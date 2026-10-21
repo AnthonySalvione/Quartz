@@ -8,7 +8,7 @@ And when they had journeyed from Rephidim and had come to the wilderness of Sina
 
 ## v3
 
-And Moses went up to God, and Jehovah called to him out of the mountain, saying, Thus you shall say to the house of Jacob and tell the children of Israel:
+And Moses [[Exodus-19.fn#Footnote 3.1 — went|went]] up to God, and Jehovah called to him out of the mountain, saying, Thus you shall say to the house of Jacob and tell the children of Israel:
 
 ## v4
 
@@ -16,11 +16,11 @@ You have seen what I did to the Egyptians and how I bore you on eagles’ wings 
 
 ## v5
 
-Now therefore if you will indeed obey My voice and keep My covenant, then you shall be My personal treasure from among all peoples, for all the earth is Mine.
+Now therefore if you will indeed obey My voice and keep My covenant, then you shall be My [[Exodus-19.fn#Footnote 5.1 — personal|personal]] treasure from among all peoples, for all the earth is Mine.
 
 ## v6
 
-And you shall be to Me a kingdom of priests and a holy nation. These are the words that you shall speak to the children of Israel.
+And you shall be to Me a [[Exodus-19.fn#Footnote 6.1 — kingdom|kingdom]] of priests and a [[Exodus-19.fn#Footnote 6.1 — kingdom|holy]] nation. These are the words that you shall speak to the children of Israel.
 
 ## v7
 
@@ -28,7 +28,7 @@ So Moses came and called for the elders of the people and set before them all th
 
 ## v8
 
-And all the people answered together and said, All that Jehovah has spoken we will do. And Moses brought back the words of the people to Jehovah.
+And all the people answered together and said, [[Exodus-19.fn#Footnote 8.1 — All|All]] that Jehovah has spoken we will do. And Moses brought back the words of the people to Jehovah.
 
 ## v9
 
@@ -36,15 +36,15 @@ And Jehovah said to Moses, I am coming to you in a thick cloud, that the people 
 
 ## v10
 
-And Jehovah said to Moses, Go to the people, and sanctify them today and tomorrow; and have them wash their garments,
+And Jehovah said to Moses, Go to the people, and [[Exodus-19.fn#Footnote 10.1 — sanctify|sanctify]] them today and tomorrow; and have them wash their garments,
 
 ## v11
 
-And be ready for the third day; for on the third day Jehovah will come down on Mount Sinai in the sight of all the people.
+And be ready for the [[Exodus-19.fn#Footnote 11.1 — third|third]] day; for on the third day Jehovah will come down on [[Exodus-19.fn#Footnote 11.2 — Mount|Mount]] Sinai in the sight of all the people.
 
 ## v12
 
-And you shall set limits for the people all around, saying, Be careful that you do not go up on the mountain or touch the border of it. Whoever touches the mountain shall surely be put to death.
+And you shall set [[Exodus-19.fn#Footnote 12.1 — limits|limits]] for the people all around, saying, Be careful that you do not go up on the mountain or touch the border of it. Whoever touches the mountain shall surely be put to death.
 
 ## v13
 
@@ -72,7 +72,7 @@ Now the whole of Mount Sinai smoked because Jehovah descended upon it in fire, a
 
 ## v19
 
-And as the sound of the trumpet grew louder and louder, Moses spoke, and God answered him in thunder.
+And as the sound of the trumpet grew louder and louder, Moses spoke, and God answered him [[Exodus-19.fn#Footnote 19.1 — in|in]] thunder.
 
 ## v20
 

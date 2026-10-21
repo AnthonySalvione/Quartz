@@ -12,7 +12,7 @@ And the sons of Gomer: Ashkenaz and Riphath and Togarmah.
 
 ## v4
 
-And the sons of Javan: Elishah and Tarshish, Kittim and Rodanim.
+And the sons of Javan: Elishah and Tarshish, Kittim and [[Genesis-10.fn#Footnote 4.1 — Rodanim|Rodanim]].
 
 ## v5
 
@@ -20,7 +20,7 @@ From these the islands and coastal regions of the nations were separated into th
 
 ## v6
 
-And the sons of Ham: Cush and Mizraim and Put and Canaan.
+And the sons of Ham: Cush and [[Genesis-10.fn#Footnote 6.1 — Mizraim|Mizraim]] and Put and Canaan.
 
 ## v7
 
@@ -28,7 +28,7 @@ And the sons of Cush: Seba and Havilah and Sabtah and Raamah and Sabtecha. And t
 
 ## v8
 
-And Cush begot Nimrod: He began to be a mighty one on the earth.
+And Cush begot [[Genesis-10.fn#Footnote 8.1 — Nimrod|Nimrod]]: He began to be a mighty one on the earth.
 
 ## v9
 
@@ -96,7 +96,7 @@ And Arpachshad begot Shelah, and Shelah begot Eber.
 
 ## v25
 
-And to Eber were born two sons: The name of the one was Peleg, for in his days the earth was divided; and his brother’s name was Joktan.
+And to Eber were born two sons: The name of the one was [[Genesis-10.fn#Footnote 25.1 — Peleg|Peleg]], for in his days the earth was divided; and his brother’s name was Joktan.
 
 ## v26
 

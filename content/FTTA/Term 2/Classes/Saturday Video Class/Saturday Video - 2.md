@@ -3,7 +3,6 @@ speaker:
   - Witness Lee
 hymn:
   - "[[Hymn-1232]]"
-reading: None
 class: Saturday Video Class
 ---
 # Life-study of Ephesians

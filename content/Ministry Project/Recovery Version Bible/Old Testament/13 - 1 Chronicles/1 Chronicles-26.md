@@ -48,7 +48,7 @@ To these divisions of the doorkeepers, the chief men, were given duties like tho
 
 ## v13
 
-And they cast lots, the small as well as the great, according to their fathers’ houses, for every gate.
+And they cast [[1 Chronicles-26.fn#Footnote 13.1 — lots|lots]], the small as well as the great, according to their fathers’ houses, for every gate.
 
 ## v14
 

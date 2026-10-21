@@ -8,7 +8,7 @@ Take for yourselves twelve men from among the people, one man from each tribe;
 
 ## v3
 
-And command them, saying, Take up for yourselves from here out of the middle of the Jordan, from the place where the priests’ feet stood firm, twelve stones; and bring them over with you, and lay them down in the place where you lodge tonight.
+And command them, saying, Take up for yourselves from here out of the middle of the Jordan, from the place where the priests’ feet stood firm, [[Joshua-04.fn#Footnote 3.1 — twelve|twelve]] stones; and bring them over with you, and lay them down in the place where you lodge tonight.
 
 ## v4
 
@@ -32,7 +32,7 @@ And the children of Israel did as Joshua commanded and took up twelve stones fro
 
 ## v9
 
-Then Joshua erected twelve stones in the middle of the Jordan, in the place where the feet of the priests who carried the Ark of the Covenant had stood; and they are there to this day.
+Then Joshua erected [[Joshua-04.fn#Footnote 9.1 — twelve|twelve]] stones in the middle of the Jordan, in the place where the feet of the priests who carried the Ark of the Covenant had stood; and they are there to this day.
 
 ## v10
 
@@ -48,7 +48,7 @@ And the sons of Reuben and the sons of Gad and the half-tribe of Manasseh crosse
 
 ## v13
 
-About forty thousand equipped for war crossed over before Jehovah into the plains of Jericho for battle.
+About forty thousand equipped for [[Joshua-04.fn#Footnote 13.1 — war|war]] crossed over before Jehovah into the plains of Jericho for battle.
 
 ## v14
 
@@ -76,7 +76,7 @@ And the people came up from the Jordan on the tenth day of the first month, and 
 
 ## v20
 
-And those twelve stones, which they had taken from the Jordan, Joshua erected in Gilgal.
+And those twelve stones, which they had taken from the Jordan, Joshua [[Joshua-04.fn#Footnote 20.1 — erected|erected]] in Gilgal.
 
 ## v21
 

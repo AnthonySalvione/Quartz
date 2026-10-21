@@ -1,6 +1,6 @@
 ## v1
 
-When David’s time to die drew near, he commanded Solomon his son, saying,
+When [[1 Kings-02.fn#Footnote 1.1 — David’s|David’s]] time to die drew near, he commanded [[1 Kings-02.fn#Footnote 1.1 — David’s|Solomon]] his son, saying,
 
 ## v2
 
@@ -16,7 +16,7 @@ That Jehovah may establish His word which He spoke concerning me, saying, If you
 
 ## v5
 
-Furthermore you know what Joab the son of Zeruiah did to me, by that which he did to the two captains of the armies of Israel, to Abner the son of Ner and to Amasa the son of Jether, whom he slew; and he shed the blood of war in peace and put the blood of war upon his girdle around his loins and upon his sandals that are on his feet.
+Furthermore you know what [[1 Kings-02.fn#Footnote 5.1 — Joab|Joab]] the son of Zeruiah did to me, by that which he did to the two captains of the armies of Israel, to Abner the son of Ner and to Amasa the son of Jether, whom he slew; and he shed the blood of war in peace and put the blood of war upon his girdle around his loins and upon his sandals that are on his feet.
 
 ## v6
 

@@ -80,7 +80,7 @@ After all this, when Josiah had set the temple in order, Neco the king of Egypt 
 
 ## v21
 
-And Neco sent messengers to him, saying, What have I to do with you, O king of Judah? I have not come up against you today but against the house with which I am at war, and God has commanded me to hurry. Refrain for your own sake from interfering with God, who is with me, and He will not destroy you.
+And [[2 Chronicles-35.fn#Footnote 21.1 — Neco|Neco]] sent messengers to him, saying, What have I to do with you, O king of Judah? I have not come up against you today but against the house with which I am at war, and God has commanded me to hurry. Refrain for your own sake from interfering with God, who is with me, and He will not destroy you.
 
 ## v22
 

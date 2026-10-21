@@ -1,6 +1,6 @@
 ## v1
 
-Then Boaz went up to the gate and sat there. And just then the kinsman of whom Boaz had spoken came by. And Boaz said, Turn aside and sit here, friend. And he turned aside and sat down.
+Then Boaz went up to the gate and sat there. And just then the kinsman of whom Boaz had spoken came by. And [[Ruth-04.fn#Footnote 1.1 — Boaz|Boaz]] said, Turn aside and sit here, [[Ruth-04.fn#Footnote 1.2 — friend|friend]]. And he turned aside and sat down.
 
 ## v2
 
@@ -16,7 +16,7 @@ So I thought that I should disclose this to you and say, Buy it in the presence 
 
 ## v5
 
-Then Boaz said, On the day you buy the field from Naomi’s hand, you must also acquire Ruth the Moabitess, the wife of the dead man, in order to raise up the dead man’s name upon his inheritance.
+Then Boaz said, On the day you buy the field from Naomi’s hand, [[Ruth-04.fn#Footnote 5.1 — you|you]] must also acquire Ruth the Moabitess, the wife of the dead man, in order to raise up the dead man’s name upon his inheritance.
 
 ## v6
 
@@ -44,11 +44,11 @@ And all the people who were in the gate and the elders said, We are witnesses. M
 
 ## v12
 
-And may your house be like the house of Perez, whom Tamar bore to Judah, through the seed that Jehovah gives you by this young woman.
+And may your house be like the house of [[Ruth-04.fn#Footnote 12.1 — Perez|Perez]], whom Tamar bore to Judah, through the seed that Jehovah gives you by this young woman.
 
 ## v13
 
-So Boaz took Ruth, and she became his wife; and he went in unto her, and Jehovah made her conceive; and she bore a son.
+So Boaz took [[Ruth-04.fn#Footnote 13.1 — Ruth|Ruth]], and she became his wife; and he went in unto her, and Jehovah made her conceive; and she bore a son.
 
 ## v14
 
@@ -68,7 +68,7 @@ And the women neighbors gave him a name, saying, A son has been born to Naomi; a
 
 ## v18
 
-Now these are the generations of Perez: Perez begot Hezron,
+Now these are the [[Ruth-04.fn#Footnote 18.1 — generations|generations]] of Perez: Perez begot Hezron,
 
 ## v19
 
@@ -84,4 +84,4 @@ And Salmon begot Boaz, and Boaz begot Obed,
 
 ## v22
 
-And Obed begot Jesse, and Jesse begot David.
+And Obed begot Jesse, and Jesse begot [[Ruth-04.fn#Footnote 22.1 — David|David]].

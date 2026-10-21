@@ -1,0 +1,50 @@
+---
+Category:
+  - Praise of the Lord
+Subcategory:
+  - His All-Inclusiveness
+Lyricist:
+  - Edith Margaret Clarkson
+Melody:
+  - John Darwall
+---
+# We come, O Christ, to Thee
+## Stanza 1
+We come, O Christ, to Thee,
+True Son of God and man,
+By whom all things consist,
+In whom all life began:
+In Thee alone we live and move
+And have our being in Thy love.
+
+## Stanza 2
+Thou art the Way to God,
+Thy blood our ransom paid;
+In Thee we face our Judge
+And Maker unafraid.
+Before the Throne absolved we stand:
+Thy love has met Thy law's demand.
+
+## Stanza 3
+Thou art the living Truth!
+All wisdom dwells in Thee,
+Thou Source of every skill,
+Eternal Verity!
+Thou great I Am! In Thee we rest,
+True answer to our every quest.
+
+## Stanza 4
+Thou only art true Life,
+To know Thee is to live
+The more abundant life
+That earth can never give:
+O Risen Lord! We live in Thee
+And Thou in us eternally!
+
+## Stanza 5
+We worship Thee Lord Christ,
+Our Savior and our King,
+To Thee our youth and strength
+Adoringly we bring:
+So fill our hearts that men may see
+Thy life in us and turn to Thee!

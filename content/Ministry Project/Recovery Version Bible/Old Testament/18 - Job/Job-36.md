@@ -9,7 +9,7 @@ For there is more to say for God.
 
 ## v3
 
-I will bring my knowledge from afar  
+I will bring my [[Job-36.fn#Footnote 3.1 — knowledge|knowledge]] from afar  
 And will ascribe righteousness to my Maker.
 
 ## v4

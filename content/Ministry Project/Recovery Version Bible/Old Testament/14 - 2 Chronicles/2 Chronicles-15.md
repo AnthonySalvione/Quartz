@@ -28,7 +28,7 @@ But you be strong and do not let your hands fail, for there is reward for your l
 
 ## v8
 
-And when Asa heard these words, that is, the prophecy of Oded the prophet, he strengthened himself and put away the detestable things from all the land of Judah and Benjamin and from the cities that he had taken in the hill country of Ephraim. And he restored the altar of Jehovah, which was before the portico of Jehovah.
+And when Asa heard these words, that is, the prophecy of Oded the prophet, he strengthened himself and put away the [[2 Chronicles-15.fn#Footnote 8.1 — detestable|detestable]] things from all the land of Judah and Benjamin and from the cities that he had taken in the hill country of Ephraim. And he restored the altar of Jehovah, which was before the portico of Jehovah.
 
 ## v9
 
@@ -60,7 +60,7 @@ And all Judah rejoiced over the oath, for with all their heart they swore and wi
 
 ## v16
 
-And he also removed Maacah, the mother of Asa the king, from being queen mother because she had made for Asherah an abominable image; and Asa cut down her abominable image and crushed it to powder and burned it at the brook Kidron.
+And he also removed Maacah, the mother of Asa the king, from being queen mother because she had made for [[2 Chronicles-15.fn#Footnote 16.1 — Asherah|Asherah]] an abominable image; and Asa cut down her abominable image and crushed it to powder and burned it at the brook Kidron.
 
 ## v17
 

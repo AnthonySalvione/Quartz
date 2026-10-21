@@ -20,15 +20,15 @@ And the land of the Gebalites and all Lebanon toward the rising of the sun, from
 
 ## v6
 
-All the inhabitants of the hill country from Lebanon to Misrephoth-maim, all the Sidonians. I Myself will drive them out before the children of Israel; nevertheless allot it to Israel as an inheritance as I have commanded you.
+All the inhabitants of the hill country from Lebanon to Misrephoth-maim, all the Sidonians. I Myself will drive them out before the children of Israel; nevertheless [[Joshua-13.fn#Footnote 6.1 — allot|allot]] it to Israel as an inheritance as I have commanded you.
 
 ## v7
 
-And now divide this land as an inheritance to the nine tribes and the half-tribe of Manasseh.
+And now [[Joshua-13.fn#Footnote 7.1 — divide|divide]] this land as an inheritance to the nine tribes and the half-tribe of Manasseh.
 
 ## v8
 
-With the other half-tribe of Manasseh the Reubenites and the Gadites received their inheritance, which Moses gave to them across the Jordan on the east, as Moses the servant of Jehovah gave to them:
+With [[Joshua-13.fn#Footnote 8.1 — the|the]] other half-tribe of Manasseh the Reubenites and the Gadites received their inheritance, which Moses gave to them across the Jordan on the east, as Moses the servant of Jehovah gave to them:
 
 ## v9
 
@@ -52,7 +52,7 @@ Yet the children of Israel did not dispossess the Geshurites and the Maacathites
 
 ## v14
 
-However to the tribe of Levi he did not give an inheritance; the offerings of Jehovah the God of Israel by fire are their inheritance, as He had spoken to him.
+However to the tribe of Levi he did not give an inheritance; the [[Joshua-13.fn#Footnote 14.1 — offerings|offerings]] of Jehovah the God of Israel by fire are their inheritance, as He had spoken to him.
 
 ## v15
 
@@ -116,7 +116,7 @@ And Moses gave an inheritance to the half-tribe of Manasseh; and it was for the 
 
 ## v30
 
-And their border was from Mahanaim and all Bashan, all the kingdom of Og the king of Bashan, and all the tent villages of Jair, which are in Bashan, sixty cities;
+And their border was from Mahanaim and all Bashan, all the kingdom of Og the king of Bashan, and all the [[Joshua-13.fn#Footnote 30.1 — tent|tent]] villages of Jair, which are in Bashan, sixty cities;
 
 ## v31
 
@@ -128,4 +128,4 @@ These are what Moses gave as inheritances in the plains of Moab across the Jorda
 
 ## v33
 
-But to the tribe of Levi Moses did not give an inheritance; Jehovah the God of Israel is their inheritance, as He had spoken to them.
+But to the tribe of Levi Moses did not give an inheritance; [[Joshua-13.fn#Footnote 33.1 — Jehovah|Jehovah]] the God of Israel is their inheritance, as He had spoken to them.

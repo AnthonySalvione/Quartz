@@ -4,7 +4,7 @@ And when you enter the land which Jehovah your God is giving you as an inheritan
 
 ## v2
 
-You shall take some of the first of all the fruit of the ground which you shall bring from your land, which Jehovah your God is giving you, and you shall put it in a basket and go to the place where Jehovah your God will choose to cause His name to dwell.
+You shall take some of the [[Deuteronomy-26.fn#Footnote 2.1 — first|first]] of all the fruit of the ground which you shall bring from your land, which Jehovah your God is giving you, and you shall put it in a basket and go to the place where Jehovah your God will choose to cause His name to dwell.
 
 ## v3
 
@@ -16,7 +16,7 @@ And the priest shall take the basket from your hand and place it before the alta
 
 ## v5
 
-And you shall respond and say before Jehovah your God, A perishing Aramaean was my father; and he went down to Egypt and sojourned there, few in number; and he became there a great and mighty and numerous nation.
+And you shall respond and say before Jehovah your God, A [[Deuteronomy-26.fn#Footnote 5.1 — perishing|perishing]] Aramaean was my father; and he went down to Egypt and sojourned there, few in number; and he became there a great and mighty and numerous nation.
 
 ## v6
 
@@ -44,7 +44,7 @@ And you and the Levite and the sojourner in your midst shall rejoice in all the 
 
 ## v12
 
-When you have finished giving all the tithes of your produce in the third year, the year of the tithe, you shall give it to the Levite, the sojourner, the orphan, and the widow, that they may eat within your gates and be satisfied.
+When you have finished giving all the [[Deuteronomy-26.fn#Footnote 12.1 — tithes|tithes]] of your produce in the third year, the year of the tithe, you shall give it to the Levite, the sojourner, the orphan, and the widow, that they may eat within your gates and be satisfied.
 
 ## v13
 
@@ -56,11 +56,11 @@ I have not eaten any of it in my sorrow, nor have I removed any of it while I wa
 
 ## v15
 
-Look down from Your holy habitation, from heaven, and bless Your people Israel and the ground which You have given us, as You swore to our fathers, a land flowing with milk and honey.
+Look down from [[Deuteronomy-26.fn#Footnote 15.1 — Your|Your]] holy habitation, from heaven, and [[Deuteronomy-26.fn#Footnote 15.2 — bless|bless]] Your people Israel and the ground which You have given us, as You swore to our fathers, a land flowing with milk and honey.
 
 ## v16
 
-This day Jehovah your God is commanding you to do these statutes and ordinances; therefore you shall keep them and do them with all your heart and with all your soul.
+This day Jehovah your God is commanding you to [[Deuteronomy-26.fn#Footnote 16.1 — do|do]] these statutes and ordinances; therefore you shall keep them and do them with all your heart and with all your soul.
 
 ## v17
 
@@ -68,7 +68,7 @@ It is Jehovah whom you have today declared to be your God and that you will walk
 
 ## v18
 
-And it is Jehovah who has today declared you to be a people for His personal treasure, even as He promised you; and that you will keep all His commandments;
+And it is Jehovah who has today declared you to be a people for His [[Deuteronomy-26.fn#Footnote 18.1 — personal|personal]] treasure, even as He promised you; and that you will keep all His commandments;
 
 ## v19
 

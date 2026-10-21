@@ -4,7 +4,7 @@ Then Jehovah said to Moses, Go to Pharaoh, and say to him, Thus says Jehovah, Le
 
 ## v2
 
-But if you refuse to let them go, I will now smite all your territory with frogs.
+But if you refuse to let them go, I will now smite all your territory with [[Exodus-08.fn#Footnote 2.1 — frogs|frogs]].
 
 ## v3
 
@@ -56,11 +56,11 @@ And they gathered them together, heap after heap, and the land stank.
 
 ## v15
 
-But when Pharaoh saw that there was respite, he hardened his heart and did not listen to them, just as Jehovah had said.
+But when Pharaoh saw that there was respite, he [[Exodus-08.fn#Footnote 15.1 — hardened|hardened]] his heart and did not listen to them, just as Jehovah had said.
 
 ## v16
 
-And Jehovah said to Moses, Say to Aaron, Stretch out your staff, and strike the dust of the earth, that it may become lice throughout all the land of Egypt.
+And Jehovah said to Moses, Say to Aaron, Stretch out your staff, and strike the dust of the earth, that it may become [[Exodus-08.fn#Footnote 16.1 — lice|lice]] throughout all the land of Egypt.
 
 ## v17
 
@@ -72,7 +72,7 @@ And the magicians did the same with their secret spells, to try to bring forth l
 
 ## v19
 
-Then the magicians said to Pharaoh, This is the finger of God. But Pharaoh’s heart hardened, and he did not listen to them, just as Jehovah had said.
+Then the magicians said to Pharaoh, This is the [[Exodus-08.fn#Footnote 19.1 — finger|finger]] of God. But Pharaoh’s heart hardened, and he did not listen to them, just as Jehovah had said.
 
 ## v20
 
@@ -80,7 +80,7 @@ Then Jehovah said to Moses, Rise up early in the morning, and present yourself b
 
 ## v21
 
-For if you will not let My people go, then I will at once send swarms of flies against you and against your servants and against your people and against your houses; and the houses of the Egyptians will be full of swarms of flies, as well as the ground on which they are.
+For if you will not let My people go, then I will at once send swarms of [[Exodus-08.fn#Footnote 21.1 — flies|flies]] against you and against your servants and against your people and against your houses; and the houses of the Egyptians will be full of swarms of flies, as well as the ground on which they are.
 
 ## v22
 
@@ -88,7 +88,7 @@ But on that day I will set apart the land of Goshen, where My people are staying
 
 ## v23
 
-And I will put a redemption between My people and your people. Tomorrow this sign shall occur.
+And I will put a [[Exodus-08.fn#Footnote 23.1 — redemption|redemption]] between My people and your people. Tomorrow this sign shall occur.
 
 ## v24
 
@@ -96,7 +96,7 @@ And Jehovah did so; and heavy swarms of flies came into the house of Pharaoh and
 
 ## v25
 
-And Pharaoh called for Moses and for Aaron and said, Go, sacrifice to your God in the land.
+And Pharaoh called for Moses and for Aaron and said, Go, sacrifice to your God in the [[Exodus-08.fn#Footnote 25.1 — land|land]].
 
 ## v26
 

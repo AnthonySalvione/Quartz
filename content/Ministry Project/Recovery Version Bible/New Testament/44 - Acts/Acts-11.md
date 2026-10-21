@@ -7,7 +7,7 @@ And the apostles and the brothers who were throughout Judea heard that the Genti
 
 ## v2
 
-And when Peter went up to Jerusalem, those of the circumcision disputed with him,
+And when Peter went up to Jerusalem, those of the [[Acts-11.fn#Footnote 2.1 — circumcision|circumcision]] disputed with him,
 
 ## v3
 
@@ -47,7 +47,7 @@ And behold, at that moment three men stood at the house in which we were, having
 
 ## v12
 
-And the Spirit told me to go with them, doubting nothing. And these six brothers went with me also; and we entered into the man’s house.
+And the Spirit told me to go with them, [[Acts-11.fn#Footnote 12.1 — doubting|doubting]] nothing. And [[Acts-11.fn#Footnote 12.2 — these|these]] six brothers went with me also; and we entered into the man’s house.
 
 ## v13
 
@@ -55,7 +55,7 @@ And he reported to us how he saw the angel standing in his house and saying, Sen
 
 ## v14
 
-Who will speak words to you by which you shall be saved, you and all your house.
+Who will speak words to you by which you shall be saved, you and all your [[Acts-11.fn#Footnote 14.1 — house|house]].
 
 ## v15
 
@@ -71,15 +71,15 @@ If therefore God has given to them the equal gift as also to us who have believe
 
 ## v18
 
-And when they heard these things, they became silent and glorified God, saying, Then to the Gentiles also God has given repentance unto life.
+And when they heard these things, they became silent and glorified God, saying, Then to the Gentiles also God has given repentance unto [[Acts-11.fn#Footnote 18.1 — life|life]].
 
 ## v19
 
-Those then who were scattered by the tribulation which took place on account of Stephen passed through as far as Phoenicia and Cyprus and Antioch, speaking the word to no one except Jews only.
+Those then who were [[Acts-11.fn#Footnote 19.1 — scattered|scattered]] by the tribulation which took place on account of Stephen passed through as far as Phoenicia and Cyprus and Antioch, speaking the word to [[Acts-11.fn#Footnote 19.2 — no|no]] one except Jews only.
 
 ## v20
 
-But there were some of them, men of Cyprus and Cyrene, who came to Antioch and spoke also to the Greeks, announcing the Lord Jesus as the gospel.
+But there were some of them, [[Acts-11.fn#Footnote 20.1 — men|men]] of Cyprus and Cyrene, who came to Antioch and [[Acts-11.fn#Footnote 20.2 — spoke|spoke]] also to the Greeks, announcing the Lord Jesus as the gospel.
 
 ## v21
 
@@ -87,15 +87,15 @@ And the hand of the Lord was with them, and a great number who believed turned t
 
 ## v22
 
-And the account concerning them was heard in the ears of the church which was in Jerusalem, and they sent out Barnabas to pass through as far as Antioch,
+And the account concerning them was heard in the ears of the church which was in Jerusalem, and they [[Acts-11.fn#Footnote 22.1 — sent|sent]] out [[Acts-11.fn#Footnote 22.2 — Barnabas|Barnabas]] to pass through as far as Antioch,
 
 ## v23
 
-Who, when he arrived and saw the grace of God, rejoiced and encouraged them all to remain with the Lord with purpose of heart;
+Who, when he arrived and saw the [[Acts-11.fn#Footnote 23.1 — grace|grace]] of God, rejoiced and encouraged them all to [[Acts-11.fn#Footnote 23.2 — remain|remain]] with the Lord with purpose of heart;
 
 ## v24
 
-For he was a good man and full of the Holy Spirit and of faith. And a considerable number was added to the Lord.
+For he was a good man and [[Acts-11.fn#Footnote 24.1 — full|full]] of the Holy Spirit and of faith. And a considerable [[Acts-11.fn#Footnote 24.2 — number|number]] was added to the Lord.
 
 ## v25
 
@@ -103,20 +103,20 @@ And he went forth to Tarsus to search for Saul;
 
 ## v26
 
-And when he found him, he brought him to Antioch. And it happened with them that for a whole year they were gathered in the church and taught a considerable number and that the disciples were first called Christians in Antioch.
+And when he found him, he brought him to Antioch. And it happened with them that for a whole year they were gathered in the church and taught a considerable number and that the disciples were first called [[Acts-11.fn#Footnote 26.1 — Christians|Christians]] in Antioch.
 
 ## v27
 
-And in these days prophets came down from Jerusalem to Antioch.
+And in these days [[Acts-11.fn#Footnote 27.1 — prophets|prophets]] came down from Jerusalem to Antioch.
 
 ## v28
 
-And one of them named Agabus rose up and signified through the Spirit that there was about to be a great famine over the whole inhabited earth, which occurred during the time of Claudius.
+And one of them named Agabus rose up and signified through the Spirit that there was about to be a great famine over the whole inhabited earth, which occurred during the time of [[Acts-11.fn#Footnote 28.1 — Claudius|Claudius]].
 
 ## v29
 
-And the disciples, according to how one was prospered, determined, each one of them, to send things for dispensing to the brothers dwelling in Judea,
+And the [[Acts-11.fn#Footnote 29.1 — disciples|disciples]], according to how one was [[Acts-11.fn#Footnote 29.2 — prospered|prospered]], determined, each one of them, to send things [[Acts-11.fn#Footnote 29.3 — for|for]] dispensing to the brothers dwelling in Judea,
 
 ## v30
 
-Which also they did, sending it to the elders through the hand of Barnabas and Saul.
+Which also they did, sending it to the [[Acts-11.fn#Footnote 30.1 — elders|elders]] through the hand of Barnabas and [[Acts-11.fn#Footnote 30.2 — Saul|Saul]].

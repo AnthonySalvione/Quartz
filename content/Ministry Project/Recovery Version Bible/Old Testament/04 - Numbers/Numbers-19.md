@@ -4,11 +4,11 @@ Then Jehovah spoke to Moses and to Aaron, saying,
 
 ## v2
 
-This is the statute of the law which Jehovah has commanded, saying, Tell the children of Israel to bring you a red heifer without defect, in which is no blemish and upon which a yoke has never come.
+This is the statute of the law which Jehovah has commanded, saying, Tell the children of Israel to bring you a [[Numbers-19.fn#Footnote 2.1 — red|red]] heifer without defect, in which is no blemish and upon which a yoke has never come.
 
 ## v3
 
-And you shall give it to Eleazar the priest, and someone shall bring it outside the camp and slaughter it in his presence.
+And you shall give it to Eleazar the priest, and someone shall bring it [[Numbers-19.fn#Footnote 3.1 — outside|outside]] the camp and slaughter it in his presence.
 
 ## v4
 
@@ -20,7 +20,7 @@ And the heifer shall be burned in his sight; its skin and its flesh and its bloo
 
 ## v6
 
-And the priest shall take cedar wood and hyssop and scarlet strands, and cast them into the midst of the burning of the heifer.
+And the priest shall take [[Numbers-19.fn#Footnote 6.1 — cedar|cedar]] wood and hyssop and scarlet strands, and cast them into the midst of the burning of the heifer.
 
 ## v7
 
@@ -28,11 +28,11 @@ Then the priest shall wash his clothes and bathe his flesh in water, and afterwa
 
 ## v8
 
-And he who burns the heifer shall wash his clothes in water and bathe his body in water, and shall be unclean until the evening.
+And he who burns [[Numbers-19.fn#Footnote 8.1 — the|the]] heifer shall wash his clothes in water and bathe his body in water, and shall be unclean until the evening.
 
 ## v9
 
-And a man who is clean shall gather up the ashes of the heifer and place them outside the camp in a clean place, and it shall be kept for the assembly of the children of Israel as water for impurity; it is a sin offering.
+And a man who is clean shall gather up the [[Numbers-19.fn#Footnote 9.1 — ashes|ashes]] of the heifer and place them outside the camp in a clean place, and it shall be kept for the assembly of the children of Israel as water for [[Numbers-19.fn#Footnote 9.2 — impurity|impurity]]; it is a sin offering.
 
 ## v10
 
@@ -44,7 +44,7 @@ One who touches the dead body of any human being shall be unclean seven days.
 
 ## v12
 
-He shall purify himself with it on the third day and on the seventh day, and then he shall be clean; but if he does not purify himself on the third day and on the seventh day, he shall not be clean.
+He shall purify himself with it on the [[Numbers-19.fn#Footnote 12.1 — third|third]] day and on the [[Numbers-19.fn#Footnote 12.1 — third|seventh]] day, and then he shall be clean; but if he does not purify himself on the third day and on the seventh day, he shall not be clean.
 
 ## v13
 
@@ -64,7 +64,7 @@ And whoever in the open field touches one who has been slain with a sword or a d
 
 ## v17
 
-And for the unclean they shall take of the ashes of the burning of the sin offering, and running water shall be added to them in a vessel;
+And for the unclean they shall take of the ashes of the burning of the sin offering, and [[Numbers-19.fn#Footnote 17.1 — running|running]] water shall be added to them in a vessel;
 
 ## v18
 

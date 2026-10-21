@@ -4,39 +4,39 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-This shall be the law of the leper on the day of his cleansing: He shall be brought to the priest,
+This shall be the law of the leper on the day of his [[Leviticus-14.fn#Footnote 2.1 — cleansing|cleansing]]: He shall be [[Leviticus-14.fn#Footnote 2.2 — brought|brought]] to the priest,
 
 ## v3
 
-And the priest shall go forth outside the camp. Then the priest shall look, and if the infection of leprosy has been healed in the leper,
+And the priest shall go forth [[Leviticus-14.fn#Footnote 3.1 — outside|outside]] the camp. Then the priest shall look, and if the infection of leprosy has been [[Leviticus-14.fn#Footnote 3.2 — healed|healed]] in the leper,
 
 ## v4
 
-Then the priest shall command that two living clean birds and cedar wood and scarlet strands and hyssop be taken for the one who is to be cleansed.
+Then the priest shall command that two living clean [[Leviticus-14.fn#Footnote 4.1 — birds|birds]] and [[Leviticus-14.fn#Footnote 4.2 — cedar|cedar]] wood and [[Leviticus-14.fn#Footnote 4.2 — cedar|scarlet]] strands and [[Leviticus-14.fn#Footnote 4.2 — cedar|hyssop]] be taken for the one who is to be [[Leviticus-14.fn#Footnote 4.3 — cleansed|cleansed]].
 
 ## v5
 
-And the priest shall command that one of the birds be slaughtered in an earthen vessel over running water.
+And the priest shall command that one of the birds be slaughtered in an earthen vessel over [[Leviticus-14.fn#Footnote 5.1 — running|running]] water.
 
 ## v6
 
-As for the living bird, he shall take it and the cedar wood and the scarlet strands and the hyssop, and shall dip them and the living bird in the blood of the bird that was slaughtered over the running water.
+As for the [[Leviticus-14.fn#Footnote 6.1 — living|living]] bird, he shall take it and the cedar wood and the scarlet strands and the hyssop, and shall dip them and the living bird in the blood of the bird that was slaughtered over the running water.
 
 ## v7
 
-And he shall sprinkle it on the one who is to be cleansed from the leprosy seven times and shall pronounce him clean. Then he shall let the living bird go into the open field.
+And he shall [[Leviticus-14.fn#Footnote 7.1 — sprinkle|sprinkle]] it on the one who is to be cleansed from the leprosy seven times and shall pronounce him clean. Then he shall [[Leviticus-14.fn#Footnote 7.2 — let|let]] the living bird go into the open field.
 
 ## v8
 
-And the one who is to be cleansed shall wash his clothes and shave off all his hair and bathe in water, and he shall be clean. And after that he may come into the camp, but he shall dwell outside his tent seven days.
+And the one who is to be cleansed shall [[Leviticus-14.fn#Footnote 8.1 — wash|wash]] his clothes and shave off all his hair and bathe in water, and he shall be clean. And after that he may come into the camp, but he shall [[Leviticus-14.fn#Footnote 8.2 — dwell|dwell]] outside his tent seven days.
 
 ## v9
 
-And on the seventh day he shall shave off all his hair; he shall shave his head and his beard and his eyebrows, even all his hair. Then he shall wash his clothes and bathe his flesh in water, and he shall be clean.
+And on the seventh day he shall shave off all his [[Leviticus-14.fn#Footnote 9.1 — hair|hair]]; he shall shave his head and his beard and his eyebrows, even all his hair. Then he shall [[Leviticus-14.fn#Footnote 9.2 — wash|wash]] his clothes and bathe his flesh in water, and he shall be clean.
 
 ## v10
 
-And on the eighth day he shall take two male lambs without blemish and one ewe lamb a year old without blemish and three-tenths of an ephah of fine flour for a meal offering mingled with oil and one log of oil.
+[[Leviticus-14.fn#Footnote 10.1 — And|And]] on the [[Leviticus-14.fn#Footnote 10.2 — eighth|eighth]] day he shall take two male lambs without blemish and one ewe lamb a year old without blemish and three-tenths of an ephah of fine flour for a meal offering mingled with oil and one [[Leviticus-14.fn#Footnote 10.3 — log|log]] of oil.
 
 ## v11
 
@@ -44,15 +44,15 @@ And the priest who makes him clean shall set the man to be cleansed and those th
 
 ## v12
 
-And the priest shall take one of the male lambs and present it as a trespass offering and the log of oil, and wave them as a wave offering before Jehovah.
+And the priest shall take one of the male lambs and present it as a trespass offering and the log of oil, and wave them as a [[Leviticus-14.fn#Footnote 12.1 — wave|wave]] offering before Jehovah.
 
 ## v13
 
-Then he shall slaughter the male lamb in the place where they slaughter the sin offering and the burnt offering, in the place of the sanctuary; for the trespass offering, like the sin offering, is the priest’s; it is most holy.
+Then he shall slaughter the male lamb in the [[Leviticus-14.fn#Footnote 13.1 — place|place]] where they slaughter the sin offering and the burnt offering, in the place of the sanctuary; for the trespass offering, like the sin offering, is the [[Leviticus-14.fn#Footnote 13.2 — priest’s|priest’s]]; it is most holy.
 
 ## v14
 
-And the priest shall take some of the blood of the trespass offering, and the priest shall put it on the lobe of the right ear of the one who is to be cleansed and on the thumb of his right hand and on the big toe of his right foot.
+And the priest shall take some of the blood of the trespass offering, and the priest shall put it on the lobe of the right [[Leviticus-14.fn#Footnote 14.1 — ear|ear]] of the one who is to be cleansed and on the thumb of his right [[Leviticus-14.fn#Footnote 14.1 — ear|hand]] and on the big toe of his right [[Leviticus-14.fn#Footnote 14.1 — ear|foot]].
 
 ## v15
 
@@ -64,23 +64,23 @@ And the priest shall dip his right finger in the oil that is in the palm of his 
 
 ## v17
 
-And from the rest of the oil that is in the palm of his hand the priest shall put some on the lobe of the right ear of the one who is to be cleansed and some on the thumb of his right hand and some on the big toe of his right foot, upon the blood of the trespass offering.
+And from the rest of the oil that is in the palm of his hand the priest shall put some on the lobe of the right [[Leviticus-14.fn#Footnote 17.1 — ear|ear]] of the one who is to be cleansed and some on the thumb of his right [[Leviticus-14.fn#Footnote 17.1 — ear|hand]] and some on the big toe of his right [[Leviticus-14.fn#Footnote 17.1 — ear|foot]], upon the blood of the trespass offering.
 
 ## v18
 
-And the rest of the oil that is in the palm of the priest’s hand he shall put on the head of the one who is to be cleansed. Then the priest shall make expiation for him before Jehovah.
+And the rest of the oil that is in the palm of the priest’s hand he shall put on the [[Leviticus-14.fn#Footnote 18.1 — head|head]] of the one who is to be cleansed. Then the priest shall make [[Leviticus-14.fn#Footnote 18.2 — expiation|expiation]] for him before Jehovah.
 
 ## v19
 
-And the priest shall offer the sin offering and make expiation for the one who is to be cleansed because of his uncleanness, and afterward he shall slaughter the burnt offering.
+And the priest shall offer the [[Leviticus-14.fn#Footnote 19.1 — sin|sin]] offering and make expiation for the one who is to be cleansed because of his uncleanness, and afterward he shall slaughter the burnt offering.
 
 ## v20
 
-And the priest shall offer the burnt offering and the meal offering on the altar. Thus the priest shall make expiation for him, and he shall be clean.
+And the priest shall offer the [[Leviticus-14.fn#Footnote 20.1 — burnt|burnt]] offering and the [[Leviticus-14.fn#Footnote 20.1 — burnt|meal]] offering on the altar. Thus the priest shall make expiation for him, and he shall be clean.
 
 ## v21
 
-But if he is poor and cannot afford so much, then he shall take one male lamb for a trespass offering to be waved to make expiation for him, and one-tenth of an ephah of fine flour mingled with oil for a meal offering, and a log of oil,
+But if he is [[Leviticus-14.fn#Footnote 21.1 — poor|poor]] and cannot afford so much, then he shall take one male lamb for a trespass offering to be waved to make expiation for him, and one-tenth of an ephah of fine flour mingled with oil for a meal offering, and a log of oil,
 
 ## v22
 
@@ -132,19 +132,19 @@ Then Jehovah spoke to Moses and to Aaron, saying,
 
 ## v34
 
-When you come into the land of Canaan, which I give you for a possession, and I put the infection of leprosy in a house in the land of your possession,
+When you come into the land of Canaan, which I give you for a possession, and I put the infection of [[Leviticus-14.fn#Footnote 34.1 — leprosy|leprosy]] in a house in the land of your possession,
 
 ## v35
 
-Then he to whom the house belongs shall come and tell the priest, saying, It seems to me that there is something like an infection in the house.
+Then he to whom the house belongs shall come and tell the [[Leviticus-14.fn#Footnote 35.1 — priest|priest]], saying, It seems to me that there is something like an infection in the house.
 
 ## v36
 
-And the priest shall command that they empty the house before the priest goes in to look at the infection, so that everything which is in the house does not become unclean; and afterward the priest shall go in to look at the house.
+And the priest shall command that they [[Leviticus-14.fn#Footnote 36.1 — empty|empty]] the house before the priest goes in to look at the infection, so that everything which is in the house does not become unclean; and afterward the [[Leviticus-14.fn#Footnote 36.2 — priest|priest]] shall go in to look at the house.
 
 ## v37
 
-And he shall look at the infection; and if the infection is on the walls of the house with greenish or reddish depressions, and their appearance is deeper than the surface of the wall,
+And he shall look at the infection; and if the infection is on the walls of the house with greenish or reddish depressions, and their appearance is [[Leviticus-14.fn#Footnote 37.1 — deeper|deeper]] than the surface of the wall,
 
 ## v38
 
@@ -156,15 +156,15 @@ And the priest shall return on the seventh day and inspect it. And if the infect
 
 ## v40
 
-Then the priest shall command that they take out the stones on which the infection is and throw them away outside the city into an unclean place.
+Then the priest shall command that they [[Leviticus-14.fn#Footnote 40.1 — take|take]] out the stones on which the infection is and throw them away outside the city into an unclean place.
 
 ## v41
 
-And he shall have the house scraped inside all around, and they shall dump the plaster that they scrape off outside the city into an unclean place.
+And he shall have the house [[Leviticus-14.fn#Footnote 41.1 — scraped|scraped]] inside all around, and they shall dump the plaster that they scrape off outside the city into an unclean place.
 
 ## v42
 
-And they shall take other stones and put them in the place of those stones, and he shall take other plaster and replaster the house.
+And they shall take other [[Leviticus-14.fn#Footnote 42.1 — stones|stones]] and put them in the place of those stones, and he shall take other plaster and [[Leviticus-14.fn#Footnote 42.2 — replaster|replaster]] the house.
 
 ## v43
 
@@ -176,23 +176,23 @@ Then the priest shall come in and look; and if the infection has spread in the h
 
 ## v45
 
-And he shall break down the house, its stones and its timber and all the plaster of the house, and he shall bring them outside the city into an unclean place.
+And he shall [[Leviticus-14.fn#Footnote 45.1 — break|break]] down the house, its stones and its timber and all the plaster of the house, and he shall bring them outside the city into an unclean place.
 
 ## v46
 
-Moreover, whoever goes into the house all the while that it is shut up shall be unclean until the evening.
+Moreover, whoever goes into the house all the while that it is shut up shall be unclean until the [[Leviticus-14.fn#Footnote 46.1 — evening|evening]].
 
 ## v47
 
-And whoever lies down in the house shall wash his clothes, and whoever eats in the house shall wash his clothes.
+And whoever [[Leviticus-14.fn#Footnote 47.1 — lies|lies]] down in the house shall wash his clothes, and whoever [[Leviticus-14.fn#Footnote 47.1 — lies|eats]] in the house shall wash his clothes.
 
 ## v48
 
-But if on the other hand the priest comes in and looks, and if the infection has not spread in the house after the house has been replastered, then the priest shall pronounce the house clean because the infection has been healed.
+But if on the other hand the priest comes in and looks, and if the infection has [[Leviticus-14.fn#Footnote 48.1 — not|not]] spread in the house after the house has been replastered, then the priest shall pronounce the house clean because the infection has been healed.
 
 ## v49
 
-And he shall take two birds and cedar wood and scarlet strands and hyssop to purify the house,
+[[Leviticus-14.fn#Footnote 49.1 — And|And]] he shall take two birds and cedar wood and scarlet strands and hyssop to purify the house,
 
 ## v50
 
@@ -204,11 +204,11 @@ And he shall take the cedar wood and the hyssop and the scarlet strands and the 
 
 ## v52
 
-And he shall purify the house with the blood of the bird and with the running water and with the living bird and with the cedar wood and with the hyssop and with the scarlet strands.
+And he shall [[Leviticus-14.fn#Footnote 52.1 — purify|purify]] the house with the blood of the bird and with the running water and with the living bird and with the cedar wood and with the hyssop and with the scarlet strands.
 
 ## v53
 
-And he shall let the living bird go, outside the city into the open field. So he shall make expiation for the house, and it shall be clean.
+And he shall [[Leviticus-14.fn#Footnote 53.1 — let|let]] the living bird go, outside the city into the open field. So he shall make expiation for the house, and it shall be [[Leviticus-14.fn#Footnote 53.2 — clean|clean]].
 
 ## v54
 

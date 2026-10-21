@@ -1,6 +1,6 @@
 ## v1
 
-When Moses finished speaking these words to all Israel,
+When Moses [[Deuteronomy-31.fn#Footnote 1.1 — finished|finished]] speaking these words to all Israel,
 
 ## v2
 
@@ -36,7 +36,7 @@ And Moses wrote this law and gave it to the priests, the sons of Levi, who bear 
 
 ## v10
 
-And Moses commanded them, saying, At the end of every seven years, at the appointed time of the year of release, at the Feast of Tabernacles,
+And Moses commanded them, saying, At the end of every seven years, at the appointed time of the year of release, at the Feast of [[Deuteronomy-31.fn#Footnote 10.1 — Tabernacles|Tabernacles]],
 
 ## v11
 
@@ -104,7 +104,7 @@ Take this book of the law and place it at the side of the Ark of the Covenant of
 
 ## v27
 
-For I know your rebelliousness and your stiff neck: See, while I am yet here alive with you today, you have been rebelling against Jehovah; so how much more after my death!
+For I know your [[Deuteronomy-31.fn#Footnote 27.1 — rebelliousness|rebelliousness]] and your [[Deuteronomy-31.fn#Footnote 27.1 — rebelliousness|stiff]] neck: See, while I am yet here alive with you today, you have been rebelling against Jehovah; so how much more after my death!
 
 ## v28
 

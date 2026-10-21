@@ -3,11 +3,11 @@ Author: John
 ---
 ## v1
 
-And as He passed by, He saw a man blind from birth.
+And as He passed by, He saw [[John-09.fn#Footnote 1.1 — a|a]] man [[John-09.fn#Footnote 1.2 — blind|blind]] from birth.
 
 ## v2
 
-And His disciples asked Him, saying, Rabbi, who sinned, this man or his parents, that he would be born blind?
+And His disciples asked Him, saying, Rabbi, [[John-09.fn#Footnote 2.1 — who|who]] sinned, this man or his parents, that he would be born blind?
 
 ## v3
 
@@ -23,11 +23,11 @@ While I am in the world, I am the light of the world.
 
 ## v6
 
-When He had said this, He spat on the ground and made clay of the spittle and anointed his eyes with the clay,
+When He had said this, He spat on the ground and made clay of the [[John-09.fn#Footnote 6.1 — spittle|spittle]] and anointed his eyes with the clay,
 
 ## v7
 
-And He said to him, Go, wash in the pool of Siloam (which is interpreted, Sent). He went therefore and washed and came away seeing.
+And He said to him, Go, [[John-09.fn#Footnote 7.1 — wash|wash]] in the pool of Siloam (which is interpreted, [[John-09.fn#Footnote 7.2 — Sent|Sent]]). [[John-09.fn#Footnote 7.3 — He|He]] went therefore and washed and came away seeing.
 
 ## v8
 
@@ -55,7 +55,7 @@ They brought him who was once blind to the Pharisees.
 
 ## v14
 
-Now it was the Sabbath, on which day Jesus made the clay and opened his eyes.
+Now it was the [[John-09.fn#Footnote 14.1 — Sabbath|Sabbath]], on which day Jesus made the clay and opened his eyes.
 
 ## v15
 
@@ -127,19 +127,19 @@ We know that God does not hear sinners, but if anyone is God-fearing and does Hi
 
 ## v32
 
-Since time began it has never been heard that anyone opened the eyes of one born blind.
+[[John-09.fn#Footnote 32.1 — Since|Since]] time began it has never been heard that anyone opened the eyes of one born blind.
 
 ## v33
 
-If this man were not from God, He could do nothing.
+If this man were not [[John-09.fn#Footnote 33.1 — from|from]] God, He could do nothing.
 
 ## v34
 
-They answered and said to him, You were wholly born in sins, and you are teaching us? And they cast him out.
+They answered and said to him, You were wholly born in sins, and you are teaching us? And they [[John-09.fn#Footnote 34.1 — cast|cast]] him out.
 
 ## v35
 
-Jesus heard that they had cast him out, and He found him and said, Do you believe into the Son of God?
+Jesus heard that they had cast him out, and He found him and said, Do you believe into the [[John-09.fn#Footnote 35.1 — Son|Son]] of God?
 
 ## v36
 

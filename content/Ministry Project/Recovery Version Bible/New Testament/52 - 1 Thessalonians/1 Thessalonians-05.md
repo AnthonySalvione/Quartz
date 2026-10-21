@@ -3,15 +3,15 @@ Author: Paul
 ---
 ## v1
 
-But concerning the times and the seasons, brothers, you have no need for anything to be written to you;
+But concerning the [[1 Thessalonians-05.fn#Footnote 1.1 — times|times]] and the seasons, brothers, you have no need for anything to be written to you;
 
 ## v2
 
-For you yourselves know perfectly well that like a thief in the night, so the day of the Lord comes.
+For you yourselves know perfectly well that [[1 Thessalonians-05.fn#Footnote 2.1 — like|like]] a thief in the night, so the [[1 Thessalonians-05.fn#Footnote 2.2 — day|day]] of the Lord comes.
 
 ## v3
 
-When they say, Peace and security, then sudden destruction comes upon them, just as birth pangs to a woman with child; and they shall by no means escape.
+When they say, Peace and security, then [[1 Thessalonians-05.fn#Footnote 3.1 — sudden|sudden]] destruction comes upon them, just as birth pangs to a woman with child; and they shall by no means escape.
 
 ## v4
 
@@ -23,23 +23,23 @@ For you are all sons of light and sons of the day. We are not of the night nor o
 
 ## v6
 
-So then let us not sleep, as the rest do, but let us watch and be sober.
+So then let us not [[1 Thessalonians-05.fn#Footnote 6.1 — sleep|sleep]], as the rest do, but let us [[1 Thessalonians-05.fn#Footnote 6.2 — watch|watch]] and be sober.
 
 ## v7
 
-For those who sleep, sleep during the night, and those who get drunk are drunk during the night;
+For those who sleep, sleep during the night, and those who get [[1 Thessalonians-05.fn#Footnote 7.1 — drunk|drunk]] are drunk during the night;
 
 ## v8
 
-But since we are of the day, let us be sober, putting on the breastplate of faith and love and a helmet, the hope of salvation.
+But since we are of the day, let us be sober, putting on the [[1 Thessalonians-05.fn#Footnote 8.1 — breastplate|breastplate]] of faith and love and a [[1 Thessalonians-05.fn#Footnote 8.1 — breastplate|helmet]], the [[1 Thessalonians-05.fn#Footnote 8.2 — hope|hope]] of [[1 Thessalonians-05.fn#Footnote 8.3 — salvation|salvation]].
 
 ## v9
 
-For God did not appoint us to wrath but to the obtaining of salvation through our Lord Jesus Christ,
+For God did [[1 Thessalonians-05.fn#Footnote 9.1 — not|not]] appoint us to wrath but to the obtaining of [[1 Thessalonians-05.fn#Footnote 9.2 — salvation|salvation]] through our Lord Jesus Christ,
 
 ## v10
 
-Who died for us in order that whether we watch or sleep, we may live together with Him.
+Who [[1 Thessalonians-05.fn#Footnote 10.1 — died|died]] for us in order that whether we [[1 Thessalonians-05.fn#Footnote 10.2 — watch|watch]] or [[1 Thessalonians-05.fn#Footnote 10.3 — sleep|sleep]], we may live together [[1 Thessalonians-05.fn#Footnote 10.4 — with|with]] Him.
 
 ## v11
 
@@ -47,55 +47,55 @@ Therefore comfort one another, and build up each one the other, even as you also
 
 ## v12
 
-Furthermore we ask you, brothers, to acknowledge those who labor among you and take the lead among you in the Lord and admonish you,
+Furthermore we ask you, brothers, to [[1 Thessalonians-05.fn#Footnote 12.1 — acknowledge|acknowledge]] [[1 Thessalonians-05.fn#Footnote 12.2 — those|those]] who labor among you and [[1 Thessalonians-05.fn#Footnote 12.3 — take|take]] the lead among you in the Lord and admonish you,
 
 ## v13
 
-And to regard them most highly in love because of their work. Be at peace among yourselves.
+And to [[1 Thessalonians-05.fn#Footnote 13.1 — regard|regard]] them most highly in love because of their work. Be [[1 Thessalonians-05.fn#Footnote 13.2 — at|at]] peace among yourselves.
 
 ## v14
 
-And we exhort you, brothers, Admonish the disorderly, console the fainthearted, sustain the weak, be long-suffering toward all.
+And we exhort you, brothers, Admonish the [[1 Thessalonians-05.fn#Footnote 14.1 — disorderly|disorderly]], console the [[1 Thessalonians-05.fn#Footnote 14.2 — fainthearted|fainthearted]], sustain the [[1 Thessalonians-05.fn#Footnote 14.3 — weak|weak]], be [[1 Thessalonians-05.fn#Footnote 14.4 — long-suffering|long-suffering]] toward all.
 
 ## v15
 
-See that no one repays anyone evil for evil, but always pursue what is good both for one another and for all.
+See that no one repays anyone evil for evil, but [[1 Thessalonians-05.fn#Footnote 15.1 — always|always]] pursue what is good both for one another and for all.
 
 ## v16
 
-Always rejoice,
+[[1 Thessalonians-05.fn#Footnote 16.1 — Always|Always]] rejoice,
 
 ## v17
 
-Unceasingly pray,
+[[1 Thessalonians-05.fn#Footnote 17.1 — Unceasingly|Unceasingly]] pray,
 
 ## v18
 
-In everything give thanks; for this is the will of God in Christ Jesus for you.
+[[1 Thessalonians-05.fn#Footnote 18.1 — In|In]] everything give thanks; [[1 Thessalonians-05.fn#Footnote 18.2 — for|for]] this is the will of God in Christ Jesus for you.
 
 ## v19
 
-Do not quench the Spirit;
+Do [[1 Thessalonians-05.fn#Footnote 19.1 — not|not]] quench the Spirit;
 
 ## v20
 
-Do not despise prophecies,
+Do not [[1 Thessalonians-05.fn#Footnote 20.1 — despise|despise]] [[1 Thessalonians-05.fn#Footnote 20.2 — prophecies|prophecies]],
 
 ## v21
 
-But prove all things. Hold fast to what is good;
+But [[1 Thessalonians-05.fn#Footnote 21.1 — prove|prove]] all things. Hold fast to what is good;
 
 ## v22
 
-Abstain from every kind of evil.
+Abstain from every [[1 Thessalonians-05.fn#Footnote 22.1 — kind|kind]] of evil.
 
 ## v23
 
-And the God of peace Himself sanctify you wholly, and may your spirit and soul and body be preserved complete, without blame, at the coming of our Lord Jesus Christ.
+[[1 Thessalonians-05.fn#Footnote 23.1 — And|And]] the [[1 Thessalonians-05.fn#Footnote 23.2 — God|God]] of peace Himself [[1 Thessalonians-05.fn#Footnote 23.3 — sanctify|sanctify]] you [[1 Thessalonians-05.fn#Footnote 23.4 — wholly|wholly]], and may your [[1 Thessalonians-05.fn#Footnote 23.5 — spirit|spirit]] and soul and body be preserved [[1 Thessalonians-05.fn#Footnote 23.6 — complete|complete]], without blame, [[1 Thessalonians-05.fn#Footnote 23.7 — at|at]] the [[1 Thessalonians-05.fn#Footnote 23.8 — coming|coming]] of our Lord Jesus Christ.
 
 ## v24
 
-Faithful is He who calls you, who also will do it.
+Faithful is He who calls you, who [[1 Thessalonians-05.fn#Footnote 24.1 — also|also]] will do it.
 
 ## v25
 
@@ -107,8 +107,8 @@ Greet all the brothers with a holy kiss.
 
 ## v27
 
-I adjure you by the Lord to have this letter read to all the brothers.
+I adjure you by the Lord to have this letter read to all the [[1 Thessalonians-05.fn#Footnote 27.1 — brothers|brothers]].
 
 ## v28
 
-The grace of our Lord Jesus Christ be with you.
+The [[1 Thessalonians-05.fn#Footnote 28.1 — grace|grace]] of our Lord Jesus Christ be with you.

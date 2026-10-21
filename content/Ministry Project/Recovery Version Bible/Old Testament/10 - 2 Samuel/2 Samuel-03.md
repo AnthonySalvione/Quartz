@@ -1,10 +1,10 @@
 ## v1
 
-Now there was a long war between the house of Saul and the house of David; but David became continually stronger, and the house of Saul became continually weaker.
+Now there was a long war between the house of Saul and the house of David; but David became continually [[2 Samuel-03.fn#Footnote 1.1 — stronger|stronger]], and the house of Saul became continually weaker.
 
 ## v2
 
-And in Hebron sons were born to David. His firstborn was Amnon, of Ahinoam the Jezreelitess;
+And in Hebron [[2 Samuel-03.fn#Footnote 2.1 — sons|sons]] were born to David. His firstborn was Amnon, of Ahinoam the Jezreelitess;
 
 ## v3
 
@@ -24,7 +24,7 @@ And while there was war between the house of Saul and the house of David, Abner 
 
 ## v7
 
-Now Saul had a concubine whose name was Rizpah, the daughter of Aiah. And Ish-bosheth said to Abner, Why did you go in to my father’s concubine?
+Now Saul had a concubine whose name was Rizpah, the daughter of Aiah. And [[2 Samuel-03.fn#Footnote 7.1 — Ish-bosheth|Ish-bosheth]] said to Abner, Why did you go in to my father’s concubine?
 
 ## v8
 
@@ -48,7 +48,7 @@ And Abner sent messengers to David where he was, saying, To whom shall the land 
 
 ## v13
 
-And David said, Fine, I will make a covenant with you; but I require one thing of you, namely, you shall not see my face, unless you first bring Michal, Saul’s daughter, when you come to see my face.
+And [[2 Samuel-03.fn#Footnote 13.1 — David|David]] said, Fine, I will make a covenant with you; but I require one thing of you, namely, you shall not see my face, unless you first bring Michal, Saul’s daughter, when you come to see my face.
 
 ## v14
 

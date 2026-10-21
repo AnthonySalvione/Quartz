@@ -15,27 +15,27 @@ For Christ also did not please Himself, but as it is written, “The reproaches 
 
 ## v4
 
-For the things that were written previously were written for our instruction, in order that through endurance and through the encouragement of the Scriptures we might have hope.
+For the things that were written previously were written for our instruction, in order that through endurance and through the [[Romans-15.fn#Footnote 4.1 — encouragement|encouragement]] of the Scriptures we might have hope.
 
 ## v5
 
-Now the God of endurance and encouragement grant you to be of the same mind toward one another according to Christ Jesus,
+Now the God of endurance and encouragement grant you to be of the same mind toward one another according to [[Romans-15.fn#Footnote 5.1 — Christ|Christ]] Jesus,
 
 ## v6
 
-That with one accord you may with one mouth glorify the God and Father of our Lord Jesus Christ.
+That [[Romans-15.fn#Footnote 6.1 — with|with]] one accord you may with one mouth glorify the God and Father of our Lord Jesus Christ.
 
 ## v7
 
-Therefore receive one another, as Christ also received you to the glory of God.
+Therefore receive one another, as [[Romans-15.fn#Footnote 7.1 — Christ|Christ]] also received you to the glory of God.
 
 ## v8
 
-For I say that Christ has become a servant of the circumcision for the sake of God’s truthfulness, to confirm the promises given to the fathers,
+For I say that Christ has become a [[Romans-15.fn#Footnote 8.1 — servant|servant]] of the circumcision for the sake of God’s [[Romans-15.fn#Footnote 8.2 — truthfulness|truthfulness]], to confirm the promises given to the fathers,
 
 ## v9
 
-And that the Gentiles should glorify God for His mercy, as it is written, “Therefore I will extol You among the Gentiles, and I will sing praise to Your name.”
+And that the Gentiles should glorify God for His mercy, as it is written, “Therefore I will [[Romans-15.fn#Footnote 9.1 — extol|extol]] You among the Gentiles, and I will sing praise to Your name.”
 
 ## v10
 
@@ -47,7 +47,7 @@ And again, “Praise the Lord, all you Gentiles, and let all the peoples speak p
 
 ## v12
 
-And again, Isaiah says, “There shall be the root of Jesse, even He who rises to rule the Gentiles; on Him will the Gentiles hope.”
+And again, Isaiah says, “There shall be the [[Romans-15.fn#Footnote 12.1 — root|root]] of Jesse, even He who rises to rule the Gentiles; on Him will the Gentiles hope.”
 
 ## v13
 
@@ -63,11 +63,11 @@ But I have written the more boldly to you on some points so as to remind you of 
 
 ## v16
 
-That I might be a minister of Christ Jesus to the Gentiles, a laboring priest of the gospel of God, in order that the offering of the Gentiles might be acceptable, having been sanctified in the Holy Spirit.
+That I might be a [[Romans-15.fn#Footnote 16.1 — minister|minister]] of Christ Jesus to the Gentiles, a [[Romans-15.fn#Footnote 16.2 — laboring|laboring]] [[Romans-15.fn#Footnote 16.3 — priest|priest]] of the gospel of God, in order that the offering of the Gentiles might be acceptable, having been sanctified in the Holy Spirit.
 
 ## v17
 
-I have therefore my boasting in Christ Jesus in the things pertaining to God.
+I have therefore my [[Romans-15.fn#Footnote 17.1 — boasting|boasting]] in Christ Jesus in the things pertaining to God.
 
 ## v18
 
@@ -75,7 +75,7 @@ For I will not dare to speak anything of the things which Christ has not accompl
 
 ## v19
 
-In the power of signs and wonders, in the power of the Spirit of God; so that from Jerusalem and round about to Illyricum, I have fully preached the gospel of Christ,
+In the power of signs and wonders, in the power of the Spirit of God; so that from Jerusalem and round about to [[Romans-15.fn#Footnote 19.1 — Illyricum|Illyricum]], I have [[Romans-15.fn#Footnote 19.2 — fully|fully]] preached the gospel of Christ,
 
 ## v20
 
@@ -95,19 +95,19 @@ But now I no longer have place in these regions and have had a desire since many
 
 ## v24
 
-Whenever I may go to Spain, for I hope to see you in passing and be sent forward there by you, if first I am filled, at least in part, by your company.
+Whenever I may go to [[Romans-15.fn#Footnote 24.1 — Spain|Spain]], for I hope to see you in passing and be sent forward there by you, if first I am filled, at least in part, by your company.
 
 ## v25
 
-But now I am going to Jerusalem, ministering to the saints.
+But now I am going to Jerusalem, [[Romans-15.fn#Footnote 25.1 — ministering|ministering]] to the saints.
 
 ## v26
 
-For Macedonia and Achaia have been pleased to make some contribution for the poor among the saints in Jerusalem.
+For Macedonia and Achaia have been pleased to make some [[Romans-15.fn#Footnote 26.1 — contribution|contribution]] for the poor among the saints in Jerusalem.
 
 ## v27
 
-For they were pleased to do it, and their debtors they are. For if the Gentiles have shared in their spiritual things, they ought also to do service to them in material things.
+For they were pleased to do it, and their debtors they are. For if the Gentiles have shared in their spiritual things, they ought also to [[Romans-15.fn#Footnote 27.1 — do|do]] service to them in material things.
 
 ## v28
 
@@ -115,7 +115,7 @@ When therefore I have finished this and have sealed to them this fruit, I will g
 
 ## v29
 
-And I know that when I come to you, I will come in the fullness of the blessing of Christ.
+And I know that when I come to you, I will come in the [[Romans-15.fn#Footnote 29.1 — fullness|fullness]] of the blessing of Christ.
 
 ## v30
 
@@ -123,7 +123,7 @@ Now I exhort you, brothers, through our Lord Jesus Christ and through the love o
 
 ## v31
 
-That I may be delivered from those who are disobedient in Judea, and that my service for Jerusalem may be acceptable to the saints,
+That I may be delivered from those who are disobedient in Judea, and that my [[Romans-15.fn#Footnote 31.1 — service|service]] for Jerusalem may be acceptable to the saints,
 
 ## v32
 

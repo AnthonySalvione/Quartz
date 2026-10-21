@@ -4,11 +4,11 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-On the first day of the first month you shall raise up the tabernacle of the Tent of Meeting.
+On the [[Exodus-40.fn#Footnote 2.1 — first|first]] day of the first month you shall raise up the tabernacle of the Tent of Meeting.
 
 ## v3
 
-And you shall put the Ark of the Testimony there, and you shall screen the Ark with the veil.
+And you shall put the [[Exodus-40.fn#Footnote 3.1 — Ark|Ark]] of the Testimony there, and you shall screen the Ark with the veil.
 
 ## v4
 
@@ -132,7 +132,7 @@ And he raised up the court all around the tabernacle and the altar, and put up t
 
 ## v34
 
-Then the cloud covered the Tent of Meeting, and the glory of Jehovah filled the tabernacle.
+Then the cloud covered the [[Exodus-40.fn#Footnote 34.1 — Tent|Tent]] of Meeting, and the [[Exodus-40.fn#Footnote 34.2 — glory|glory]] of Jehovah filled the tabernacle.
 
 ## v35
 
@@ -140,7 +140,7 @@ And Moses was not able to enter the Tent of Meeting, because the cloud settled o
 
 ## v36
 
-And whenever the cloud was taken up from over the tabernacle, the children of Israel set out on all their journeys;
+And whenever the [[Exodus-40.fn#Footnote 36.1 — cloud|cloud]] was taken up from over the tabernacle, the children of Israel set out on all their journeys;
 
 ## v37
 
@@ -148,4 +148,4 @@ But if the cloud was not taken up, they did not set out until the day that it wa
 
 ## v38
 
-For the cloud of Jehovah was upon the tabernacle by day, and there was fire in it by night, in the sight of all the house of Israel on all their journeys.
+For the cloud of Jehovah was upon the tabernacle by day, and there was fire in [[Exodus-40.fn#Footnote 38.1 — it|it]] by night, in the sight of all the [[Exodus-40.fn#Footnote 38.2 — house|house]] of Israel on all their journeys.

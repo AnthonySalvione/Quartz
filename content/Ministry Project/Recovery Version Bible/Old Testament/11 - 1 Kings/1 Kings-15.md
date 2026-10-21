@@ -12,11 +12,11 @@ And he walked in all the sins of his father, which he had done before him; and h
 
 ## v4
 
-Yet for David’s sake Jehovah his God gave him a lamp in Jerusalem, raising up his son after him and establishing Jerusalem;
+Yet for [[1 Kings-15.fn#Footnote 4.1 — David’s|David’s]] sake Jehovah his God gave him a lamp in Jerusalem, raising up his son after him and establishing Jerusalem;
 
 ## v5
 
-Because David did what was upright in the sight of Jehovah and did not turn aside from anything that He had commanded him all the days of his life, except in the matter of Uriah the Hittite.
+Because David did what was upright in the sight of Jehovah and did not turn aside from anything that He had commanded him all the days of his life, except in the [[1 Kings-15.fn#Footnote 5.1 — matter|matter]] of Uriah the Hittite.
 
 ## v6
 
@@ -36,7 +36,7 @@ And in the twentieth year of Jeroboam the king of Israel, Asa began to reign as 
 
 ## v10
 
-And he reigned forty-one years in Jerusalem, and his mother’s name was Maacah, the daughter of Abishalom.
+And he reigned forty-one years in Jerusalem, and his [[1 Kings-15.fn#Footnote 10.1 — mother’s|mother’s]] name was Maacah, the daughter of Abishalom.
 
 ## v11
 
@@ -48,7 +48,7 @@ And he put away the male cult prostitutes out of the land and removed all the id
 
 ## v13
 
-And he also removed Maacah his mother from being queen mother because she had made an abominable image for Asherah. And Asa cut down her abominable image and burned it at the brook Kidron.
+And he also removed Maacah his mother from being queen mother because she had made an abominable image for [[1 Kings-15.fn#Footnote 13.1 — Asherah|Asherah]]. And Asa cut down her abominable image and burned it at the brook Kidron.
 
 ## v14
 
@@ -88,7 +88,7 @@ Then King Asa made a proclamation to all Judah; no one was exempt. And they carr
 
 ## v23
 
-And the rest of all the acts of Asa and all his might and all that he did and the cities that he built, are they not written in the book of the chronicles of the kings of Judah? Yet in the time of his old age he was diseased in his feet.
+And the rest of all the acts of Asa and all his might and all that he did and the cities that he built, are they not written in the book of the chronicles of the kings of Judah? Yet in the time of his old age he was [[1 Kings-15.fn#Footnote 23.1 — diseased|diseased]] in his feet.
 
 ## v24
 

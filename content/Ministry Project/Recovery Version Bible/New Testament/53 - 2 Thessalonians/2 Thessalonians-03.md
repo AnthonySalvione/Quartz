@@ -3,7 +3,7 @@ Author: Paul
 ---
 ## v1
 
-Finally, brothers, pray concerning us, that the word of the Lord may run and be glorified, even as it is also with you;
+Finally, brothers, pray concerning us, that the word of the Lord may run and be [[2 Thessalonians-03.fn#Footnote 1.1 — glorified|glorified]], even as it is also [[2 Thessalonians-03.fn#Footnote 1.2 — with|with]] you;
 
 ## v2
 
@@ -11,23 +11,23 @@ And that we may be delivered from unreasonable and evil men, for the faith does 
 
 ## v3
 
-But the Lord is faithful, who will establish you and guard you from the evil one.
+But the Lord is faithful, who will [[2 Thessalonians-03.fn#Footnote 3.1 — establish|establish]] you and [[2 Thessalonians-03.fn#Footnote 3.2 — guard|guard]] you from the evil one.
 
 ## v4
 
-And we have confidence in the Lord concerning you that what we charge, you both are doing and will do.
+And we have confidence in the Lord concerning you that what we [[2 Thessalonians-03.fn#Footnote 4.1 — charge|charge]], you both are doing and will do.
 
 ## v5
 
-And the Lord direct your hearts into the love of God and into the endurance of Christ.
+And the Lord [[2 Thessalonians-03.fn#Footnote 5.1 — direct|direct]] your hearts [[2 Thessalonians-03.fn#Footnote 5.2 — into|into]] the [[2 Thessalonians-03.fn#Footnote 5.3 — love|love]] of God and [[2 Thessalonians-03.fn#Footnote 5.4 — into|into]] the [[2 Thessalonians-03.fn#Footnote 5.5 — endurance|endurance]] of Christ.
 
 ## v6
 
-Now we charge you, brothers, in the name of our Lord Jesus Christ, that you keep away from every brother walking disorderly and not according to the things which were handed down to you and which you received from us.
+Now we charge you, brothers, in the name of our Lord Jesus Christ, that you keep away from every brother [[2 Thessalonians-03.fn#Footnote 6.1 — walking|walking]] disorderly and not according to the [[2 Thessalonians-03.fn#Footnote 6.2 — things|things]] which were handed down to you and which you received from us.
 
 ## v7
 
-For you yourselves know how you ought to imitate us, because we were not disorderly among you;
+For you yourselves know how you ought to imitate us, because we were [[2 Thessalonians-03.fn#Footnote 7.1 — not|not]] disorderly among you;
 
 ## v8
 
@@ -43,7 +43,7 @@ For even when we were with you, we gave you this charge, that if anyone does not
 
 ## v11
 
-For we hear of some walking among you disorderly, doing no work at all, but being busybodies.
+For we hear of some walking among you disorderly, doing no work at all, but being [[2 Thessalonians-03.fn#Footnote 11.1 — busybodies|busybodies]].
 
 ## v12
 
@@ -55,7 +55,7 @@ But you, brothers, do not lose heart in doing good.
 
 ## v14
 
-And if anyone does not obey our word through this letter, mark this one so as not to mingle with him, in order that he may be ashamed.
+And if anyone does not obey our word through this letter, mark this one so as [[2 Thessalonians-03.fn#Footnote 14.1 — not|not]] to mingle with him, in order that he may be ashamed.
 
 ## v15
 
@@ -63,7 +63,7 @@ Yet do not regard him as an enemy, but admonish him as a brother.
 
 ## v16
 
-Now the Lord of peace Himself give you peace continually in every way. The Lord be with you all.
+Now the Lord of peace Himself give you [[2 Thessalonians-03.fn#Footnote 16.1 — peace|peace]] continually in every way. The Lord be with you all.
 
 ## v17
 
@@ -71,4 +71,4 @@ The greeting in my own hand — Paul — which is the mark in every letter; so I
 
 ## v18
 
-The grace of our Lord Jesus Christ be with you all.
+The [[2 Thessalonians-03.fn#Footnote 18.1 — grace|grace]] of our Lord Jesus Christ be with you all.

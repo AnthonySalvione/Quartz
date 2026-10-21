@@ -1,10 +1,10 @@
 ## v1
 
-Now Moses was shepherding the flock of Jethro his father-in-law, the priest of Midian; and he led the flock to the back of the wilderness and came to the mountain of God, to Horeb.
+Now [[Exodus-03.fn#Footnote 1.1 — Moses|Moses]] was shepherding the flock of Jethro his father-in-law, the priest of Midian; and he led the flock to the back of the wilderness and came to the mountain of God, to Horeb.
 
 ## v2
 
-And the Angel of Jehovah appeared to him in a flame of fire out of the midst of a thornbush. And when he looked, there was the thornbush, burning with fire; but the thornbush was not consumed.
+And the [[Exodus-03.fn#Footnote 2.1 — Angel|Angel]] of Jehovah appeared to him in a [[Exodus-03.fn#Footnote 2.2 — flame|flame]] of fire out of the midst of a [[Exodus-03.fn#Footnote 2.2 — flame|thornbush]]. And when he looked, there was the thornbush, burning with fire; but the thornbush was not consumed.
 
 ## v3
 
@@ -20,7 +20,7 @@ And He said, Do not come near here. Remove your sandals from your feet, for the 
 
 ## v6
 
-And He said, I am the God of your father, the God of Abraham, the God of Isaac, and the God of Jacob. And Moses hid his face, for he was afraid to look at God.
+And He said, I am the God of your father, the [[Exodus-03.fn#Footnote 6.1 — God|God]] of Abraham, the God of Isaac, and the God of Jacob. And Moses hid his face, for he was afraid to look at God.
 
 ## v7
 
@@ -28,7 +28,7 @@ And Jehovah said, I have surely seen the affliction of My people who are in Egyp
 
 ## v8
 
-And I have come down to deliver them out of the hand of the Egyptians and to bring them up out of that land to a good and spacious land, to a land flowing with milk and honey, to the place of the Canaanites and the Hittites and the Amorites and the Perizzites and the Hivites and the Jebusites.
+And I have come down to [[Exodus-03.fn#Footnote 8.1 — deliver|deliver]] them out of the hand of the Egyptians and to [[Exodus-03.fn#Footnote 8.1 — deliver|bring]] them up out of that land to a good and spacious land, to a land flowing with [[Exodus-03.fn#Footnote 8.2 — milk|milk]] and honey, to the place of the Canaanites and the Hittites and the Amorites and the Perizzites and the Hivites and the Jebusites.
 
 ## v9
 
@@ -40,11 +40,11 @@ So come now, and I will send you to Pharaoh, that you may bring My people, the c
 
 ## v11
 
-But Moses said to God, Who am I that I should go to Pharaoh and that I should bring the children of Israel out of Egypt?
+But Moses said to God, [[Exodus-03.fn#Footnote 11.1 — Who|Who]] am I that I should go to Pharaoh and that I should bring the children of Israel out of Egypt?
 
 ## v12
 
-And He said, Surely I will be with you, and this shall be the sign for you that I have sent you: When you have brought the people out of Egypt, you will serve God upon this mountain.
+And He said, Surely I will be with you, and this shall be the sign for you that I have sent you: When you have brought the people out of Egypt, you will serve God upon this [[Exodus-03.fn#Footnote 12.1 — mountain|mountain]].
 
 ## v13
 
@@ -52,11 +52,11 @@ Then Moses said to God, If I come to the children of Israel and say to them, The
 
 ## v14
 
-And God said to Moses, I AM WHO I AM. And He said, Thus you shall say to the children of Israel, I AM has sent me to you.
+And God said to Moses, [[Exodus-03.fn#Footnote 14.1 — I|I]] AM WHO I AM. And He said, Thus you shall say to the children of Israel, I AM has sent me to you.
 
 ## v15
 
-And God also said to Moses, Thus you shall say to the children of Israel, Jehovah, the God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has sent me to you. This is My name forever, and this is My memorial from generation to generation.
+And God also said to Moses, Thus you shall say to the children of Israel, [[Exodus-03.fn#Footnote 15.1 — Jehovah|Jehovah]], the God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has sent me to you. This is My name forever, and this is My memorial from generation to generation.
 
 ## v16
 
@@ -68,7 +68,7 @@ And I say, I will bring you up out of the affliction of Egypt to the land of the
 
 ## v18
 
-And they will listen to your voice. And you shall come, you and the elders of Israel, to the king of Egypt, and you shall say to him, Jehovah, the God of the Hebrews, has met with us; and now let us go a three days’ journey into the wilderness that we may sacrifice to Jehovah our God.
+And they will listen to your voice. And you shall come, you and the elders of Israel, to the king of Egypt, and you shall say to him, Jehovah, the God of the [[Exodus-03.fn#Footnote 18.1 — Hebrews|Hebrews]], has met with us; and now let us go a [[Exodus-03.fn#Footnote 18.2 — three|three]] days’ journey into the wilderness that we may sacrifice to Jehovah our God.
 
 ## v19
 
@@ -84,4 +84,4 @@ And I will give this people favor in the sight of the Egyptians, so that when yo
 
 ## v22
 
-But every woman will ask of her neighbor and of any woman living in her house for articles of silver and articles of gold and clothing, and you will put them on your sons and on your daughters, and thus plunder the Egyptians.
+But every woman will ask of her neighbor and of any woman living in her house for articles of silver and articles of gold and clothing, and you will put them on your sons and on your daughters, and thus [[Exodus-03.fn#Footnote 22.1 — plunder|plunder]] the Egyptians.

@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses, Depart; go up from here, you and the people whom yo
 
 ## v2
 
-And I will send an Angel before you; and I will drive out the Canaanites, the Amorites, and the Hittites, and the Perizzites, the Hivites, and the Jebusites.
+And I will send an [[Exodus-33.fn#Footnote 2.1 — Angel|Angel]] before you; and I will drive out the Canaanites, the Amorites, and the Hittites, and the Perizzites, the Hivites, and the Jebusites.
 
 ## v3
 
@@ -16,15 +16,15 @@ And when the people heard this evil word, they mourned, and no one put on his or
 
 ## v5
 
-Now Jehovah had said to Moses, Say to the children of Israel, You are a stiff-necked people; if I were to go up in your midst for one moment, I would consume you. Now therefore put off your ornaments from you, and I will decide what to do to you.
+Now Jehovah had said to Moses, Say to the children of Israel, You are a stiff-necked people; if I were to go up in your midst for one moment, I would consume you. Now therefore put off your ornaments from you, and I will [[Exodus-33.fn#Footnote 5.1 — decide|decide]] what to do to you.
 
 ## v6
 
-Thus the children of Israel were stripped of their ornaments from Mount Horeb onward.
+Thus the children of Israel were stripped of their [[Exodus-33.fn#Footnote 6.1 — ornaments|ornaments]] from Mount Horeb onward.
 
 ## v7
 
-Now Moses would take the tent and pitch it outside the camp, some distance from the camp; and he called it the tent of meeting. And everyone who sought Jehovah went out to the tent of meeting, which was outside the camp.
+Now Moses would take the tent and pitch it [[Exodus-33.fn#Footnote 7.1 — outside|outside]] the camp, some distance from the camp; and he called it the tent of meeting. And everyone who sought Jehovah went out to the tent of meeting, which was outside the camp.
 
 ## v8
 
@@ -40,7 +40,7 @@ When all the people saw the pillar of cloud standing at the entrance of the tent
 
 ## v11
 
-And Jehovah would speak to Moses face to face, just as a man speaks to his companion. And Moses would return to the camp, but his attendant Joshua the son of Nun, a young man, would not depart out of the tent.
+And Jehovah would speak to Moses face to face, just as a man speaks to his [[Exodus-33.fn#Footnote 11.1 — companion|companion]]. And [[Exodus-33.fn#Footnote 11.2 — Moses|Moses]] would return to the camp, but his attendant Joshua the son of Nun, a young man, would not depart out of the tent.
 
 ## v12
 
@@ -52,7 +52,7 @@ Now therefore if I have found favor in Your sight, please let me know now Your w
 
 ## v14
 
-And He said, My presence shall go with you, and I will give you rest.
+And He said, My [[Exodus-33.fn#Footnote 14.1 — presence|presence]] shall go with you, and I will give you rest.
 
 ## v15
 
@@ -68,7 +68,7 @@ And Jehovah said to Moses, I will do this thing also that you have spoken; for y
 
 ## v18
 
-And he said, Please show me Your glory.
+And he said, Please show me Your [[Exodus-33.fn#Footnote 18.1 — glory|glory]].
 
 ## v19
 
@@ -84,7 +84,7 @@ Then Jehovah said, Here, there is a place by Me, and you shall stand upon the ro
 
 ## v22
 
-And while My glory passes by, I will put you in a cleft of the rock, and I will cover you with My hand until I have passed by.
+And while My glory passes by, I will put you in a [[Exodus-33.fn#Footnote 22.1 — cleft|cleft]] of the rock, and I will cover you with My hand until I have passed by.
 
 ## v23
 

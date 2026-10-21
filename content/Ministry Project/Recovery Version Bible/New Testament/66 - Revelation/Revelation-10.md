@@ -3,15 +3,15 @@ Author: John
 ---
 ## v1
 
-And I saw another strong Angel coming down out of heaven, clothed with a cloud; and the rainbow was upon His head, and His face was like the sun, and His feet like pillars of fire;
+[[Revelation-10.fn#Footnote 1.1 — And|And]] I saw [[Revelation-10.fn#Footnote 1.2 — another|another]] strong Angel coming down out of heaven, clothed with a cloud; and the [[Revelation-10.fn#Footnote 1.3 — rainbow|rainbow]] was upon His head, and His face was like the [[Revelation-10.fn#Footnote 1.4 — sun|sun]], and His feet like [[Revelation-10.fn#Footnote 1.5 — pillars|pillars]] of [[Revelation-10.fn#Footnote 1.6 — fire|fire]];
 
 ## v2
 
-And He had in His hand a little opened scroll. And He placed His right foot on the sea and the left on the land;
+And He had in His hand a [[Revelation-10.fn#Footnote 2.1 — little|little]] opened scroll. And He placed His [[Revelation-10.fn#Footnote 2.2 — right|right]] foot on the sea and the left on the land;
 
 ## v3
 
-And He cried out with a loud voice just as a lion roars. And when He cried out, the seven thunders uttered their own voices.
+And He cried out with a loud voice just as a [[Revelation-10.fn#Footnote 3.1 — lion|lion]] roars. And when He cried out, the [[Revelation-10.fn#Footnote 3.2 — seven|seven]] thunders uttered their own voices.
 
 ## v4
 
@@ -23,11 +23,11 @@ And the Angel whom I saw standing on the sea and on the land lifted up His right
 
 ## v6
 
-And swore by Him who lives forever and ever, who created heaven and the things in it, and the earth and the things in it, and the sea and the things in it, that there shall be delay no longer,
+And [[Revelation-10.fn#Footnote 6.1 — swore|swore]] by Him who lives forever and ever, who created heaven and the [[Revelation-10.fn#Footnote 6.2 — things|things]] in it, and the earth and the [[Revelation-10.fn#Footnote 6.3 — things|things]] in it, and the sea and the [[Revelation-10.fn#Footnote 6.4 — things|things]] in it, that there shall be [[Revelation-10.fn#Footnote 6.5 — delay|delay]] no longer,
 
 ## v7
 
-But in the days of the voice of the seventh angel when he is about to trumpet, then the mystery of God is finished, as He has announced the good news to His own slaves the prophets.
+But in the [[Revelation-10.fn#Footnote 7.1 — days|days]] of the voice of the seventh angel when he is about to trumpet, then the [[Revelation-10.fn#Footnote 7.2 — mystery|mystery]] of God [[Revelation-10.fn#Footnote 7.3 — is|is]] [[Revelation-10.fn#Footnote 7.4 — finished|finished]], as He has announced the [[Revelation-10.fn#Footnote 7.5 — good|good]] news to His own slaves the prophets.
 
 ## v8
 
@@ -39,8 +39,8 @@ And I went to the Angel and told Him to give me the little scroll. And He said t
 
 ## v10
 
-And I took the little scroll out of the hand of the Angel and devoured it, and it was as sweet as honey in my mouth; and when I had eaten it, my stomach became bitter.
+And I took the little scroll out of the hand of the Angel and [[Revelation-10.fn#Footnote 10.1 — devoured|devoured]] it, and it was as [[Revelation-10.fn#Footnote 10.2 — sweet|sweet]] as honey in my mouth; and when I had eaten it, my stomach became bitter.
 
 ## v11
 
-And they said to me, You must prophesy again over many peoples and nations and tongues and kings.
+And [[Revelation-10.fn#Footnote 11.1 — they|they]] said to me, You must prophesy [[Revelation-10.fn#Footnote 11.2 — again|again]] over many peoples and nations and tongues and kings.

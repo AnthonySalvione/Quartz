@@ -1,6 +1,6 @@
 ## v1
 
-There was a man in the land of Uz whose name was Job; and this man was perfect and upright, and he feared God and turned away from evil.
+[[Job-01.fn#Footnote 1.1 — There|There]] was a man in the land of [[Job-01.fn#Footnote 1.2 — Uz|Uz]] whose name was [[Job-01.fn#Footnote 1.3 — Job|Job]]; and this man was [[Job-01.fn#Footnote 1.4 — perfect|perfect]] and upright, and he feared God and turned away from evil.
 
 ## v2
 
@@ -16,11 +16,11 @@ And his sons would go and hold feasts in each one’s house, each on his own day
 
 ## v5
 
-And when the days of feasting ran their course, Job would send word and sanctify them; and he would rise early in the morning and offer burnt offerings according to the number of them all; for Job said, Perhaps my children have sinned and have cursed God in their heart. Job did this continually.
+And when the days of feasting ran their course, Job would send word and [[Job-01.fn#Footnote 5.1 — sanctify|sanctify]] them; and he would rise early in the morning and offer [[Job-01.fn#Footnote 5.1 — sanctify|burnt]] offerings according to the number of them all; for Job said, Perhaps my children have sinned and have [[Job-01.fn#Footnote 5.2 — cursed|cursed]] God in their heart. Job did this continually.
 
 ## v6
 
-Then one day, when the sons of God came to present themselves before Jehovah, Satan also came among them.
+Then one day, when the [[Job-01.fn#Footnote 6.1 — sons|sons]] of God came to present themselves before Jehovah, [[Job-01.fn#Footnote 6.2 — Satan|Satan]] also came [[Job-01.fn#Footnote 6.3 — among|among]] them.
 
 ## v7
 
@@ -28,11 +28,11 @@ And Jehovah said to Satan, Where have you come from? And Satan answered Jehovah 
 
 ## v8
 
-And Jehovah said to Satan, Have you considered My servant Job? For there is none like him on the earth, a perfect and upright man, who fears God and turns away from evil.
+And Jehovah said to Satan, Have you [[Job-01.fn#Footnote 8.1 — considered|considered]] My servant Job? For there is none like him on the earth, a perfect and upright man, who fears God and turns away from evil.
 
 ## v9
 
-Then Satan answered Jehovah and said, Does Job fear God without cause?
+Then Satan answered Jehovah and said, [[Job-01.fn#Footnote 9.1 — Does|Does]] Job fear God without cause?
 
 ## v10
 
@@ -44,7 +44,7 @@ But stretch forth Your hand and touch all that he has, and he will surely curse 
 
 ## v12
 
-And Jehovah said to Satan, Here is all that he has, in your hand; only do not stretch forth your hand against him. And Satan went forth from Jehovah’s presence.
+And Jehovah said to Satan, Here is all that he has, in your hand; [[Job-01.fn#Footnote 12.1 — only|only]] do not stretch forth your hand against him. And Satan went forth from Jehovah’s presence.
 
 ## v13
 
@@ -60,7 +60,7 @@ And the Sabeans fell upon them and took them away, and they struck the servants 
 
 ## v16
 
-While this one was still speaking, another came and said, The fire of God has fallen from heaven and burned up the sheep and the servants and devoured them; and I alone have escaped to relate these things to you.
+While this one was still speaking, another came and said, The [[Job-01.fn#Footnote 16.1 — fire|fire]] of God has fallen from heaven and burned up the sheep and the servants and devoured them; and I alone have escaped to relate these things to you.
 
 ## v17
 

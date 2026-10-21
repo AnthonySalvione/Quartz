@@ -4,7 +4,7 @@ And a man of the house of Levi went and took a daughter of Levi as wife.
 
 ## v2
 
-And the woman conceived and bore a son; and when she saw that he was a fine child, she hid him three months.
+And the woman conceived and bore a son; and when she saw that he was a fine child, she [[Exodus-02.fn#Footnote 2.1 — hid|hid]] him three months.
 
 ## v3
 
@@ -36,7 +36,7 @@ And Pharaoh’s daughter said to her, Take this child away and nurse him for me,
 
 ## v10
 
-And the child grew, and she brought him to Pharaoh’s daughter, and he became her son. And she called his name Moses and said, Because I drew him out of the water.
+And the child grew, and she brought him to Pharaoh’s daughter, and he became her son. And she called his name [[Exodus-02.fn#Footnote 10.1 — Moses|Moses]] and said, Because I drew him out of the water.
 
 ## v11
 
@@ -52,7 +52,7 @@ And he went out the next day, and there were two Hebrew men struggling together;
 
 ## v14
 
-And he said, Who appointed you a ruler and a judge over us? Are you thinking to kill me as you killed the Egyptian? And Moses became frightened and said, Surely the matter is known.
+And he said, Who appointed you a ruler and a judge over us? Are you thinking to kill me as you killed the Egyptian? And Moses became [[Exodus-02.fn#Footnote 14.1 — frightened|frightened]] and said, Surely the matter is known.
 
 ## v15
 
@@ -80,11 +80,11 @@ And he said to his daughters, And where is he? Why did you leave the man? Invite
 
 ## v21
 
-And Moses agreed to stay with the man, and he gave Moses Zipporah his daughter.
+And Moses agreed to [[Exodus-02.fn#Footnote 21.1 — stay|stay]] with the man, and he gave Moses Zipporah his daughter.
 
 ## v22
 
-And she bore a son, and he called his name Gershom, for he said, I have been a sojourner in a foreign land.
+And she bore a son, and he called his name [[Exodus-02.fn#Footnote 22.1 — Gershom|Gershom]], for he said, I have been a sojourner in a foreign land.
 
 ## v23
 

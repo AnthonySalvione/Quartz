@@ -44,8 +44,8 @@ And the rod of God is not upon them.
 
 ## v10
 
-Their bull breeds and does not fail;  
-Their cow calves and does not miscarry.
+[[Job-21.fn#Footnote 10.1 — Their|Their]] bull breeds and does not fail;  
+[[Job-21.fn#Footnote 10.1 — Their|Their]] cow calves and does not miscarry.
 
 ## v11
 
@@ -75,13 +75,13 @@ And what profit is there, that we should pray to Him?
 ## v16
 
 Indeed, their prosperity is not in their own hand.  
-The counsel of the wicked is far from Him.
+The counsel of the wicked is far from [[Job-21.fn#Footnote 16.1 — Him|Him]].
 
 ## v17
 
 How often is the lamp of the wicked put out,  
 So that their calamity comes upon them,  
-So that God distributes sorrows in His anger?
+So that [[Job-21.fn#Footnote 17.1 — God|God]] distributes sorrows in His anger?
 
 ## v18
 

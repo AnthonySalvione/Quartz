@@ -1,14 +1,14 @@
 ## v1
 
-Now Jehovah had spoken to Moses in the wilderness of Sinai in the first month of the second year after they had come out of the land of Egypt, saying,
+Now Jehovah had spoken to Moses in the wilderness of Sinai in the [[Numbers-09.fn#Footnote 1.1 — first|first]] month of the second year after they had come out of the land of Egypt, saying,
 
 ## v2
 
-Let the children of Israel keep the passover at its appointed time.
+Let the children of Israel keep the [[Numbers-09.fn#Footnote 2.1 — passover|passover]] at its appointed time.
 
 ## v3
 
-On the fourteenth day of this month at twilight, you shall keep it at its appointed time; according to all its statutes and according to all its ordinances you shall keep it.
+On the fourteenth day of this month [[Numbers-09.fn#Footnote 3.1 — at|at]] twilight, you shall keep it at its appointed time; according to all its [[Numbers-09.fn#Footnote 3.2 — statutes|statutes]] and according to all its [[Numbers-09.fn#Footnote 3.2 — statutes|ordinances]] you shall keep it.
 
 ## v4
 
@@ -48,7 +48,7 @@ They shall not leave any of it until the morning, nor break a bone of it; accord
 
 ## v13
 
-But the man who is clean and is not on a journey yet refrains from keeping the passover, that person shall be cut off from his people, because he did not present Jehovah’s offering at its appointed time; that man shall bear his sin.
+But the [[Numbers-09.fn#Footnote 13.1 — man|man]] who is clean and is not on a journey yet refrains from keeping the passover, that person shall be cut off from his people, because he did not present Jehovah’s offering at its appointed time; that man shall bear his sin.
 
 ## v14
 
@@ -56,7 +56,7 @@ And if a stranger sojourns with you and keeps the passover to Jehovah, according
 
 ## v15
 
-And on the day that the tabernacle was set up, the cloud covered the tabernacle, the Tent of the Testimony; and in the evening it was like the appearance of fire over the tabernacle until morning.
+And on the day that the tabernacle was set up, the [[Numbers-09.fn#Footnote 15.1 — cloud|cloud]] covered the tabernacle, the Tent of the Testimony; and in the evening it was like the appearance of [[Numbers-09.fn#Footnote 15.1 — cloud|fire]] over the tabernacle until morning.
 
 ## v16
 
@@ -64,7 +64,7 @@ So it was always; the cloud covered it by day, and the appearance of fire by nig
 
 ## v17
 
-And whenever the cloud was taken up from over the tent, then after that the children of Israel set out; and in the place where the cloud settled, there the children of Israel encamped.
+And whenever the [[Numbers-09.fn#Footnote 17.1 — cloud|cloud]] was taken up from over the tent, then after that the children of Israel set out; and in the place where the cloud settled, there the children of Israel encamped.
 
 ## v18
 

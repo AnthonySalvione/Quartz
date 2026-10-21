@@ -3,11 +3,11 @@ Author: Luke
 ---
 ## v1
 
-And as they were speaking to the people, the priests and the captain of the temple and the Sadducees came upon them,
+And as they were speaking to the people, the priests and the [[Acts-04.fn#Footnote 1.1 — captain|captain]] of the temple and the [[Acts-04.fn#Footnote 1.2 — Sadducees|Sadducees]] came upon them,
 
 ## v2
 
-Being greatly disturbed because they were teaching the people and announcing in Jesus the resurrection from the dead.
+Being greatly disturbed because they were teaching the people and announcing [[Acts-04.fn#Footnote 2.1 — in|in]] Jesus the resurrection from the dead.
 
 ## v3
 
@@ -19,31 +19,31 @@ But many of those who heard the word believed; and the number of men came to abo
 
 ## v5
 
-And on the next day their rulers and elders and scribes were gathered together in Jerusalem,
+And on the next day their rulers and elders and scribes were [[Acts-04.fn#Footnote 5.1 — gathered|gathered]] together in Jerusalem,
 
 ## v6
 
-As well as Annas the high priest and Caiaphas and John and Alexander and as many as were of high-priestly descent.
+As well as Annas the high priest and [[Acts-04.fn#Footnote 6.1 — Caiaphas|Caiaphas]] and [[Acts-04.fn#Footnote 6.2 — John|John]] and Alexander and as many as were of high-priestly descent.
 
 ## v7
 
-And they stood them in the midst and inquired, By what power or in what name did you do this?
+And they stood them in the midst and inquired, [[Acts-04.fn#Footnote 7.1 — By|By]] what power or in what name did you do this?
 
 ## v8
 
-Then Peter, filled with the Holy Spirit, said to them, Rulers of the people and elders,
+Then Peter, [[Acts-04.fn#Footnote 8.1 — filled|filled]] with the Holy Spirit, said to them, Rulers of the people and elders,
 
 ## v9
 
-If we today are being examined regarding a good deed done to a sick man, by what means this man has been healed,
+If we today are being examined regarding a good deed done to a sick man, by what means this man has been [[Acts-04.fn#Footnote 9.1 — healed|healed]],
 
 ## v10
 
-Let it be known to you all and to all the people of Israel that in the name of Jesus Christ the Nazarene, whom you crucified and whom God has raised from the dead, in this name this man stands before you in good health.
+Let it be known to [[Acts-04.fn#Footnote 10.2 — you|you]] all and to all the people of Israel that in the name of Jesus Christ the [[Acts-04.fn#Footnote 10.1 — Nazarene|Nazarene]], whom you crucified and whom [[Acts-04.fn#Footnote 10.3 — God|God]] has raised from the dead, in this name this man stands before you in good health.
 
 ## v11
 
-This is the stone which was considered as nothing by you, the builders, which has become the head of the corner.
+This is the [[Acts-04.fn#Footnote 11.1 — stone|stone]] which was [[Acts-04.fn#Footnote 11.2 — considered|considered]] as nothing by you, the builders, which has become the [[Acts-04.fn#Footnote 11.3 — head|head]] of the corner.
 
 ## v12
 
@@ -51,7 +51,7 @@ And there is salvation in no other, for neither is there another name under heav
 
 ## v13
 
-And as they beheld the boldness of Peter and John and perceived that they were uneducated men and laymen, they marveled and they recognized them, that they had been with Jesus.
+And as they beheld the boldness of Peter and John and perceived that they were [[Acts-04.fn#Footnote 13.1 — uneducated|uneducated]] men and [[Acts-04.fn#Footnote 13.2 — laymen|laymen]], they marveled and they recognized them, that they had been with Jesus.
 
 ## v14
 
@@ -59,7 +59,7 @@ And seeing the man who had been healed standing with them, they had nothing to s
 
 ## v15
 
-But they ordered them to go away outside the Sanhedrin and conferred with one another,
+But they ordered them to go away outside the [[Acts-04.fn#Footnote 15.1 — Sanhedrin|Sanhedrin]] and conferred with one another,
 
 ## v16
 
@@ -91,15 +91,15 @@ For the man on whom this sign of healing had occurred was more than forty years 
 
 ## v23
 
-And when they had been released, they went to their own people and reported all that the chief priests and the elders had said to them.
+And when they had been released, they went to their [[Acts-04.fn#Footnote 23.1 — own|own]] people and reported all that the chief priests and the elders had said to them.
 
 ## v24
 
-And when they heard this, they lifted up their voice with one accord to God and said, Sovereign Master, You are the One who has made heaven and earth and the sea and all things in them,
+And when they heard this, they lifted up their voice with one accord to God and said, [[Acts-04.fn#Footnote 24.1 — Sovereign|Sovereign]] Master, You are the One who has made heaven and earth and the sea and all things in them,
 
 ## v25
 
-Who, through the Holy Spirit, through the mouth of our father David Your servant, has said, “Why did the Gentiles rage, and the peoples devise vain things?
+Who, through the Holy Spirit, through the mouth of our father David Your servant, has said, “Why did the Gentiles [[Acts-04.fn#Footnote 25.1 — rage|rage]], and the peoples devise vain things?
 
 ## v26
 
@@ -111,7 +111,7 @@ For truly in this city there were gathered together against Your holy Servant Je
 
 ## v28
 
-To do what Your hand and Your counsel predestined to take place.
+To do what Your hand and Your counsel [[Acts-04.fn#Footnote 28.1 — predestined|predestined]] to take place.
 
 ## v29
 
@@ -123,19 +123,19 @@ While stretching out Your hand to heal, and that signs and wonders may take plac
 
 ## v31
 
-And when they had so besought, the place in which they were gathered was shaken, and they were all filled with the Holy Spirit and began to speak the word of God with boldness.
+And when they had so besought, the place in which they were gathered was shaken, and they were all [[Acts-04.fn#Footnote 31.1 — filled|filled]] with the Holy Spirit and began to speak the word of God with boldness.
 
 ## v32
 
-And the heart and soul of the multitude of those who had believed was one; and not even one said that any of his possessions was his own, but all things were common to them.
+And the heart and soul of the multitude of those who had believed was one; and [[Acts-04.fn#Footnote 32.1 — not|not]] even one said that any of his possessions was his own, but all things were [[Acts-04.fn#Footnote 32.2 — common|common]] to them.
 
 ## v33
 
-And with great power the apostles gave testimony of the resurrection of the Lord Jesus, and great grace was upon them all.
+And with great power the apostles gave [[Acts-04.fn#Footnote 33.1 — testimony|testimony]] of the resurrection of the Lord Jesus, and great [[Acts-04.fn#Footnote 33.2 — grace|grace]] was upon them all.
 
 ## v34
 
-For neither was anyone among them in need; for as many as were owners of lands or of houses sold them and brought the proceeds of the things which were sold
+For neither was anyone among them in need; for as many as were owners of lands or of houses [[Acts-04.fn#Footnote 34.1 — sold|sold]] them and brought the proceeds of the things which were sold
 
 ## v35
 
@@ -143,7 +143,7 @@ And placed them at the feet of the apostles; and it was distributed to each, as 
 
 ## v36
 
-And Joseph, who was surnamed Barnabas by the apostles (which is translated, Son of encouragement), a Levite, a Cyprian by birth,
+And Joseph, who was surnamed [[Acts-04.fn#Footnote 36.1 — Barnabas|Barnabas]] by the apostles (which is translated, Son of encouragement), a Levite, a Cyprian by birth,
 
 ## v37
 

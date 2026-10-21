@@ -1,7 +1,10 @@
+> *To the choir director: on the stringed instruments. A Psalm of David*
+
+---
 ## v1
 
 When I call out, answer me,  
-O God of my righteousness;  
+O God of my [[Psalm-04.fn#Footnote 1.1 — righteousness|righteousness]];  
 Make room for me when I am in straits;  
 Be gracious to me and hear my prayer.
 
@@ -12,7 +15,7 @@ How long will you love vanity, will you seek a lie? Selah
 
 ## v3
 
-But know that Jehovah sets apart the faithful man for Himself.  
+But know that Jehovah [[Psalm-04.fn#Footnote 3.1 — sets|sets]] apart the faithful man for Himself.  
 Jehovah hears when I call out to Him.
 
 ## v4
@@ -34,7 +37,7 @@ Lift up upon us the light of Your countenance, O Jehovah.
 ## v7
 
 You have put joy in my heart,  
-More than when the grain and new wine of others abound.
+More than when the [[Psalm-04.fn#Footnote 7.1 — grain|grain]] and new wine of others abound.
 
 ## v8
 

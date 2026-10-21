@@ -28,7 +28,7 @@ But the king spared Mephibosheth, the son of Jonathan, the son of Saul, because 
 
 ## v8
 
-So the king took the two sons of Rizpah the daughter of Aiah, whom she bore to Saul, Armoni and Mephibosheth; and the five sons of Merab the daughter of Saul, whom she bore to Adriel the son of Barzillai the Meholathite.
+So the king took the two sons of Rizpah the daughter of Aiah, whom she bore to Saul, Armoni and Mephibosheth; and the five sons of [[2 Samuel-21.fn#Footnote 8.1 — Merab|Merab]] the daughter of Saul, whom she bore to Adriel the son of Barzillai the Meholathite.
 
 ## v9
 
@@ -36,7 +36,7 @@ And he delivered them into the hands of the Gibeonites. And they hanged them on 
 
 ## v10
 
-And Rizpah the daughter of Aiah took sackcloth and spread it on a rock for herself, from the beginning of harvest until rain from heaven fell on their bodies; and she did not allow the birds of heaven to come upon them by day or the beasts of the field by night.
+And Rizpah the daughter of Aiah took sackcloth and spread it on a rock for herself, from the beginning of harvest until rain from heaven fell on [[2 Samuel-21.fn#Footnote 10.1 — their|their]] bodies; and she did not allow the birds of heaven to come upon them by day or the beasts of the field by night.
 
 ## v11
 

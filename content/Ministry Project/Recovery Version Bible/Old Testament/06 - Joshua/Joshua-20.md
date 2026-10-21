@@ -4,7 +4,7 @@ Then Jehovah spoke to Joshua, saying,
 
 ## v2
 
-Speak to the children of Israel, saying, Designate the cities of refuge, concerning which I spoke to you through Moses,
+Speak to the children of Israel, saying, Designate the [[Joshua-20.fn#Footnote 2.1 — cities|cities]] of refuge, concerning which I spoke to you through Moses,
 
 ## v3
 

@@ -1,6 +1,6 @@
 ## v1
 
-Then Joseph could not control himself before all those who attended him; and he cried out, Have everyone go out from me. So there was no one standing with him when Joseph made himself known to his brothers.
+Then [[Genesis-45.fn#Footnote 1.1 — Joseph|Joseph]] could not control himself before all those who attended him; and he cried out, Have everyone go out from me. So there was no one standing with him when Joseph made himself known to his brothers.
 
 ## v2
 
@@ -16,7 +16,7 @@ And Joseph said to his brothers, Please come closer to me. And they came closer.
 
 ## v5
 
-And now do not be grieved or angry with yourselves because you sold me here, for God sent me before you to preserve life.
+And now do not be [[Genesis-45.fn#Footnote 5.1 — grieved|grieved]] or angry with yourselves because you sold me here, for God sent me before you to preserve life.
 
 ## v6
 
@@ -24,7 +24,7 @@ For the famine has been in the midst of the land these two years, and there are 
 
 ## v7
 
-And God sent me before you to preserve for you a remnant in the earth and to keep you alive by a great deliverance.
+And God sent me before you to preserve for you a [[Genesis-45.fn#Footnote 7.1 — remnant|remnant]] in the earth and to keep you alive by a great deliverance.
 
 ## v8
 
@@ -100,7 +100,7 @@ So they went up out of Egypt and came to the land of Canaan to Jacob their fathe
 
 ## v26
 
-And they told him, saying, Joseph is still alive, and he is ruler over all the land of Egypt. And his heart grew numb, for he did not believe them.
+And they told him, saying, Joseph is still alive, and he is ruler over all the land of Egypt. And his heart grew [[Genesis-45.fn#Footnote 26.1 — numb|numb]], for he did not believe them.
 
 ## v27
 
@@ -108,4 +108,4 @@ And they told him all the words of Joseph, which he had said to them; and when h
 
 ## v28
 
-And Israel said, It is enough. Joseph my son is still alive. I will go and see him before I die.
+And Israel said, [[Genesis-45.fn#Footnote 28.1 — It|It]] is enough. Joseph my son is still alive. I will go and see him before I die.

@@ -4,15 +4,15 @@ But the children of Israel acted unfaithfully in that which was devoted to destr
 
 ## v2
 
-Joshua sent men from Jericho to Ai, which is beside Beth-aven, east of Bethel; and he spoke to them, saying, Go up and spy out the land. So the men went up and spied out Ai.
+Joshua sent men from Jericho to Ai, which is beside Beth-aven, east of Bethel; and he spoke to them, saying, Go up and [[Joshua-07.fn#Footnote 2.1 — spy|spy]] out the land. So the men went up and spied out Ai.
 
 ## v3
 
-And they returned to Joshua and said to him, Not all the people need go up; let about two or three thousand men go up and strike Ai. Do not make all the people labor there, for the enemies are few.
+And they returned to Joshua and said to him, [[Joshua-07.fn#Footnote 3.1 — Not|Not]] all the people need go up; let about two or three thousand men go up and strike Ai. Do not make all the people labor there, for [[Joshua-07.fn#Footnote 3.2 — the|the]] enemies are few.
 
 ## v4
 
-So about three thousand men from the people went up there, but they fled before the men of Ai.
+So about three thousand men from the people went up there, but they [[Joshua-07.fn#Footnote 4.1 — fled|fled]] before the men of Ai.
 
 ## v5
 
@@ -40,7 +40,7 @@ Then Jehovah said to Joshua, Rise up! Why have you fallen upon your face?
 
 ## v11
 
-Israel has sinned. Indeed they have trespassed My covenant, which I commanded them; indeed they have taken of that which was devoted to destruction; indeed they have stolen; indeed they have been deceptive; indeed they have put it among their goods.
+[[Joshua-07.fn#Footnote 11.1 — Israel|Israel]] has sinned. Indeed they have trespassed My covenant, which I commanded them; indeed they have taken of that which was devoted to destruction; indeed they have stolen; indeed they have been deceptive; indeed they have put it among their goods.
 
 ## v12
 
@@ -60,7 +60,7 @@ And he who is taken with that which was devoted to destruction shall be burned w
 
 ## v16
 
-So Joshua rose early in the morning and brought Israel near by their tribes, and the tribe of Judah was taken.
+So Joshua rose early in the morning and brought Israel near by their tribes, and the tribe of Judah was [[Joshua-07.fn#Footnote 16.1 — taken|taken]].
 
 ## v17
 
@@ -72,7 +72,7 @@ And he brought the house of Zabdi near warrior by warrior, and Achan the son of 
 
 ## v19
 
-And Joshua said to Achan, My son, give glory to Jehovah the God of Israel, and make confession to Him. And tell me what you have done; do not hide anything from me.
+And Joshua said to Achan, My son, give glory to Jehovah the God of Israel, and [[Joshua-07.fn#Footnote 19.1 — make|make]] confession to Him. And tell me what you have done; do not hide anything from me.
 
 ## v20
 
@@ -80,7 +80,7 @@ Then Achan answered Joshua and said, It is true; I have sinned against Jehovah t
 
 ## v21
 
-When I saw among the spoil a beautiful mantle of Shinar and two hundred shekels of silver and a wedge of gold weighing fifty shekels, I coveted them and took them. And now they are hidden in the earth in my tent, with the silver under it.
+When I saw among the spoil a beautiful mantle of [[Joshua-07.fn#Footnote 21.1 — Shinar|Shinar]] and two hundred shekels of silver and a wedge of gold weighing fifty shekels, I coveted them and took them. And now they are hidden in the earth in my tent, with the silver under it.
 
 ## v22
 
@@ -88,7 +88,7 @@ And Joshua sent messengers, and they ran to the tent. And there it was, hidden i
 
 ## v23
 
-And they took the things from within the tent and brought them to Joshua and to all the children of Israel, and spread them out before Jehovah.
+And they took [[Joshua-07.fn#Footnote 23.1 — the|the]] things from within the tent and brought them to Joshua and to all the children of Israel, and spread them out before Jehovah.
 
 ## v24
 
@@ -100,4 +100,4 @@ And Joshua said, Why have you troubled us? Jehovah will trouble you this day. An
 
 ## v26
 
-Then they erected over him a great heap of stones, which is there to this day; and Jehovah turned from the fierceness of His anger. Therefore the name of that place is called the Valley of Achor to this day.
+Then they erected over him a great heap of stones, which is there to this day; and Jehovah turned from the fierceness of His anger. Therefore the name of that place is called the Valley of [[Joshua-07.fn#Footnote 26.1 — Achor|Achor]] to this day.

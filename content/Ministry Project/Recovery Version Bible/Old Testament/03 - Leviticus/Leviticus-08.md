@@ -4,11 +4,11 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Take Aaron and his sons with him, and the garments and the anointing oil and the bull of the sin offering and the two rams and the basket of unleavened bread;
+Take [[Leviticus-08.fn#Footnote 2.1 — Aaron|Aaron]] and his sons with him, and the garments and the anointing oil and the bull of the sin offering and the two rams and the basket of unleavened bread;
 
 ## v3
 
-And gather all the assembly at the entrance of the Tent of Meeting.
+And gather all the assembly at the [[Leviticus-08.fn#Footnote 3.1 — entrance|entrance]] of the Tent of Meeting.
 
 ## v4
 
@@ -20,11 +20,11 @@ And Moses said to the assembly, This is what Jehovah has commanded to be done.
 
 ## v6
 
-And Moses brought Aaron and his sons near and washed them with water.
+And Moses brought Aaron and his sons near and [[Leviticus-08.fn#Footnote 6.1 — washed|washed]] them with water.
 
 ## v7
 
-And he put the tunic upon him and girded him with the girding sash and clothed him with the robe and put the ephod upon him, and he girded him with the skillfully woven band of the ephod, and with it he bound it to him.
+And he [[Leviticus-08.fn#Footnote 7.1 — put|put]] the tunic upon him and girded him with the girding sash and clothed him with the robe and put the ephod upon him, and he girded him with the skillfully woven band of the ephod, and with it he bound it to him.
 
 ## v8
 
@@ -36,7 +36,7 @@ And he placed the turban on his head, and on the turban, on its front, he placed
 
 ## v10
 
-And Moses took the anointing oil and anointed the tabernacle and all that was in it, and sanctified them.
+And Moses took the anointing oil and [[Leviticus-08.fn#Footnote 10.1 — anointed|anointed]] the tabernacle and all that was in it, and [[Leviticus-08.fn#Footnote 10.2 — sanctified|sanctified]] them.
 
 ## v11
 
@@ -44,15 +44,15 @@ And he sprinkled some of it on the altar seven times, and anointed the altar and
 
 ## v12
 
-And he poured some of the anointing oil on Aaron’s head and anointed him, to sanctify him.
+And he poured some of the anointing oil on [[Leviticus-08.fn#Footnote 12.1 — Aaron’s|Aaron’s]] head and anointed him, to sanctify him.
 
 ## v13
 
-And Moses brought Aaron’s sons near, and clothed them with tunics and girded them with girding sashes and bound high hats on them, just as Jehovah had commanded Moses.
+And Moses brought Aaron’s sons near, and [[Leviticus-08.fn#Footnote 13.1 — clothed|clothed]] them with tunics and girded them with girding sashes and bound high hats on them, just as Jehovah had commanded Moses.
 
 ## v14
 
-And he brought the bull of the sin offering, and Aaron and his sons laid their hands on the head of the bull of the sin offering.
+And he brought the [[Leviticus-08.fn#Footnote 14.1 — bull|bull]] of the [[Leviticus-08.fn#Footnote 14.2 — sin|sin]] offering, and Aaron and his sons laid their hands on the head of the bull of the sin offering.
 
 ## v15
 
@@ -68,7 +68,7 @@ But the bull and its skin and its flesh and its dung he burned with fire outside
 
 ## v18
 
-And he presented the ram of the burnt offering, and Aaron and his sons laid their hands on the head of the ram.
+And he presented the [[Leviticus-08.fn#Footnote 18.1 — ram|ram]] of the [[Leviticus-08.fn#Footnote 18.2 — burnt|burnt]] offering, and Aaron and his sons laid their hands on the head of the ram.
 
 ## v19
 
@@ -84,11 +84,11 @@ And the inward parts and the legs he washed with water, and Moses burned the who
 
 ## v22
 
-And he presented the other ram, the ram of consecration, and Aaron and his sons laid their hands on the head of the ram.
+And he presented the other ram, the [[Leviticus-08.fn#Footnote 22.1 — ram|ram]] of consecration, and Aaron and his sons laid their hands on the head of the ram.
 
 ## v23
 
-And Moses slaughtered it and took some of its blood and put it on the lobe of Aaron’s right ear and on the thumb of his right hand and on the big toe of his right foot.
+And Moses slaughtered it and took some of its blood and put it on the lobe of Aaron’s right [[Leviticus-08.fn#Footnote 23.1 — ear|ear]] and on the thumb of his right [[Leviticus-08.fn#Footnote 23.1 — ear|hand]] and on the big toe of his right [[Leviticus-08.fn#Footnote 23.1 — ear|foot]].
 
 ## v24
 
@@ -116,7 +116,7 @@ And Moses took the breast and waved it as a wave offering before Jehovah; it was
 
 ## v30
 
-And Moses took some of the anointing oil and some of the blood that was on the altar and sprinkled it on Aaron, on his garments, and on his sons and on his sons’ garments with him; and he sanctified Aaron, his garments, and his sons and his sons’ garments with him.
+And Moses took some of the [[Leviticus-08.fn#Footnote 30.1 — anointing|anointing]] oil and some of the blood that was on the altar and sprinkled it on Aaron, on his garments, and on his sons and on his sons’ garments with him; and he sanctified Aaron, his garments, and his sons and his sons’ garments with him.
 
 ## v31
 
@@ -128,7 +128,7 @@ And what is left of the flesh and of the bread you shall burn with fire.
 
 ## v33
 
-And you shall not go out from the entrance of the Tent of Meeting for seven days, until the days of your consecration are fulfilled, for it will take seven days to consecrate you.
+And you shall not go out from the entrance of the Tent of Meeting for [[Leviticus-08.fn#Footnote 33.1 — seven|seven]] days, until the days of your consecration are fulfilled, for it will take [[Leviticus-08.fn#Footnote 33.2 — seven|seven]] days to consecrate you.
 
 ## v34
 
@@ -136,7 +136,7 @@ As has been done this day, so Jehovah has commanded to do, to make expiation for
 
 ## v35
 
-And at the entrance of the Tent of Meeting you shall stay day and night seven days, and keep the charge of Jehovah, that you may not die; for so I have been commanded.
+And at the entrance of the Tent of Meeting you shall stay day and night seven days, and keep the charge of Jehovah, that you may not [[Leviticus-08.fn#Footnote 35.1 — die|die]]; for so I have been commanded.
 
 ## v36
 

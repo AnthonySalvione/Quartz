@@ -8,7 +8,7 @@ And he said to his mother, The eleven hundred pieces of silver that were taken f
 
 ## v3
 
-And he returned the eleven hundred pieces of silver to his mother; and his mother said, I do consecrate the silver to Jehovah from my hand to my son to make a sculptured idol and a molten image. Now therefore I will return it to you.
+And he returned the eleven hundred pieces of silver to his mother; and his mother said, I do consecrate the silver to Jehovah from my hand to my son to make a sculptured [[Judges-17.fn#Footnote 3.1 — idol|idol]] and a molten image. Now therefore I will return it to you.
 
 ## v4
 
@@ -16,11 +16,11 @@ And when he returned the silver to his mother, his mother took two hundred piece
 
 ## v5
 
-And the man Micah had a house of gods; and he made an ephod and teraphim, and consecrated one of his sons to become his priest.
+And the man Micah had a [[Judges-17.fn#Footnote 5.1 — house|house]] of gods; and he made an ephod and teraphim, and [[Judges-17.fn#Footnote 5.2 — consecrated|consecrated]] one of his sons to become his priest.
 
 ## v6
 
-In those days there was no king in Israel; everyone did that which was right in his own eyes.
+In those days there was [[Judges-17.fn#Footnote 6.1 — no|no]] king in Israel; everyone did that which was right in his own eyes.
 
 ## v7
 

@@ -1,0 +1,40 @@
+---
+Category:
+  - Praise of the Lord
+Subcategory:
+  - His Life
+Lyricist:
+  - Arthur Cleveland Coxe
+Melody:
+  - Robert A. Schumann
+---
+# How beauteous were the marks divine
+## Stanza 1
+How beauteous were the marks divine,
+That in Thy meekness used to shine,
+That lit Thy lonely pathway, trod
+In wondrous love, O Son of God!
+
+## Stanza 2
+O who like Thee, so mild, so bright,
+Thou Son of man, Thou Light of light?
+O who like Thee did ever go
+So patient, through a world of woe?
+
+## Stanza 3
+O who like Thee so humbly bore
+The scorn, the scoffs of men, before?
+So meek, so lowly, yet so high,
+So glorious in humility?
+
+## Stanza 4
+And death, that sets the prisoner free,
+Was pang, and scoff, and scorn to Thee;
+Yet love through all Thy torture glowed,
+And mercy with Thy life-blood flowed.
+
+## Stanza 5
+O wondrous Lord, my soul would be
+Still more and more conformed to Thee,
+And learn of Thee, the lowly One,
+And like Thee, all my journey run.

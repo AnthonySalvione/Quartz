@@ -3,15 +3,15 @@ Author: John
 ---
 ## v1
 
-Do not let your heart be troubled; believe into God, believe also into Me.
+Do not let your heart be troubled; believe into [[John-14.fn#Footnote 1.1 — God|God]], believe also into [[John-14.fn#Footnote 1.1 — God|Me]].
 
 ## v2
 
-In My Father’s house are many abodes; if it were not so, I would have told you; for I go to prepare a place for you.
+In [[John-14.fn#Footnote 2.1 — My|My]] Father’s house are [[John-14.fn#Footnote 2.2 — many|many]] abodes; if it were not so, I would have told you; for I [[John-14.fn#Footnote 2.3 — go|go]] to prepare a place for you.
 
 ## v3
 
-And if I go and prepare a place for you, I am coming again and will receive you to Myself, so that where I am you also may be.
+And [[John-14.fn#Footnote 3.1 — if|if]] I go and [[John-14.fn#Footnote 3.2 — prepare|prepare]] a place for you, I am coming again and will [[John-14.fn#Footnote 3.3 — receive|receive]] you to Myself, so that [[John-14.fn#Footnote 3.4 — where|where]] I am you also may be.
 
 ## v4
 
@@ -23,11 +23,11 @@ Thomas said to Him, Lord, we do not know where You are going; how can we know th
 
 ## v6
 
-Jesus said to him, I am the way and the reality and the life; no one comes to the Father except through Me.
+Jesus said to him, I am the [[John-14.fn#Footnote 6.1 — way|way]] and the [[John-14.fn#Footnote 6.2 — reality|reality]] and the life; no one comes to the Father except through Me.
 
 ## v7
 
-If you had known Me, you would have known My Father also; and henceforth you know Him and have seen Him.
+[[John-14.fn#Footnote 7.1 — If|If]] you had known Me, you would have known My Father also; and henceforth you know Him and have seen Him.
 
 ## v8
 
@@ -39,7 +39,7 @@ Jesus said to him, Have I been so long a time with you, and you have not known M
 
 ## v10
 
-Do you not believe that I am in the Father and the Father is in Me? The words that I say to you I do not speak from Myself, but the Father who abides in Me does His works.
+Do you not believe that I am in the Father and the Father is in Me? The [[John-14.fn#Footnote 10.1 — words|words]] that I say to you I do not speak from Myself, but the Father who abides in Me does His works.
 
 ## v11
 
@@ -47,11 +47,11 @@ Believe Me that I am in the Father and the Father is in Me; but if not, believe 
 
 ## v12
 
-Truly, truly, I say to you, He who believes into Me, the works which I do he shall do also; and greater than these he shall do because I am going to the Father.
+Truly, truly, I say to you, He who believes into Me, the works which I do he shall do also; and greater than these he shall do because I am [[John-14.fn#Footnote 12.1 — going|going]] to the Father.
 
 ## v13
 
-And whatever you ask in My name, that I will do, that the Father may be glorified in the Son.
+And whatever you ask [[John-14.fn#Footnote 13.1 — in|in]] My name, that I will do, that the [[John-14.fn#Footnote 13.2 — Father|Father]] may be glorified in the Son.
 
 ## v14
 
@@ -63,23 +63,23 @@ If you love Me, you will keep My commandments.
 
 ## v16
 
-And I will ask the Father, and He will give you another Comforter, that He may be with you forever,
+And I will ask the Father, and He will give you another [[John-14.fn#Footnote 16.1 — Comforter|Comforter]], that He may be with you forever,
 
 ## v17
 
-Even the Spirit of reality, whom the world cannot receive, because it does not behold Him or know Him; but you know Him, because He abides with you and shall be in you.
+Even the [[John-14.fn#Footnote 17.1 — Spirit|Spirit]] of reality, whom the world cannot receive, because it does not behold Him or know Him; but you know Him, because [[John-14.fn#Footnote 17.2 — He|He]] abides with you and shall be [[John-14.fn#Footnote 17.3 — in|in]] you.
 
 ## v18
 
-I will not leave you as orphans; I am coming to you.
+[[John-14.fn#Footnote 18.1 — I|I]] will not leave you as orphans; I am [[John-14.fn#Footnote 18.2 — coming|coming]] to you.
 
 ## v19
 
-Yet a little while and the world beholds Me no longer, but you behold Me; because I live, you also shall live.
+Yet a little while and the world beholds Me no longer, but you behold Me; because I [[John-14.fn#Footnote 19.1 — live|live]], you also shall live.
 
 ## v20
 
-In that day you will know that I am in My Father, and you in Me, and I in you.
+In that [[John-14.fn#Footnote 20.1 — day|day]] you will know that I am in My Father, and you in Me, and I in you.
 
 ## v21
 
@@ -91,7 +91,7 @@ Judas, not Iscariot, said to Him, Lord, and what has happened that You are to ma
 
 ## v23
 
-Jesus answered and said to him, If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an abode with him.
+Jesus answered and said to him, If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an [[John-14.fn#Footnote 23.1 — abode|abode]] with him.
 
 ## v24
 
@@ -103,7 +103,7 @@ These things I have spoken to you while abiding with you;
 
 ## v26
 
-But the Comforter, the Holy Spirit, whom the Father will send in My name, He will teach you all things and remind you of all the things which I have said to you.
+But the [[John-14.fn#Footnote 26.1 — Comforter|Comforter]], the Holy Spirit, whom the [[John-14.fn#Footnote 26.2 — Father|Father]] will send in [[John-14.fn#Footnote 26.3 — My|My]] name, He will teach you all things and remind you of all the things which I have said to you.
 
 ## v27
 
@@ -111,7 +111,7 @@ Peace I leave with you; My peace I give to you; not as the world gives do I give
 
 ## v28
 
-You have heard that I said to you, I am going away and I am coming to you. If you loved Me, you would rejoice because I am going to the Father, for the Father is greater than I.
+You have heard that I said to you, I am going away and I am [[John-14.fn#Footnote 28.1 — coming|coming]] to you. If you loved Me, you would rejoice because I am [[John-14.fn#Footnote 28.2 — going|going]] to the Father, for the Father is greater than I.
 
 ## v29
 

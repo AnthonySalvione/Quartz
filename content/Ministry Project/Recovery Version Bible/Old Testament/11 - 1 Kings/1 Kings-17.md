@@ -1,6 +1,6 @@
 ## v1
 
-And Elijah the Tishbite, from among the inhabitants of Gilead, said to Ahab, As Jehovah the God of Israel lives, before whom I stand, there shall not be dew nor rain during these years, except by my word.
+And Elijah the Tishbite, from among the inhabitants of Gilead, said to Ahab, As Jehovah the God of Israel lives, before whom I stand, there shall not be dew nor [[1 Kings-17.fn#Footnote 1.1 — rain|rain]] during these years, except by my word.
 
 ## v2
 
@@ -32,7 +32,7 @@ And the word of Jehovah came to him, saying,
 
 ## v9
 
-Rise up and go to Zarephath, which belongs to Sidon, and stay there. I have just commanded a widow there to keep you fed.
+Rise up and go to Zarephath, which belongs to [[1 Kings-17.fn#Footnote 9.1 — Sidon|Sidon]], and stay there. I have just commanded a widow there to keep you fed.
 
 ## v10
 
@@ -60,7 +60,7 @@ And she went and did according to the word of Elijah. And she and he and her hou
 
 ## v16
 
-The barrel of meal did not give out, nor did the jar of oil fail, according to the word of Jehovah, which He had spoken through Elijah.
+The [[1 Kings-17.fn#Footnote 16.1 — barrel|barrel]] of meal did not give out, nor did the jar of oil fail, according to the word of Jehovah, which He had spoken through Elijah.
 
 ## v17
 

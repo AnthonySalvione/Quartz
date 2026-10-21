@@ -4,7 +4,7 @@ These are the statutes and the ordinances that you shall be certain to do in the
 
 ## v2
 
-You shall completely destroy all the places where the nations whom you will dispossess have served their gods, on the high mountains and on the hills and under every flourishing tree.
+You shall completely [[Deuteronomy-12.fn#Footnote 2.1 — destroy|destroy]] all the places where the nations whom you will dispossess have served their gods, on the high mountains and on the hills and under every flourishing tree.
 
 ## v3
 
@@ -16,7 +16,7 @@ You shall not do so to Jehovah your God.
 
 ## v5
 
-But to the place which Jehovah your God will choose out of all your tribes to put His name, to His habitation, shall you seek, and there shall you go.
+But to the place which Jehovah your God will [[Deuteronomy-12.fn#Footnote 5.1 — choose|choose]] out of all your tribes to put His [[Deuteronomy-12.fn#Footnote 5.1 — choose|name]], to His [[Deuteronomy-12.fn#Footnote 5.1 — choose|habitation]], shall you seek, and there shall you go.
 
 ## v6
 
@@ -60,11 +60,11 @@ Yet you may slaughter and eat meat within all your gates, in all that your soul 
 
 ## v16
 
-However, you shall not eat the blood; you shall pour it out upon the earth like water.
+However, you shall not eat the [[Deuteronomy-12.fn#Footnote 16.1 — blood|blood]]; you shall pour it out upon the earth like water.
 
 ## v17
 
-You may not eat within your gates the tithe of your grain or of your new wine or of your fresh oil, nor the firstborn of your herd or of your flock, or any of your vows which you vow or of your freewill offerings or of the heave offering of your hand;
+You may not [[Deuteronomy-12.fn#Footnote 17.1 — eat|eat]] within your gates the tithe of your grain or of your new wine or of your fresh oil, nor the firstborn of your herd or of your flock, or any of your vows which you vow or of your freewill offerings or of the heave offering of your hand;
 
 ## v18
 
@@ -88,7 +88,7 @@ Indeed, as the gazelle and the deer are eaten, so you may eat it; the unclean an
 
 ## v23
 
-But make sure that you do not eat the blood; for the blood is the life, and you shall not eat the life with the flesh.
+But make sure that you do not eat the [[Deuteronomy-12.fn#Footnote 23.1 — blood|blood]]; for the blood is the [[Deuteronomy-12.fn#Footnote 23.2 — life|life]], and you shall not eat the life with the flesh.
 
 ## v24
 

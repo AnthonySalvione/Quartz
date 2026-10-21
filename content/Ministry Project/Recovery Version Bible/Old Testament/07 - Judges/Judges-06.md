@@ -40,7 +40,7 @@ And I said to you, I am Jehovah your God; you shall not fear the gods of the Amo
 
 ## v11
 
-And the Angel of Jehovah came and sat under the terebinth that was in Ophrah, which belonged to Joash the Abiezrite, while Gideon his son was beating out the wheat in the winepress in order to hide it from the Midianites.
+And the [[Judges-06.fn#Footnote 11.1 — Angel|Angel]] of Jehovah came and sat under the terebinth that was in Ophrah, which belonged to Joash the Abiezrite, while Gideon his son was beating out the wheat in the winepress in order to hide it from the Midianites.
 
 ## v12
 
@@ -52,7 +52,7 @@ And Gideon said to Him, Please, my lord, if Jehovah is with us, then why has all
 
 ## v14
 
-Then Jehovah turned to him and said, Go in this strength of yours, and save Israel from the hand of Midian. Indeed I have sent you.
+Then [[Judges-06.fn#Footnote 14.1 — Jehovah|Jehovah]] turned to him and said, Go in this strength of yours, and save Israel from the hand of Midian. Indeed I have sent you.
 
 ## v15
 
@@ -76,7 +76,7 @@ So Gideon went and prepared a kid and an ephah of flour in unleavened cakes. He 
 
 ## v20
 
-And the Angel of God said to him, Take the flesh and the unleavened cakes, and put them on this rock; and pour out the broth. And he did so.
+And the [[Judges-06.fn#Footnote 20.1 — Angel|Angel]] of God said to him, Take the flesh and the unleavened cakes, and put them on this rock; and pour out the broth. And he did so.
 
 ## v21
 
@@ -92,11 +92,11 @@ And Jehovah said to him, Peace be with you. Do not be afraid; you shall not die.
 
 ## v24
 
-Then Gideon built an altar there to Jehovah, and he called it Jehovah-shalom. To this day it is still in Ophrah of the Abiezrites.
+Then Gideon built an altar there to Jehovah, and he called it [[Judges-06.fn#Footnote 24.1 — Jehovah-shalom|Jehovah-shalom]]. To this day it is still in Ophrah of the Abiezrites.
 
 ## v25
 
-And that night Jehovah said to him, Take your father’s bull, that is, the second bull, seven years old; and tear down the altar of Baal that belongs to your father, and cut down the Asherah that is beside it.
+And that night Jehovah said to him, Take your father’s bull, that is, the second bull, seven years old; and tear down the altar of Baal that belongs to your father, and cut down the [[Judges-06.fn#Footnote 25.1 — Asherah|Asherah]] that is beside it.
 
 ## v26
 
@@ -104,7 +104,7 @@ And build an altar to Jehovah your God upon the top of this stronghold in the or
 
 ## v27
 
-So Gideon took ten men from among his servants and did as Jehovah had told him. But because he was too afraid of his father’s house and the men of the city to do it by day, he did it at night.
+So Gideon took ten men from among his servants and [[Judges-06.fn#Footnote 27.1 — did|did]] as Jehovah had told him. But because he was too afraid of his father’s house and the men of the city to do it by day, he did it at night.
 
 ## v28
 
@@ -124,7 +124,7 @@ And Joash said to all who stood against him, Will you contend for Baal? Or will 
 
 ## v32
 
-Therefore on that day he named Gideon Jerubbaal, saying, Let Baal contend against him, for he has broken down his altar.
+Therefore on that day he named [[Judges-06.fn#Footnote 32.1 — Gideon|Gideon]] [[Judges-06.fn#Footnote 32.2 — Jerubbaal|Jerubbaal]], saying, Let Baal contend against him, for he has broken down his altar.
 
 ## v33
 

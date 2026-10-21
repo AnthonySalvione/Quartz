@@ -5,7 +5,7 @@ Is of few days and full of trouble.
 
 ## v2
 
-He comes forth like a blossom and is cut down;  
+He comes forth like a blossom and [[Job-14.fn#Footnote 2.1 — is|is]] cut down;  
 He also flees like a shadow and does not remain.
 
 ## v3
@@ -58,8 +58,8 @@ And the river becomes parched and dried up:
 ## v12
 
 So a man lies down and does not rise up;  
-Until the heavens are no more, he will not awake,  
-Nor will he be roused from his sleep.
+Until the heavens are no more, [[Job-14.fn#Footnote 12.1 — he|he]] will not awake,  
+Nor will he be roused from [[Job-14.fn#Footnote 12.2 — his|his]] sleep.
 
 ## v13
 

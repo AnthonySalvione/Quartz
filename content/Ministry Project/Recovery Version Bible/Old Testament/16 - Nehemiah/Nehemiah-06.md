@@ -40,7 +40,7 @@ And I went to the house of Shemaiah the son of Delaiah, the son of Mehetabel, wh
 
 ## v11
 
-But I said, Should a man like me flee? And who, being like me, would go into the temple to save his life? I will not go in.
+But I said, Should a man like me flee? And who, being like me, would go into the temple [[Nehemiah-06.fn#Footnote 11.1 — to|to]] save his life? I will not go in.
 
 ## v12
 

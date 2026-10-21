@@ -1,6 +1,6 @@
 ## v1
 
-Now this is the commandment, the statutes and the ordinances, which Jehovah your God has commanded me to teach you, that you may do them in the land into which you are crossing over to possess;
+Now this is the [[Deuteronomy-06.fn#Footnote 1.1 — commandment|commandment]], the statutes and the ordinances, which Jehovah your God has commanded me to teach you, that you may do them in the land into which you are crossing over to possess;
 
 ## v2
 
@@ -12,11 +12,11 @@ Therefore hear, O Israel, and be certain to do it, that it may go well with you 
 
 ## v4
 
-Hear, O Israel, Jehovah is our God; Jehovah is one.
+Hear, O Israel, [[Deuteronomy-06.fn#Footnote 4.1 — Jehovah|Jehovah]] is our God; Jehovah is one.
 
 ## v5
 
-And you shall love Jehovah your God with all your heart and with all your soul and with all your might.
+And you shall [[Deuteronomy-06.fn#Footnote 5.1 — love|love]] Jehovah your God with all your heart and with all your soul and with all your might.
 
 ## v6
 
@@ -24,7 +24,7 @@ And these words, which I command you today, shall be upon your heart;
 
 ## v7
 
-And you shall repeat them to your children, and speak about them when you sit in your house and when you journey on the way, and when you lie down and when you rise up;
+And you shall [[Deuteronomy-06.fn#Footnote 7.1 — repeat|repeat]] them to your children, and speak about them when you sit in your house and when you journey on the way, and when you lie down and when you rise up;
 
 ## v8
 
@@ -60,7 +60,7 @@ For Jehovah your God is a jealous God in the midst of you. Otherwise the anger o
 
 ## v16
 
-You shall not test Jehovah your God, as you tested Him at Massah.
+You shall not test Jehovah your God, as you tested Him at [[Deuteronomy-06.fn#Footnote 16.1 — Massah|Massah]].
 
 ## v17
 
@@ -76,7 +76,7 @@ To drive out all your enemies from before you, as Jehovah has spoken.
 
 ## v20
 
-When your son asks you in the future, saying, What is the significance of the testimonies and the statutes and the ordinances that Jehovah our God commanded you?
+When your son asks you [[Deuteronomy-06.fn#Footnote 20.1 — in|in]] the future, saying, What is the significance of the testimonies and the statutes and the ordinances that Jehovah our God commanded you?
 
 ## v21
 

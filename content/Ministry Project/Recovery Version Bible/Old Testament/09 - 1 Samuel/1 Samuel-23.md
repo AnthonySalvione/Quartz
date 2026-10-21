@@ -24,7 +24,7 @@ Now it so happened that when Abiathar the son of Ahimelech fled to David at Keil
 
 ## v7
 
-Then it was told Saul that David had come to Keilah. And Saul said, God has delivered him into my hand; for he is shut in, because he has entered a city with gates and bars.
+Then it was told Saul that David had come to Keilah. And Saul said, God has [[1 Samuel-23.fn#Footnote 7.1 — delivered|delivered]] him into my hand; for he is shut in, because he has entered a city with gates and bars.
 
 ## v8
 

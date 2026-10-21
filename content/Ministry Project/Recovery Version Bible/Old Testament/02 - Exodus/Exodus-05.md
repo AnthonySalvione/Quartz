@@ -1,14 +1,14 @@
 ## v1
 
-And afterward Moses and Aaron came and said to Pharaoh, Thus says Jehovah the God of Israel, Let My people go that they may hold a feast to Me in the wilderness.
+And afterward Moses and Aaron came and said to [[Exodus-05.fn#Footnote 1.1 — Pharaoh|Pharaoh]], Thus says [[Exodus-05.fn#Footnote 1.2 — Jehovah|Jehovah]] the God of Israel, Let My people go that they may hold a [[Exodus-05.fn#Footnote 1.3 — feast|feast]] to Me in the wilderness.
 
 ## v2
 
-But Pharaoh said, Who is Jehovah that I should listen to His voice to let Israel go? I do not know Jehovah, and I also will not let Israel go.
+But Pharaoh said, [[Exodus-05.fn#Footnote 2.1 — Who|Who]] is Jehovah that I should listen to His voice to let Israel go? I do not know Jehovah, and I also will not let Israel go.
 
 ## v3
 
-And they said, The God of the Hebrews has met with us. Let us go a three days’ journey into the wilderness that we may sacrifice to Jehovah our God; otherwise He will fall upon us with pestilence or sword.
+And they said, The God of the Hebrews has met with us. Let us go a [[Exodus-05.fn#Footnote 3.1 — three|three]] days’ journey into the wilderness that we may sacrifice to Jehovah our God; otherwise He will fall upon us with pestilence or sword.
 
 ## v4
 
@@ -20,7 +20,7 @@ And Pharaoh said, Look, the people of the land are now many, yet you want them t
 
 ## v6
 
-And the same day Pharaoh commanded the taskmasters of the people and their officers, saying,
+And the same day Pharaoh commanded the taskmasters of the people and their [[Exodus-05.fn#Footnote 6.1 — officers|officers]], saying,
 
 ## v7
 

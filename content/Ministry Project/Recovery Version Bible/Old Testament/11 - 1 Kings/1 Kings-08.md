@@ -12,7 +12,7 @@ And when all the elders of Israel came, the priests took up the Ark;
 
 ## v4
 
-And they brought up the Ark of Jehovah and the Tent of Meeting and all the holy vessels that were in the tent; and the priests and Levites brought them up.
+And they brought up the Ark of Jehovah and the [[1 Kings-08.fn#Footnote 4.1 — Tent|Tent]] of Meeting and all the holy vessels that were in the tent; and the priests and Levites brought them up.
 
 ## v5
 
@@ -40,7 +40,7 @@ And when the priests came out of the Holy Place, the cloud filled the house of J
 
 ## v11
 
-And the priests were not able to stand and minister because of the cloud, for the glory of Jehovah filled the house of Jehovah.
+And the priests were not able to stand and minister because of the cloud, for the [[1 Kings-08.fn#Footnote 11.1 — glory|glory]] of Jehovah filled the house of Jehovah.
 
 ## v12
 
@@ -72,7 +72,7 @@ But Jehovah said to David my father, Because it was on your heart to build a hou
 
 ## v19
 
-However you will not build the house, but your son, who will come forth from your loins, he will build the house for My name.
+However you will not build the house, but your [[1 Kings-08.fn#Footnote 19.1 — son|son]], who will come forth from your loins, he will build the house for My name.
 
 ## v20
 
@@ -116,7 +116,7 @@ That Your eyes may be open toward this house night and day, toward the place of 
 
 ## v30
 
-And listen to the supplication of Your servant and of Your people Israel when they pray toward this place. Hear then in Your dwelling place in the heavens; and when You hear, forgive.
+And listen to the supplication of Your servant and of Your people Israel when they pray toward this place. Hear then in Your dwelling place in the [[1 Kings-08.fn#Footnote 30.1 — heavens|heavens]]; and when You hear, forgive.
 
 ## v31
 
@@ -188,7 +188,7 @@ But if they take it to heart in the land where they were carried captive, and th
 
 ## v48
 
-And if they return to You with all their heart and with all their soul in the land of their enemies, who have carried them captive, and they pray to You toward their land that You have given to their fathers, the city that You have chosen, and the house that I have built for Your name;
+And if they return to You with all their heart and with all their soul in the land of their enemies, who have carried them captive, and they pray to You toward their [[1 Kings-08.fn#Footnote 48.1 — land|land]] that You have given to their fathers, the [[1 Kings-08.fn#Footnote 48.1 — land|city]] that You have chosen, and the [[1 Kings-08.fn#Footnote 48.1 — land|house]] that I have built for Your name;
 
 ## v49
 
@@ -232,7 +232,7 @@ That He may incline our hearts to Himself, to walk in all His ways and to keep H
 
 ## v59
 
-And let these words of mine, with which I made supplication to Jehovah, be near to Jehovah our God day and night to maintain the cause of His servant and the cause of His people Israel as each day requires;
+And let these words of mine, with which I made supplication to Jehovah, be near to Jehovah our God day and night to maintain the cause of His servant and the [[1 Kings-08.fn#Footnote 59.1 — cause|cause]] of His people Israel as each day requires;
 
 ## v60
 
@@ -252,7 +252,7 @@ And Solomon offered a sacrifice of peace offerings, which he offered to Jehovah:
 
 ## v64
 
-On that day the king sanctified the middle of the court that was before the house of Jehovah, for there he offered the burnt offering and the meal offering and the fat of peace offerings because the bronze altar which was before Jehovah was too small to receive the burnt offering and the meal offering and the fat of peace offerings.
+On that day the king sanctified the middle of the court that was before the house of Jehovah, for there he offered the [[1 Kings-08.fn#Footnote 64.1 — burnt|burnt]] offering and the [[1 Kings-08.fn#Footnote 64.1 — burnt|meal]] offering and the fat of [[1 Kings-08.fn#Footnote 64.1 — burnt|peace]] offerings because the bronze altar which was before Jehovah was too small to receive the burnt offering and the meal offering and the fat of peace offerings.
 
 ## v65
 

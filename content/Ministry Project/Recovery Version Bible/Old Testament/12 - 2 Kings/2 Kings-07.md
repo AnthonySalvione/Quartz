@@ -1,6 +1,6 @@
 ## v1
 
-And Elisha said, Hear the word of Jehovah: Thus says Jehovah, At about this time tomorrow a seah of fine flour will be sold for a shekel and two seahs of barley will be sold for a shekel in the gate of Samaria.
+And Elisha said, Hear the word of Jehovah: Thus says Jehovah, At about this time tomorrow a [[2 Kings-07.fn#Footnote 1.1 — seah|seah]] of fine flour will be sold for a shekel and two seahs of barley will be sold for a shekel in the gate of Samaria.
 
 ## v2
 
@@ -48,7 +48,7 @@ And the king rose up in the night and said to his servants, I will tell you what
 
 ## v13
 
-And one of his servants answered and said, Let some men take five of the remaining horses that are left in the city — they are like all the multitude of Israel which remain in the city; they are like all the multitude of Israel which have perished — and let us send them and see.
+And one of his servants answered and said, Let some men take five of the remaining horses that are left in [[2 Kings-07.fn#Footnote 13.1 — the|the]] city — they are like all the multitude of Israel which remain in [[2 Kings-07.fn#Footnote 13.1 — the|the]] city; they are like all the multitude of Israel which have perished — and let us send them and see.
 
 ## v14
 

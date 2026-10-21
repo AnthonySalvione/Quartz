@@ -1,14 +1,14 @@
 ## v1
 
-Then Jehovah spoke to Moses, saying,
+Then Jehovah spoke to Moses, [[Leviticus-24.fn#Footnote 1.1 — saying|saying]],
 
 ## v2
 
-Command the children of Israel to bring to you pure oil of beaten olives for the light, to make the lamps burn continually.
+Command the children of Israel to bring to you [[Leviticus-24.fn#Footnote 2.1 — pure|pure]] oil of beaten olives for the light, to [[Leviticus-24.fn#Footnote 2.2 — make|make]] the lamps burn continually.
 
 ## v3
 
-Outside the veil of the Testimony in the Tent of Meeting Aaron shall maintain it in order from evening to morning before Jehovah continually. It shall be a perpetual statute throughout your generations.
+Outside the veil of the Testimony in the Tent of Meeting Aaron shall [[Leviticus-24.fn#Footnote 3.1 — maintain|maintain]] it in order from evening to morning before Jehovah continually. It shall be a perpetual statute throughout your generations.
 
 ## v4
 
@@ -16,7 +16,7 @@ He shall maintain the lamps in order on the pure lampstand before Jehovah contin
 
 ## v5
 
-And you shall take fine flour and bake twelve cakes with it; two-tenths of an ephah shall be in each cake.
+And you shall take fine flour and bake twelve [[Leviticus-24.fn#Footnote 5.1 — cakes|cakes]] with it; two-tenths of an ephah shall be in each cake.
 
 ## v6
 
@@ -24,23 +24,23 @@ And you shall set them in two rows, six in a row, on the table of pure gold befo
 
 ## v7
 
-And you shall put pure frankincense on each row, so that it may be a memorial for the bread, an offering by fire to Jehovah.
+And you shall put pure [[Leviticus-24.fn#Footnote 7.1 — frankincense|frankincense]] on each row, so that it may be a memorial for the bread, an [[Leviticus-24.fn#Footnote 7.2 — offering|offering]] by fire to Jehovah.
 
 ## v8
 
-Every Sabbath day continually he shall set it in order before Jehovah; it is an everlasting covenant for the children of Israel.
+Every [[Leviticus-24.fn#Footnote 8.1 — Sabbath|Sabbath]] day continually he shall set it in order before Jehovah; it is an everlasting covenant for the children of Israel.
 
 ## v9
 
-And it shall be for Aaron and his sons, and they shall eat it in a holy place, for it is most holy to him of Jehovah’s offerings by fire, a perpetual statute.
+And it shall be for Aaron and his sons, and they shall eat it in a [[Leviticus-24.fn#Footnote 9.1 — holy|holy]] place, for it is most holy to him of Jehovah’s offerings by fire, a perpetual statute.
 
 ## v10
 
-Now the son of an Israelite woman, who was also the son of an Egyptian man, went out among the children of Israel; and the son of the Israelite woman and a certain Israelite struggled together in the camp.
+[[Leviticus-24.fn#Footnote 10.1 — Now|Now]] the son of an Israelite woman, who was also the son of an Egyptian man, went out among the children of Israel; and the son of the Israelite woman and a certain Israelite struggled together in the camp.
 
 ## v11
 
-And the son of the Israelite woman blasphemed the Name and cursed, and they brought him to Moses. (Now his mother’s name was Shelomith, the daughter of Dibri, of the tribe of Dan.)
+And the son of the Israelite woman [[Leviticus-24.fn#Footnote 11.1 — blasphemed|blasphemed]] the Name and cursed, and they brought him to Moses. (Now his mother’s name was Shelomith, the daughter of Dibri, of the tribe of Dan.)
 
 ## v12
 
@@ -64,11 +64,11 @@ And the one who blasphemes the name of Jehovah shall surely be put to death; all
 
 ## v17
 
-And anyone who takes the life of any human being shall surely be put to death.
+And anyone who [[Leviticus-24.fn#Footnote 17.1 — takes|takes]] the life of any human being shall surely be put to death.
 
 ## v18
 
-And the one who takes the life of a beast shall make restitution for it, life for life.
+And the one who [[Leviticus-24.fn#Footnote 18.1 — takes|takes]] the life of a beast shall make restitution for it, [[Leviticus-24.fn#Footnote 18.2 — life|life]] for life.
 
 ## v19
 

@@ -1,0 +1,111 @@
+---
+speaker:
+  - Witness Lee
+hymn:
+  - "[[Hymn-1214]]"
+---
+
+# An Opening Word to the Full-time Trainees concerning Regulations and Opinions—CWWL, 1986, vol. 3
+
+## CHAPTER TWO—OLDNESS AND OPINIONS VERSUS REVELATION AND OBEDIENCE
+
+**Scripture Reading: [[Acts-10#v9|Acts 10:9-16]]; [[Acts-18#v24|18:24-28]]; [[Acts-19#v1|19:1-5]]; [[1 Corinthians-16#v12|1 Cor. 16:12]]; [[Acts-15#v36|Acts 15:36-41]]**
+
+---
+### Introductory Word
+
+In the previous chapter we saw that life grows by regulation toward maturity and function. We all have to realize that the proper regulation comes from revelation, and this kind of regulation that comes from revelation always brings us into the proper obedience. Regulation comes from revelation, and revelation brings us into obedience. Only one kind of obedience can be counted worthy in the eyes of God, and that is the obedience that comes out of revelation (cf. [[Acts-26#v19|Acts 26:19]]).
+
+Let us consider the case of Saul of Tarsus, who became the apostle Paul. He was a strong character. It was not so easy to bring him to the right track. The proper obedience is to get on the right track. When Paul was Saul of Tarsus, he got on the right track, and that was his obedience. His obedience was not through man’s doing, teaching, exhortation, or advice but through the heavenly revelation. On the way to Damascus, he was met by the Lord, and he not only heard but also saw something ([[Acts-09#v1|9:1-9]]). He later tells us in Galatians that at that time a revelation came to him to reveal God’s Son in him ([[Acts-01#v16|1:16]]). He did not just experience a kind of outward view, but something got into him as an inner revelation that knocked him down, that subdued him, that restricted him and got him on the right track.
+
+In this chapter I want to talk with you about oldness and opinions versus revelation and obedience. Throughout my many years in the Lord’s service, in the Lord’s ministry, I have seen many cases of oldness and even more cases of opinion. In the church life among the saints, opinions are more prevalent than oldness. Oldness is terrible, but opinions are much more common among human beings. Every human being is a constitution of opinions. All of us were born sinful and have been constituted with opinions. Even though it has been a while since you have been regenerated, your constitution is still probably full of opinions.
+
+### THE TROUBLE WITH ANANIAS AND SAPPHIRA
+
+The book of Acts tells us that the early church passed through a number of troubles. The first trouble that the church faced was the falsehood of a couple, Ananias and Sapphira ([[Acts-05#v1|5:1-11]]). They lied to the Holy Spirit, to the church, and to Peter. They were judged for this sin.
+
+### THE TROUBLE CAUSED BY LANGUAGE DIFFERENCES
+
+The second trouble was due to the matter of language. Some Jews who spoke Greek, the Hellenistic Jews, began to murmur ([[Acts-06#v1|6:1]]). This trouble was caused by language differences.
+
+### THE TROUBLE OF PETER’S OLDNESS
+
+The third trouble was with Peter due to his oldness. He was the top one used by the Lord at his time, and he was the leading one both in the church life and in the ministry. He was such a wonderful person. But when we read [[Acts-10|chapter 10 of Acts]], we realize that Peter was somewhat short, and his shortage was due to his oldness. He was holding on to his old understanding of God’s way because he was born, raised up, and taught as a Jew.
+
+As Peter was praying, a trance came upon him, and he saw a vision of a great sheet descending from heaven, full of unclean animals ([[Acts-10#v9|vv. 9-12]]). A voice came to him, saying, “Rise up, Peter; slay and eat!” ([[Acts-10#v13|v. 13]]). This was not a voice that came from Hades. It was a voice that came from the heavens. No doubt, Peter realized that it was the voice of the Lord. But he still dared to tell the Lord something vice versa. He was so bold to talk to the Lord in a debating way. The Lord said, “Slay and eat,” and he said, “By no means, Lord” ([[Acts-10#v14|v. 14]]). Peter was a bold one, but he was not bold in the right thing. The Lord spoke this to him three times, but he did not let the Lord get through. He was stubborn in his oldness.
+
+Without such a record in [[Acts-10|Acts 10]], you could not imagine that Peter would be like this. He loved the Lord to the uttermost. We should not forget that when he was debating with the Lord, he was not doing anything sinful. He was on the housetop praying. As such a godly person who was so much in the spirit, he was exercising to contact the Lord. He was in such a good condition and atmosphere, yet there was the disobedience with him due to his oldness.
+
+### THE TROUBLE CONCERNING CIRCUMCISION
+
+Another trouble arose later in the church because the Jews tried to bring the practice of circumcision into the Gentile churches. This is clearly revealed and recorded in [[Acts-15|Acts 15]]. Even Paul and Barnabas stopped their ministry to go up to Jerusalem to get this thing solved, and it was solved by the Lord’s mercy.
+
+### THE TROUBLE OF BARNABAS’S OPINION
+
+Right after that, another trouble came up. This trouble was Barnabas’s opinion ([[Acts-10#v35|vv. 35-39]]). He wanted to bring his cousin John Mark with him to go on in the ministry with Paul. But Paul realized that Mark should be disciplined. He should not be easily permitted to come back to the ministry on his own. This was because he had withdrawn from the ministry in Pamphylia on their last trip. Thus, Paul intended to discipline Mark so that he could learn, but Barnabas was opinionated. He quarreled with Paul, and there was a big division.
+
+When Paul was a new convert, Barnabas ushered him into the church and into the ministry ([[Acts-11#v22|11:22-26]]). At first, Barnabas was the one who took the lead. Even when they were sent on their first trip, Barnabas was the leader at the beginning ([[Acts-13#v1|13:1-2]]). Later in their journey, however, Paul began to take the lead in the apostolic ministry ([[Acts-13#v9|13:9]]; [[Acts-14#v12|14:12]]). After Paul was in the lead, Barnabas eventually became opinionated, not in secular things but in the holy ministry. If the Bible did not have such a record, we could never imagine that Barnabas could be that much opinionated to insist on taking his cousin with them. Paul and Barnabas were divided not by a great doctrine such as that of the Divine Trinity but because of Barnabas’s cousin.
+
+### THE TROUBLE OF APOLLOS’S OLDNESS AND OPINION
+
+Another trouble arose later with a new Jewish convert named Apollos. He was acquainted with the Bible and eloquent in teaching the Bible. A great number of people were helped through his teaching, yet he was behind in the revelation of God’s up-to-date economy. He knew only the baptism of John. He did not know that there was an advance after John. That advance was the baptism in the name of the Lord Jesus, the Son of God. If you read only [[Acts-14#v24|18:24-28]], you may admire Apollos. This positive record shows that he was very much helped in the way of God by Aquila and Priscilla. This couple was up-to-date with God’s present-day economy, and they helped him.
+
+But [[Acts-19|chapter 19 of Acts]] shows us the unique result of Apollos’s work in Ephesus. This result shows us that he did not change. If he had been adjusted by Aquila and Priscilla, he would have adjusted the twelve disciples in Ephesus who had been baptized only into John’s baptism ([[Acts-19#v1|vv. 1-7]]). He would have told them that they needed to be baptized again into the name of the Lord Jesus. He would have said, “I’m sorry that I haven’t brought you into the present move of God’s economy. I am short of this. Now I have received the help, so I want to adjust you.” If he would have done this, there would have been no need for Paul to come and help these men be baptized into the name of the Lord Jesus. This proves that although Aquila and Priscilla worked to help Apollos, he did not practice what he was helped with. This shows that it is not so easy for us to drop our old way. The best athletes are trained to drop their natural way. Good pianists also must drop their natural way and take the trained way. The natural way is the old way. 
+
+ On the one hand, Apollos was very much helped by Aquila, yet he did not practice what he was helped with. We know this because the result of his work still remained as something old. [[Acts-18|Acts 18]] says that Aquila and Priscilla taught him the way of God. Surely they would have taught him about the baptism in the name of the Lord Jesus. This was probably the first item that Aquila and Priscilla told Apollos. God did not tolerate John’s continuing in his ministry once the Lord Jesus appeared on the scene, and he was eventually beheaded. I do believe Aquila would have told Apollos about this. Those twelve disciples in Ephesus should have been adjusted by Apollos before Paul arrived, but they were not. People who read [[Acts-18|Acts 18]] admire Apollos, but [[Acts-19|Acts 19]] shows that he caused trouble. When he was in Ephesus, he left twelve there with a problem.
+
+Later Apollos brought a problem to Corinth by causing an opinion among the saints. Some there said, “I am...of Apollos” ([[1 Corinthians-01#v12|1 Cor. 1:12]]). Paul deals with the problem of division in the first four chapters of [[1 Corinthians-01|1 Corinthians]]. Then at the end of [[1 Corinthians-01|1 Corinthians]] Paul says, “Concerning our brother Apollos, I urged him many times to come to you with the brothers; yet it was not at all his desire to come now, but he will come when he has opportunity” ([[Acts-16#v12|16:12]]). This means that Paul begged Apollos to go back to Corinth. Apollos should have gone back to tell the Corinthians not to say that they were of Apollos. But Apollos told Paul that he would not go then. Instead, he would go when he had the opportunity. That was his opinion.
+
+### THE NEED TO DEAL WITH OUR OPINIONS AND OLDNESS
+
+One major thing which shows you that you are not opinionated is that you simply follow the brothers. This is not so easy, especially if you are older than the other brothers. It is also not easy for many of the sisters to follow the brothers. Some sisters may say that God is not fair, because the woman must always be under the man ([[Acts-11#v3|11:3]]). Even after they get saved and come into the church, they still hold this opinion.
+
+There was a co-worker among us many years ago who was very opinionated. Brother Nee once said to me, “This brother is a very good brother. Whenever you ask him to go west, he will go east.” The brothers got to know the peculiarity in this brother’s character, so when they wanted him to go west, they would ask him to go east. Then he would go west. This kind of nature is still in our blood. We are not so willing to follow others.
+
+At the time Paul wrote [[1 Corinthians-01|1 Corinthians]], everyone knew that he was a leading one. If such a leading one proposes something to you, you should take his proposal. At that time Paul had a heavy burden for the church in Corinth. Some there were saying that they were of Apollos. Surely if Apollos would have gone there, his going would have been a great help. I believe Paul explained this to him when he advised him to go to see them, but Apollos refused to go. In principle, Apollos should have gone even out of politeness, but he was so strong to say that he would go at another time. He did not want to go at Paul’s proposal but at his convenience. This was his opinion.
+
+There are a number of ways to take from Anaheim to the airport in Los Angeles. Sometimes the brothers may have different opinions about which way to take. The more they discuss which way to take, however, the more time they waste. It is better to let the driver of the car make the decision, and not express any opinion.
+
+Throughout the years I have seen the damage caused by opinions. When I was in mainland China with Brother Nee, he was like a big umbrella taking the lead. All the troubles from opinions went to him. Then the Lord brought me out of China and put me in the Western world, where I had to take the lead. I saw the damage caused by different opinions. Very rarely did I adjust these opinions, because I do not like to make an issue of anything.
+
+Now that you are in the full-time training, you have to learn how to take the regulations. Regulations do not give you any ground for opinion. When you drive a car, you have your choice, but when you get on a train, you do not have any choice. Now that you are in the training, you are on the train. That means you are under the regulations. The training gives you the regulations to help you grow in life, and these regulations spontaneously kill your opinion.
+
+I have seen many of the Lord’s servants through the years. The most useful ones are the ones without opinions. They do not care for their opinions. They care for only one thing—the main goal. They stick themselves to the main goal, which is the carrying out of God’s purpose. If a driver’s main purpose is to get to the airport in Los Angeles, what way we take to get there does not really matter. To debate about which way to take is to waste time. You have to learn how to stick yourself to the main goal. Forget about different ways to express your opinion. You young saints who are learning how to serve must learn this one thing.
+
+The thirty items of a proper character, to which I referred in the previous chapter, are very helpful to us. But in another sense, each of these items is your enemy. Each item is your enemy because each item regulates you. This regulation is a killing. Each of the thirty items of a proper character kills your opinion. Your problem in serving the Lord is your opinion.
+
+One trainee told us that the rooms in which the trainees stayed were too small. Every opinionated person is a good-hearted one. If you did not have a heart for anything, you would have no opinion. A piece of stone has no opinion, but because your heart is strong and good, you have an opinion. If you did not have a heart for others, you would have no opinion. Because this trainee had a good heart for the other trainees, his opinion came out. When you come to a new place and do not express any opinion, that is wonderful.
+
+When I was young, I read a story about a father and a boy with a donkey. When they went through one village, neither of them rode on the donkey. Some people in that village criticized them by saying, “Why doesn’t one of them ride on the donkey?” Then the father told the son to ride on the donkey. When they passed through the second village, somebody criticized them by saying, “This little boy is no good. His father is so old, but he rides and his father walks.” When they heard this criticism, the father decided to ride on the donkey. Then they passed through the third village, and some there criticized the father for riding on the donkey and making his son walk. Eventually, due to all this criticism, they got rid of the donkey. That meant they got rid of the item for people to criticize. All such criticisms are opinions. We have to admit that we are absolutely like this. If I did not have the mercy based upon what the Lord has been teaching me through the years, my opinions might be much more than yours.
+
+All the guests who stay in others’ homes have opinions about the way things are there. I have learned the lesson by the Lord’s mercy that when I am someone’s guest, I would go only to the place that my host assigned to me. I would eat whatever is set before me without any opinion. Could you learn not to express any opinion in any kind of situation? If you learn this lesson, you will be useful in the Lord’s hand. 
+
+Both opinions and oldness are big enemies to us. For us to be useful in the Lord’s hand we must deal with these things. I have been reading the Bible for many years, and I have expounded the entire New Testament. But whenever I come to a portion of the Word, I do not consider that I know that much, because I want to see more. If I could have another series of life-studies on the twenty-seven books of the New Testament, these life-studies would be new and different. Our understanding of the Word should not be set or settled. We must always keep ourselves so young, new, and fresh with a learning and open spirit when we come to the Bible.
+
+The technology in the world is always improving, but much of the time we remain the same in the Lord’s work. If we stay in our oldness, the Lord cannot move on. We must learn these two things—never to be old and not to have any opinion. I assure you that if you would not be old, revelation will come to you every day. Oldness covers your view and causes you to be opaque. It covers your inner eyes to prevent you from seeing something new of the Lord. The trouble with today’s Christianity is oldness. They say they keep the truth, but actually they are keeping their oldness. They would not have any kind of adjustment according to the revelation of the Bible. Peter and Apollos both remained in their oldness. To remain in their oldness was for them to be natural.
+
+Your oldness will kill you, and your opinion will bury you. Look at the real situation. Out of one hundred, it is difficult to find five who are not old and who are without opinion. In this training you have to practice what I have told you. First, we saw that life grows by regulation toward maturity and function. Then we saw that oldness is versus revelation and that opinion is versus obedience. If you are an opinionated person, you cannot obey anyone.
+
+This is not a message to stir you up. This is a message that would put you down in your oldness and in your opinion. These two things are the prominent troubles in the book of Acts. While the Lord was going on in His move with Peter, the Lord encountered trouble. The Lord wanted to go on from the Jews to the Gentiles, to the ones who were unclean in the eyes of the Jews. He wanted Peter to contact them. For Peter to eat the unclean things was for him to contact the Gentiles, but Peter had his old concept.
+
+The apostle Paul, however, was bold to go to the Gentiles. He did not just eat with them, but he went to the Gentiles, city after city, to set up churches among them. He took the vision and dropped the oldness. He was altogether new. Before he met the Lord on the road to Damascus, he was very stubborn, but his revelation caused him to drop his oldness.
+
+Paul was more stubborn than Peter, but Peter did not drop his oldness thoroughly and absolutely. We know this because of what Paul tells us in Galatians 2 . Peter shrank back from eating with the Gentile believers out of fear of those of the circumcision ([[Acts-11#v11|vv. 11-13]]). This shows that Peter was not absolute. Although Paul was younger than Peter, he rebuked Peter to his face for his hypocrisy.
+
+It is hard to see any signs in the New Testament that Paul was opinionated. Yet we see two persons related to him who were very opinionated—Barnabas and Apollos. On the one hand, Paul had trouble with Barnabas’s opinion; on the other hand, he had trouble with Apollos’s opinion. So these two dear brothers were through with working together with Paul. Aquila was different. Timothy was also different. When Paul asked Timothy to remain somewhere, he remained ([[1 Timothy-01#v3|1 Tim. 1:3]]). When Paul asked Timothy to come to him, he came ([[2 Timothy-04#v21|2 Tim. 4:21a]]). Apollos was a good brother who knew the Bible, but when Paul urged him to go to Corinth, he would not go. He did not want to go at Paul’s desire but at his desire. Today in the ministry we have the same trouble.
+
+The full-time training is to train you to take the regulations. That means that you are being trained to drop the oldness and you are learning not to have any opinions. You have to get out of your oldness. Also, as long as the church and the ministry are going on toward the main goal, you have to forget your opinions.
+
+
+
+# overflow
+
+Tim Huang - when our oldness is expressed, it becomes opinions... The Lord did not say "get behind me peter" when he expressed his opinion, showing that opinions is the expression of Satan. One thing I am learning is 1 Thes. 5:17 - unceasingly pray and be slow to speak... the principle - Satan is always trying to get ahead of the Lrod... so oftentimes in our experience, the first thing that comes up in our mind is not from the Lrod but Satan... when this happens, we learn to bring it back to the Lord, and he will show us whether we should express it or not
+
+Andrew mal - there is a way to go on... we just need to tell Satan to go away, and look to the living one who reveals himself to us. Actualy, these revelations COME from the regulations, when we are put under these regulations, we reciev more christ because we contact him more. PTL we are in the training dear saints! This is the way to grow in life!
+
+Paul Hud - we are opinionated because we have a good heart - he does not care about a good hear tthough, but a heart duplicated by his heart... He needs to be our newnes and the obedient one in us. may we open to Him continually that we would respond to his regulation
+
+Before the training, i knew i had opninions, but here i realized my constitution is just opinions."How do i not have an opinoin? This is the lesson of the cross - hallelujah we can be exposed by the regulation  and come to the Lord to apply the cross and learn the lesson of the corss. Since we have a heaart for the Lord, we need to deal with our heart... nothing natural does the body life allow - it does not allow our opnioins
+
+bethany ta - PTl for regulations, life grows by reguation - the proper regulation comes from revelation... the apostle paul had an inward revelation, which changed his opniion and oldness... in the Training we have many opporuntities to be regulated by life... we think "i can't do it" but we have to come to the Lord... brother Lee said it is by the lords mercy that He didn't have many opinoins as he could have had at his age.

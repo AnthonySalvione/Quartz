@@ -1,6 +1,6 @@
 ## v1
 
-On that day they read in the book of Moses in the hearing of the people; and it was found written in it that no Ammonite or Moabite should enter the assembly of God forever,
+On that day they read in the book of Moses in the hearing of the people; and it was found written in it that no [[Nehemiah-13.fn#Footnote 1.1 — Ammonite|Ammonite]] or Moabite should enter the assembly of God forever,
 
 ## v2
 
@@ -116,7 +116,7 @@ Remember them, O my God; for they have defiled the priesthood and the covenant o
 
 ## v30
 
-Thus I cleansed them from everything foreign. And I appointed duties for the priests and the Levites, each in his work,
+Thus I [[Nehemiah-13.fn#Footnote 30.1 — cleansed|cleansed]] them from everything foreign. And I appointed duties for the priests and the Levites, each in his work,
 
 ## v31
 

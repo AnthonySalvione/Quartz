@@ -3,15 +3,15 @@ Author: Luke
 ---
 ## v1
 
-And certain men came down from Judea and began to teach the brothers, Unless you are circumcised according to the custom of Moses, you cannot be saved.
+And certain men [[Acts-15.fn#Footnote 1.1 — came|came]] down from Judea and began to teach the brothers, [[Acts-15.fn#Footnote 1.2 — Unless|Unless]] you are [[Acts-15.fn#Footnote 1.3 — circumcised|circumcised]] according to the [[Acts-15.fn#Footnote 1.4 — custom|custom]] of Moses, you cannot be saved.
 
 ## v2
 
-And when no little dissension and discussion with them came about through Paul and Barnabas, the brothers directed Paul and Barnabas and certain others among them to go up to the apostles and elders in Jerusalem concerning this question.
+And when no little [[Acts-15.fn#Footnote 2.1 — dissension|dissension]] and discussion with them came about through Paul and Barnabas, the brothers directed Paul and Barnabas and certain others among them to go up to the apostles and elders in [[Acts-15.fn#Footnote 2.2 — Jerusalem|Jerusalem]] concerning this question.
 
 ## v3
 
-They therefore, having been sent forward by the church, passed through both Phoenicia and Samaria, telling in detail about the turning of the Gentiles; and they brought great joy to all the brothers.
+They therefore, having been sent forward by the [[Acts-15.fn#Footnote 3.1 — church|church]], passed through both Phoenicia and Samaria, telling in detail about the turning of the Gentiles; and they brought great joy to all the brothers.
 
 ## v4
 
@@ -19,15 +19,15 @@ And when they arrived in Jerusalem, they were received by the church and the apo
 
 ## v5
 
-But certain men from the sect of the Pharisees who had believed rose up from among them, saying, It is necessary to circumcise them and to charge them to keep the law of Moses.
+But certain men from the sect of the [[Acts-15.fn#Footnote 5.1 — Pharisees|Pharisees]] who had believed rose up from among them, saying, It is necessary to [[Acts-15.fn#Footnote 5.2 — circumcise|circumcise]] them and to charge them to [[Acts-15.fn#Footnote 5.3 — keep|keep]] the law of Moses.
 
 ## v6
 
-And the apostles and the elders were gathered together to see about this matter.
+And the apostles and the elders were [[Acts-15.fn#Footnote 6.1 — gathered|gathered]] together to see about this matter.
 
 ## v7
 
-And when much discussion had taken place, Peter rose up and said to them, Men, brothers, you know that from the early days God chose from among you that through my mouth the Gentiles should hear the word of the gospel and believe.
+And when much discussion had taken place, Peter rose up and said to them, [[Acts-15.fn#Footnote 7.1 — Men|Men]], brothers, you know that from the [[Acts-15.fn#Footnote 7.2 — early|early]] days God chose from among you that through my mouth the Gentiles should hear the word of the gospel and believe.
 
 ## v8
 
@@ -35,15 +35,15 @@ And God, the Knower of hearts, bore witness to them, giving them the Holy Spirit
 
 ## v9
 
-And He made no distinction between us and them, cleansing their hearts by faith.
+And He made no distinction between us and them, cleansing their [[Acts-15.fn#Footnote 9.1 — hearts|hearts]] by faith.
 
 ## v10
 
-Therefore why are you now testing God by placing a yoke upon the neck of the disciples which neither our fathers nor we were able to bear?
+Therefore why are you now testing God by placing a [[Acts-15.fn#Footnote 10.1 — yoke|yoke]] upon the neck of the disciples which neither our fathers nor we were able to bear?
 
 ## v11
 
-But we believe that through the grace of the Lord Jesus we are saved in the same way also as they are.
+But we believe that through the [[Acts-15.fn#Footnote 11.1 — grace|grace]] of the Lord Jesus we are saved in the same way also as they are.
 
 ## v12
 
@@ -51,11 +51,11 @@ And all the multitude became silent, and they listened to Barnabas and Paul rela
 
 ## v13
 
-And when they finished speaking, James answered, saying, Men, brothers, listen to me.
+And when they [[Acts-15.fn#Footnote 13.1 — finished|finished]] speaking, James answered, saying, [[Acts-15.fn#Footnote 13.2 — Men|Men]], brothers, listen to me.
 
 ## v14
 
-Simeon has related how God first visited the Gentiles to take out from them a people for His name.
+[[Acts-15.fn#Footnote 14.1 — Simeon|Simeon]] has related how God first visited the Gentiles to take out from them a people for His name.
 
 ## v15
 
@@ -63,15 +63,15 @@ And with this the words of the prophets agree, even as it is written,
 
 ## v16
 
-“After these things I will return, and I will rebuild the tabernacle of David which has fallen; and I will rebuild its ruins and erect it again,
+“After these things I will return, and I will rebuild the [[Acts-15.fn#Footnote 16.1 — tabernacle|tabernacle]] of David which has fallen; and I will rebuild its ruins and erect it again,
 
 ## v17
 
-So that the remainder of men may seek out the Lord, even all the Gentiles upon whom My name has been called,
+So that the remainder of men may seek out the Lord, even all the Gentiles [[Acts-15.fn#Footnote 17.1 — upon|upon]] whom My name has been called,
 
 ## v18
 
-Says the Lord, who is making these things known from of old.”
+Says the Lord, who is making these things known [[Acts-15.fn#Footnote 18.1 — from|from]] of old.”
 
 ## v19
 
@@ -83,7 +83,7 @@ But that we write to them to abstain from the contaminations of idols and fornic
 
 ## v21
 
-For Moses from ancient generations has in every city those who proclaim him in the synagogues, he being read every Sabbath.
+For [[Acts-15.fn#Footnote 21.1 — Moses|Moses]] from ancient generations has in every city those who proclaim him in the [[Acts-15.fn#Footnote 21.2 — synagogues|synagogues]], he being read every Sabbath.
 
 ## v22
 
@@ -103,7 +103,7 @@ It seemed good to us, having become of one accord, to choose men to send to you 
 
 ## v26
 
-Men who have risked their lives for the name of our Lord Jesus Christ.
+Men who have [[Acts-15.fn#Footnote 26.1 — risked|risked]] their [[Acts-15.fn#Footnote 26.2 — lives|lives]] for the name of our Lord Jesus Christ.
 
 ## v27
 
@@ -127,7 +127,7 @@ And when they read it, they rejoiced at the encouragement.
 
 ## v32
 
-And Judas and Silas, also being prophets themselves, exhorted the brothers through much speaking and confirmed them.
+And Judas and Silas, also being [[Acts-15.fn#Footnote 32.1 — prophets|prophets]] themselves, exhorted the brothers through much speaking and confirmed them.
 
 ## v33
 
@@ -135,7 +135,7 @@ And when they had spent some time there, they were sent away with peace from the
 
 ## v34
 
-But it seemed good to Silas to remain there.
+[[Acts-15.fn#Footnote 34.1 — But|But]] it seemed good to Silas to remain there.
 
 ## v35
 
@@ -155,11 +155,11 @@ But Paul did not consider it suitable to take with them this one who withdrew fr
 
 ## v39
 
-And there was a sharp contention, so that they separated from each other; and Barnabas, taking Mark along, sailed away to Cyprus.
+And there was a [[Acts-15.fn#Footnote 39.1 — sharp|sharp]] contention, so that they separated from each other; and Barnabas, taking Mark along, sailed away to Cyprus.
 
 ## v40
 
-But Paul chose Silas and went out, having been commended to the grace of the Lord by the brothers.
+But Paul chose Silas and [[Acts-15.fn#Footnote 40.1 — went|went]] out, having been commended to the grace of the Lord by the brothers.
 
 ## v41
 

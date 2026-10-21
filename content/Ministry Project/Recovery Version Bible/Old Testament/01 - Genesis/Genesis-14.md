@@ -8,7 +8,7 @@ These kings made war with Bera the king of Sodom and with Birsha the king of Gom
 
 ## v3
 
-All these joined together in the valley of Siddim (that is, the Salt Sea).
+All these joined together in the valley of Siddim (that is, the [[Genesis-14.fn#Footnote 3.1 — Salt|Salt]] Sea).
 
 ## v4
 
@@ -48,7 +48,7 @@ And they took Lot, Abram’s brother’s son, and his possessions and departed, 
 
 ## v13
 
-And one who had escaped came and told Abram the Hebrew. Now he was dwelling by the oaks of Mamre the Amorite, the brother of Eshcol and the brother of Aner; and these were allies of Abram.
+And one who had escaped came and told Abram the [[Genesis-14.fn#Footnote 13.1 — Hebrew|Hebrew]]. Now he was dwelling by the oaks of Mamre the Amorite, the brother of Eshcol and the brother of Aner; and these were allies of Abram.
 
 ## v14
 
@@ -68,19 +68,19 @@ And after his return from the slaughter of Chedorlaomer and the kings who were w
 
 ## v18
 
-And Melchizedek the king of Salem brought out bread and wine. Now he was priest of God the Most High.
+And [[Genesis-14.fn#Footnote 18.1 — Melchizedek|Melchizedek]] the king of [[Genesis-14.fn#Footnote 18.2 — Salem|Salem]] brought out bread and wine. Now he was [[Genesis-14.fn#Footnote 18.3 — priest|priest]] of God the Most High.
 
 ## v19
 
-And he blessed him and said,  
+And he [[Genesis-14.fn#Footnote 19.1 — blessed|blessed]] him and said,  
 Blessed be Abram of God the Most High, /  
-Possessor of heaven and earth;
+[[Genesis-14.fn#Footnote 19.2 — Possessor|Possessor]] of heaven and earth;
 
 ## v20
 
 And blessed be God the Most High, /  
 Who has delivered your enemies into your hand.  
-And Abram gave him a tenth of all.
+And [[Genesis-14.fn#Footnote 20.1 — Abram|Abram]] gave him a tenth of all.
 
 ## v21
 
@@ -92,7 +92,7 @@ But Abram said to the king of Sodom, I have lifted up my hand to Jehovah, God th
 
 ## v23
 
-That I will not take a thread or a sandal thong or anything that is yours, lest you say, I have made Abram rich;
+That I will [[Genesis-14.fn#Footnote 23.1 — not|not]] take a thread or a sandal thong or anything that is yours, lest you say, I have made Abram rich;
 
 ## v24
 

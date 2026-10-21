@@ -1,6 +1,6 @@
 ## v1
 
-And Jehovah said to Samuel, How long will you mourn for Saul, though I have rejected him from being king over Israel? Fill your horn with oil, and go; I will send you to Jesse the Bethlehemite; for I have selected for Myself a king among his sons.
+And Jehovah said to Samuel, How long will you mourn for Saul, though I have rejected him from being king over Israel? Fill your horn with oil, and [[1 Samuel-16.fn#Footnote 1.1 — go|go]]; I will send you to Jesse the Bethlehemite; for I have [[1 Samuel-16.fn#Footnote 1.2 — selected|selected]] for Myself a king among his sons.
 
 ## v2
 
@@ -28,7 +28,7 @@ But Jehovah said to Samuel, Do not regard his appearance and the height of his s
 
 ## v8
 
-Then Jesse called Abinadab and had him pass before Samuel; and Samuel said, Jehovah has not chosen this one either.
+Then Jesse called Abinadab and had him pass before Samuel; and [[1 Samuel-16.fn#Footnote 8.1 — Samuel|Samuel]] said, Jehovah has not chosen this one either.
 
 ## v9
 
@@ -36,11 +36,11 @@ And Jesse had Shammah pass by; and he said, Jehovah has not chosen this one eith
 
 ## v10
 
-And Jesse had seven of his sons pass before Samuel; and Samuel said to Jesse, Jehovah has not chosen these.
+And Jesse had [[1 Samuel-16.fn#Footnote 10.1 — seven|seven]] of his sons pass before Samuel; and Samuel said to Jesse, Jehovah has not chosen these.
 
 ## v11
 
-Then Samuel said to Jesse, Are these all the young men you have? And he said, There is still the youngest, but he is now tending the sheep. And Samuel said to Jesse, Send for him, and bring him; for we will not sit down until he comes here.
+Then Samuel said to Jesse, Are these all the young men you have? And he said, There is still the [[1 Samuel-16.fn#Footnote 11.1 — youngest|youngest]], but he is now tending the sheep. And Samuel said to Jesse, Send for him, and bring him; for we will not sit down until he comes here.
 
 ## v12
 
@@ -48,7 +48,7 @@ So he sent for him and brought him in. Now he was ruddy and had beautiful eyes a
 
 ## v13
 
-And Samuel took the horn of oil and anointed him in the midst of his brothers, and the Spirit of Jehovah rushed upon David from that day forward. Then Samuel rose up and went to Ramah.
+And Samuel took the horn of oil and anointed him in the midst of his brothers, and the Spirit of Jehovah [[1 Samuel-16.fn#Footnote 13.1 — rushed|rushed]] upon [[1 Samuel-16.fn#Footnote 13.2 — David|David]] from that day forward. Then Samuel rose up and went to Ramah.
 
 ## v14
 
@@ -72,7 +72,7 @@ And one of the attendants answered and said, I have just seen a son of Jesse the
 
 ## v19
 
-So Saul sent messengers to Jesse and said, Send me David your son, who is among the sheep.
+So Saul sent messengers to Jesse and said, Send me [[1 Samuel-16.fn#Footnote 19.1 — David|David]] your son, who is among the sheep.
 
 ## v20
 
@@ -80,7 +80,7 @@ And Jesse took a donkey laden with bread and a skin of wine and a kid, and sent 
 
 ## v21
 
-And David came to Saul and entered his service. And Saul loved him greatly, and he became his armor bearer.
+And David came to [[1 Samuel-16.fn#Footnote 21.2 — Saul|Saul]] and [[1 Samuel-16.fn#Footnote 21.1 — entered|entered]] his service. And Saul loved him greatly, and he became his armor bearer.
 
 ## v22
 

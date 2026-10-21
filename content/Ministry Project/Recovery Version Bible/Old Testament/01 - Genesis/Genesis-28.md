@@ -8,7 +8,7 @@ Rise up, go to Paddan-aram, to the house of Bethuel your mother’s father; and 
 
 ## v3
 
-And may the All-sufficient God bless you and make you fruitful and multiply you, that you may become a company of peoples.
+And may the [[Genesis-28.fn#Footnote 3.1 — All-sufficient|All-sufficient]] God bless you and make you fruitful and multiply you, that you may become a company of peoples.
 
 ## v4
 
@@ -40,15 +40,15 @@ And Jacob went out from Beer-sheba and went toward Haran.
 
 ## v11
 
-And he came to a certain place and spent the night there, because the sun had set. And he took one of the stones of the place and put it under his head, and he lay down in that place.
+And he came to a certain place and spent the night there, because the sun had set. And he took one of the stones of the place and [[Genesis-28.fn#Footnote 11.1 — put|put]] it under his head, and he lay down in that place.
 
 ## v12
 
-And he dreamed that there was a ladder set up on the earth, and its top reached to heaven; and there the angels of God were ascending and descending on it.
+And he [[Genesis-28.fn#Footnote 12.1 — dreamed|dreamed]] that there was a [[Genesis-28.fn#Footnote 12.2 — ladder|ladder]] set up on the earth, and its top reached to heaven; and there the [[Genesis-28.fn#Footnote 12.3 — angels|angels]] of God were ascending and descending on it.
 
 ## v13
 
-And there was Jehovah, standing above it; and He said, I am Jehovah, the God of Abraham your father and the God of Isaac. The land on which you lie, I will give to you and to your seed.
+And there was Jehovah, standing above it; and He said, I am Jehovah, the [[Genesis-28.fn#Footnote 13.1 — God|God]] of Abraham your father and the [[Genesis-28.fn#Footnote 13.1 — God|God]] of Isaac. The [[Genesis-28.fn#Footnote 13.2 — land|land]] on which you lie, I will give to you and to your [[Genesis-28.fn#Footnote 13.2 — land|seed]].
 
 ## v14
 
@@ -64,7 +64,7 @@ And Jacob awoke from his sleep and said, Surely Jehovah is in this place, and I 
 
 ## v17
 
-And he was afraid and said, How awesome is this place! This is none other than the house of God, and this is the gate of heaven.
+And he was afraid and said, How awesome is this place! This is none other than the house of God, and this is the [[Genesis-28.fn#Footnote 17.1 — gate|gate]] of heaven.
 
 ## v18
 
@@ -72,7 +72,7 @@ And Jacob rose up early in the morning and took the stone that he had put under 
 
 ## v19
 
-And he called the name of that place Bethel, but the name of the city was Luz previously.
+And he called the name of that place [[Genesis-28.fn#Footnote 19.1 — Bethel|Bethel]], but the name of the city was Luz previously.
 
 ## v20
 

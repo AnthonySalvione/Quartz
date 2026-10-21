@@ -8,7 +8,7 @@ And they said, Jehovah commanded my lord to give the land for inheritance by lot
 
 ## v3
 
-But if they are married to one of the sons of the other tribes of the children of Israel, then their inheritance will be taken away from the inheritance of our fathers and will be added to the inheritance of the tribe to which they belong; so it will be taken away from the lot of our inheritance.
+But if they [[Numbers-36.fn#Footnote 3.1 — are|are]] married to one of the sons of the other tribes of the children of Israel, then their inheritance will be taken away from the inheritance of our fathers and will be added to the inheritance of the tribe to which they belong; so it will be taken away from the lot of our inheritance.
 
 ## v4
 
@@ -20,15 +20,15 @@ Then Moses commanded the children of Israel according to the word of Jehovah, sa
 
 ## v6
 
-This is what Jehovah commands concerning the daughters of Zelophehad, saying, Let them be married to whom they think best; only into the family of the tribe of their father they shall marry.
+This is what Jehovah commands concerning the daughters of Zelophehad, saying, Let them be [[Numbers-36.fn#Footnote 6.1 — married|married]] to whom they think best; only into the family of the tribe of their father they shall marry.
 
 ## v7
 
-So an inheritance of the children of Israel shall not go around from tribe to tribe, for each one of the children of Israel shall cling to the inheritance of the tribe of his fathers.
+So an inheritance of the children of Israel shall not go around from tribe to tribe, for each one of the children of Israel shall [[Numbers-36.fn#Footnote 7.1 — cling|cling]] to the inheritance of the tribe of his fathers.
 
 ## v8
 
-And every daughter who possesses an inheritance in any tribe of the children of Israel shall marry into one of the family of the tribe of her father, so that each one of the children of Israel may possess the inheritance of his fathers.
+And every daughter who possesses an inheritance in any tribe of the children of Israel shall [[Numbers-36.fn#Footnote 8.1 — marry|marry]] into one of the family of the tribe of her father, so that each one of the children of Israel may possess the inheritance of his fathers.
 
 ## v9
 
@@ -48,4 +48,4 @@ They married into the families of the sons of Manasseh the son of Joseph, and th
 
 ## v13
 
-These are the commandments and the ordinances which Jehovah commanded through Moses to the children of Israel in the plains of Moab by the Jordan at Jericho.
+These are the commandments and the ordinances which Jehovah commanded through Moses to the children of Israel in the plains of Moab by the [[Numbers-36.fn#Footnote 13.1 — Jordan|Jordan]] at Jericho.

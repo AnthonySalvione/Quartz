@@ -22,7 +22,7 @@ So He came to a city of Samaria called Sychar, near the piece of land that Jacob
 
 ## v6
 
-And Jacob’s well was there. Jesus therefore, being wearied from the journey, sat thus by the well; it was about the sixth hour.
+And Jacob’s [[John-04.fn#Footnote 6.1 — well|well]] was there. Jesus therefore, being wearied from the journey, sat thus by the well; it was about the [[John-04.fn#Footnote 6.2 — sixth|sixth]] hour.
 
 ## v7
 
@@ -34,7 +34,7 @@ For His disciples had gone away into the city to buy food.
 
 ## v9
 
-The Samaritan woman then said to Him, How is it that You, being a Jew, ask for a drink from me, who am a Samaritan woman? (For Jews have no dealings with Samaritans.)
+The Samaritan woman then said to Him, How is it that You, being a Jew, ask for a drink from me, who am a Samaritan woman? (For Jews have no dealings with [[John-04.fn#Footnote 9.1 — Samaritans|Samaritans]].)
 
 ## v10
 
@@ -50,11 +50,11 @@ Are You greater than our father Jacob, who gave us the well and drank of it hims
 
 ## v13
 
-Jesus answered and said to her, Everyone who drinks of this water shall thirst again,
+Jesus answered and said to her, Everyone who [[John-04.fn#Footnote 13.1 — drinks|drinks]] of this water shall thirst again,
 
 ## v14
 
-But whoever drinks of the water that I will give him shall by no means thirst forever; but the water that I will give him will become in him a fountain of water springing up into eternal life.
+But whoever drinks of the water that I will give him shall by no means thirst forever; but the water that I will give him will become in him a fountain of water springing up into [[John-04.fn#Footnote 14.1 — eternal|eternal]] life.
 
 ## v15
 
@@ -62,7 +62,7 @@ The woman said to Him, Sir, give me this water so that I will not thirst nor com
 
 ## v16
 
-He said to her, Go, call your husband and come here.
+He said to her, Go, [[John-04.fn#Footnote 16.1 — call|call]] your husband and come here.
 
 ## v17
 
@@ -70,7 +70,7 @@ The woman answered and said, I do not have a husband. Jesus said to her, You hav
 
 ## v18
 
-For you have had five husbands, and the one you now have is not your husband; this you have said truly.
+For you have had [[John-04.fn#Footnote 18.1 — five|five]] husbands, and the one you now have is not your husband; this you have said truly.
 
 ## v19
 
@@ -78,7 +78,7 @@ The woman said to Him, Sir, I perceive that You are a prophet.
 
 ## v20
 
-Our fathers worshipped in this mountain, yet you say that in Jerusalem is the place where men must worship.
+[[John-04.fn#Footnote 20.1 — Our|Our]] fathers worshipped in this mountain, yet you say that in Jerusalem is the place where men must worship.
 
 ## v21
 
@@ -94,7 +94,7 @@ But an hour is coming, and it is now, when the true worshippers will worship the
 
 ## v24
 
-God is Spirit, and those who worship Him must worship in spirit and truthfulness.
+[[John-04.fn#Footnote 24.1 — God|God]] is [[John-04.fn#Footnote 24.2 — Spirit|Spirit]], and those who [[John-04.fn#Footnote 24.3 — worship|worship]] Him must worship in [[John-04.fn#Footnote 24.4 — spirit|spirit]] and [[John-04.fn#Footnote 24.5 — truthfulness|truthfulness]].
 
 ## v25
 
@@ -102,7 +102,7 @@ The woman said to Him, I know that Messiah is coming (He who is called Christ); 
 
 ## v26
 
-Jesus said to her, I, who speak to you, am He.
+Jesus said to her, [[John-04.fn#Footnote 26.1 — I|I]], who speak to you, am He.
 
 ## v27
 
@@ -110,11 +110,11 @@ And at this point His disciples came, and they marveled that He was speaking wit
 
 ## v28
 
-Then the woman left her waterpot and went away into the city, and said to the people,
+Then the woman [[John-04.fn#Footnote 28.1 — left|left]] her waterpot and went away into the city, and said to the people,
 
 ## v29
 
-Come, see a man who told me all that I have done. Is this not the Christ?
+Come, see a man who told me all that I have done. [[John-04.fn#Footnote 29.1 — Is|Is]] this not the Christ?
 
 ## v30
 
@@ -126,7 +126,7 @@ In the meantime, the disciples urged Him, saying, Rabbi, eat.
 
 ## v32
 
-But He said to them, I have food to eat that you do not know about.
+But He said to them, [[John-04.fn#Footnote 32.1 — I|I]] have food to eat that you do not know about.
 
 ## v33
 
@@ -142,7 +142,7 @@ Do you not say that there are yet four months and then the harvest comes? Behold
 
 ## v36
 
-He who reaps receives wages and gathers fruit unto eternal life, in order that he who sows and he who reaps may rejoice together.
+He who reaps receives wages and gathers fruit [[John-04.fn#Footnote 36.1 — unto|unto]] [[John-04.fn#Footnote 36.2 — eternal|eternal]] life, in order that he who sows and he who reaps may rejoice together.
 
 ## v37
 
@@ -150,7 +150,7 @@ For in this the saying is true, One sows and another reaps.
 
 ## v38
 
-I sent you to reap that for which you have not labored; others have labored, and you have entered into their labor.
+I sent you to reap that for which you have not labored; [[John-04.fn#Footnote 38.1 — others|others]] have labored, and you have entered into their labor.
 
 ## v39
 
@@ -174,7 +174,7 @@ And after the two days He went forth from there into Galilee,
 
 ## v44
 
-For Jesus Himself testified that a prophet has no honor in his own country.
+For Jesus Himself testified that a prophet has [[John-04.fn#Footnote 44.1 — no|no]] honor in his own country.
 
 ## v45
 
@@ -182,7 +182,7 @@ Then when He came into Galilee, the Galileans received Him, having seen all that
 
 ## v46
 
-He then came again to Cana of Galilee, where He had made the water wine. And there was a certain royal official, whose son was sick in Capernaum.
+He then came again to [[John-04.fn#Footnote 46.1 — Cana|Cana]] of [[John-04.fn#Footnote 46.2 — Galilee|Galilee]], where He had made the water wine. And there was a certain royal official, whose son was sick in Capernaum.
 
 ## v47
 
@@ -198,7 +198,7 @@ The royal official said to Him, Sir, come down before my little child dies.
 
 ## v50
 
-Jesus said to him, Go, your son lives. The man believed the word which Jesus said to him and went his way.
+Jesus said to him, Go, your son lives. The man believed the [[John-04.fn#Footnote 50.1 — word|word]] which Jesus said to him and went his way.
 
 ## v51
 
@@ -206,7 +206,7 @@ And as he was now going down, his slaves met him and said that his child was liv
 
 ## v52
 
-So he asked them the hour in which he got better. They said then to him, Yesterday at the seventh hour the fever left him.
+So he asked them the hour in which he got better. They said then to him, Yesterday at the [[John-04.fn#Footnote 52.1 — seventh|seventh]] hour the fever left him.
 
 ## v53
 
@@ -214,4 +214,4 @@ Then the father knew that it was in that hour in which Jesus said to him, Your s
 
 ## v54
 
-Again, this second sign Jesus performed when He came out of Judea into Galilee.
+Again, this [[John-04.fn#Footnote 54.1 — second|second]] sign Jesus performed when He came out of Judea into Galilee.

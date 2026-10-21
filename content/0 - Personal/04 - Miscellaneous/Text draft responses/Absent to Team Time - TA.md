@@ -1,0 +1,5 @@
+Hey Andrew, I have a few things I need to update you on:
+
+Firstly, I was marked absent for our 3pm team time on Sunday. I tried to explain what happened on the attendance slip, but basically I was tasked (by my team overseer) with dropping off multiple college students at their houses, and they lived further than I realized as well as our lunch time going late. It was just unfortunate, but felt out of my control. I arrived to team time around 18-20 minutes. I will do my best to prevent that from happening again. I was wondering if it would be okay to have a slip for that?
+
+Secondly, I was marked as absent for a recent dinner delivery service because I did not check my name off on the sheet. I was there at dinner and also aware of my service time, but there were no meals that needed to be delivered. Since I never had to grab the meals, I forgot to sign my name off on the sheet. I was wondering if that also could be excused or not?

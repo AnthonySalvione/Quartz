@@ -1,6 +1,6 @@
 ## v1
 
-And when the Canaanite, the king of Arad, who dwelt in the Negev, heard that Israel was coming by the way of Atharim, he fought against Israel and took some of them captive.
+And when the [[Numbers-21.fn#Footnote 1.1 — Canaanite|Canaanite]], the king of [[Numbers-21.fn#Footnote 1.2 — Arad|Arad]], who dwelt in the Negev, heard that Israel was coming by the way of Atharim, he fought against Israel and took some of them captive.
 
 ## v2
 
@@ -8,15 +8,15 @@ And Israel made a vow to Jehovah and said, If You will indeed deliver this peopl
 
 ## v3
 
-And Jehovah listened to the voice of Israel and delivered up the Canaanites, and they utterly destroyed them and their cities. Thus the name of the place was called Hormah.
+And Jehovah listened to the voice of Israel and delivered up the Canaanites, and they utterly destroyed them and their cities. Thus the name of the place was called [[Numbers-21.fn#Footnote 3.1 — Hormah|Hormah]].
 
 ## v4
 
-Then they journeyed from Mount Hor by the way to the Red Sea, to go around the land of Edom; and the people became impatient on the way.
+Then they journeyed from Mount Hor by the way to the Red Sea, to go around the land of Edom; and [[Numbers-21.fn#Footnote 4.1 — the|the]] people became impatient on the way.
 
 ## v5
 
-And the people spoke against God and against Moses, Why have you brought us up out of Egypt to die in the wilderness? For there is no food and there is no water; and our soul loathes this light bread.
+And the people spoke against God and against Moses, Why have you brought us up out of Egypt to die in the wilderness? For there is no food and there is no water; and our soul loathes this [[Numbers-21.fn#Footnote 5.1 — light|light]] bread.
 
 ## v6
 
@@ -28,11 +28,11 @@ And the people came to Moses and said, We have sinned, because we have spoken ag
 
 ## v8
 
-Then Jehovah said to Moses, Make a fiery serpent, and set it on a pole; and everyone who is bitten, when he sees it, shall live.
+Then Jehovah said to Moses, Make a fiery serpent, and set it on a [[Numbers-21.fn#Footnote 8.1 — pole|pole]]; and everyone who is bitten, when he sees it, shall live.
 
 ## v9
 
-And Moses made a bronze serpent and set it on the pole; and if a serpent had bitten any man, when he looked at the bronze serpent, he lived.
+And Moses made a [[Numbers-21.fn#Footnote 9.1 — bronze|bronze]] serpent and set it on the pole; and if a serpent had bitten any man, when he looked at the bronze serpent, he lived.
 
 ## v10
 
@@ -61,7 +61,7 @@ And the slope of the valleys / That inclines toward the seat of Ar / And leans t
 
 ## v16
 
-And from there they journeyed to Beer; that is the well where Jehovah said to Moses, Gather the people together, and I will give them water.
+And from there they journeyed to [[Numbers-21.fn#Footnote 16.1 — Beer|Beer]]; that is the well where Jehovah said to Moses, Gather the people together, and I will give them water.
 
 ## v17
 
@@ -70,8 +70,8 @@ Spring up, O well! Sing to it!
 
 ## v18
 
-The well, which the leaders sank,  
-Which the nobles of the people dug, / With the scepter, with their staffs.  
+The well, which the [[Numbers-21.fn#Footnote 18.1 — leaders|leaders]] sank,  
+Which the [[Numbers-21.fn#Footnote 18.1 — leaders|nobles]] of the people dug, / With the scepter, with their staffs.  
 And from the wilderness they journeyed to Mattanah;
 
 ## v19
@@ -84,7 +84,7 @@ And from Bamoth to the valley that is in the land of Moab, to the top of Pisgah,
 
 ## v21
 
-And Israel sent messengers to Sihon the king of the Amorites, saying,
+And Israel sent messengers to Sihon the king of the [[Numbers-21.fn#Footnote 21.1 — Amorites|Amorites]], saying,
 
 ## v22
 
@@ -114,7 +114,7 @@ Come to Heshbon; let it be built, / And let the city of Sihon be established.
 ## v28
 
 For fire has gone forth from Heshbon, / A flame from the city of Sihon; /  
-It has consumed Ar of Moab / And swallowed up the high places of the Arnon.
+It has consumed Ar of Moab / [[Numbers-21.fn#Footnote 28.1 — And|And]] swallowed up the high places of the Arnon.
 
 ## v29
 
@@ -125,7 +125,7 @@ To an Amorite king, Sihon.
 ## v30
 
 We have shot at them; / Heshbon is ruined as far as Dibon, /  
-And we have laid waste as far as Nophah; / Fire spreads as far as Medeba.
+And we have laid waste as far as Nophah; / [[Numbers-21.fn#Footnote 30.1 — Fire|Fire]] spreads as far as Medeba.
 
 ## v31
 
@@ -137,7 +137,7 @@ And Moses sent some to spy out Jazer. And they captured its villages and disposs
 
 ## v33
 
-And they turned and went up on the way that leads to Bashan; and Og the king of Bashan went out against them, he and all his people, for battle at Edrei.
+And they turned and went up on the way that leads to Bashan; and Og the king of [[Numbers-21.fn#Footnote 33.1 — Bashan|Bashan]] went out against them, he and all his people, for battle at Edrei.
 
 ## v34
 

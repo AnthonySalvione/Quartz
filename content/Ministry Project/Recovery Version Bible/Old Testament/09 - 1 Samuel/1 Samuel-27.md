@@ -4,7 +4,7 @@ And David said in his heart, I will now one day perish at the hand of Saul. Ther
 
 ## v2
 
-So David rose up and crossed over, he and the six hundred men who were with him, to Achish the son of Maoch, the king of Gath.
+So David rose up and [[1 Samuel-27.fn#Footnote 2.1 — crossed|crossed]] over, he and the six hundred men who were with him, to Achish the son of Maoch, the king of Gath.
 
 ## v3
 
@@ -36,7 +36,7 @@ And David struck the land; and he left neither man nor woman alive but took the 
 
 ## v10
 
-Then Achish said, Against whom have you conducted an attack today? And David said, Against the south of Judah and against the south of the Jerahmeelites and against the south of the Kenites.
+Then Achish said, [[1 Samuel-27.fn#Footnote 10.1 — Against|Against]] whom have you conducted an attack today? And David said, Against the south of Judah and against the south of the Jerahmeelites and against the south of the Kenites.
 
 ## v11
 

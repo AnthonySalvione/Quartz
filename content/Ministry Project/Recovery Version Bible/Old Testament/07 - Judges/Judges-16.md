@@ -48,7 +48,7 @@ So Delilah took new ropes and bound him with them; and she said to him, The Phil
 
 ## v13
 
-Then Delilah said to Samson, Until now you have mocked me and told me lies; tell me how you can be bound. And he said to her, If you weave the seven locks of my head with the web and fasten them with the pin onto the wall, I will become weak and be like any other man.
+Then Delilah said to Samson, Until now you have mocked me and told me lies; tell me how you can be bound. And he said to her, If you weave the seven locks of my head with the web [[Judges-16.fn#Footnote 13.1 — and|and]] fasten them with the pin onto the wall, I will become weak and be like any other man.
 
 ## v14
 
@@ -72,7 +72,7 @@ And when Delilah saw that he had told her all his heart, she sent word and calle
 
 ## v19
 
-And she put him to sleep in her lap and called for a man; and she had him shave off the seven locks of his head. And she began to afflict him, and his strength left him.
+And she put him to sleep in her lap and called for a man; and she had him shave off the seven locks of his head. And she began to afflict him, and his strength left [[Judges-16.fn#Footnote 19.1 — him|him]].
 
 ## v20
 

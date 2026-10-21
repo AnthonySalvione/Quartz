@@ -12,7 +12,7 @@ And the waters receded steadily from upon the earth. So at the end of one hundre
 
 ## v4
 
-And the ark came to rest in the seventh month, on the seventeenth day of the month, upon the mountains of Ararat.
+And the ark came to [[Genesis-08.fn#Footnote 4.1 — rest|rest]] in the seventh month, on the seventeenth day of the month, upon the mountains of Ararat.
 
 ## v5
 
@@ -24,7 +24,7 @@ And at the end of forty days Noah opened the window of the ark which he had made
 
 ## v7
 
-And he sent out the raven; and it went out, going to and fro until the waters had dried up from the earth.
+And he sent out the [[Genesis-08.fn#Footnote 7.1 — raven|raven]]; and it went out, going to and fro until the waters had dried up from the earth.
 
 ## v8
 
@@ -40,7 +40,7 @@ And he waited yet another seven days, and again he sent out the dove from the ar
 
 ## v11
 
-And the dove came to him toward evening time, and there in her beak was a freshly plucked olive leaf. So Noah knew that the waters had abated from the earth.
+And the dove came to him toward evening time, and there in her beak was a freshly plucked [[Genesis-08.fn#Footnote 11.1 — olive|olive]] leaf. So Noah knew that the waters had abated from the earth.
 
 ## v12
 
@@ -68,7 +68,7 @@ Bring out with you every living thing that is with you of all flesh — birds an
 
 ## v18
 
-So Noah went forth, as well as his sons and his wife and his sons’ wives with him.
+So Noah [[Genesis-08.fn#Footnote 18.1 — went|went]] forth, as well as his sons and his wife and his sons’ wives with him.
 
 ## v19
 
@@ -76,15 +76,15 @@ Every animal, every creeping thing, and every bird, everything that moves upon t
 
 ## v20
 
-And Noah built an altar to Jehovah and took of every clean beast and of every clean bird and offered burnt offerings on the altar.
+And Noah built an [[Genesis-08.fn#Footnote 20.1 — altar|altar]] to Jehovah and took of every clean beast and of every clean bird and [[Genesis-08.fn#Footnote 20.1 — altar|offered]] [[Genesis-08.fn#Footnote 20.2 — burnt|burnt]] offerings on the altar.
 
 ## v21
 
-And Jehovah smelled the satisfying fragrance; and Jehovah said in His heart, I will never again curse the ground on account of man, for the imagination of man’s heart is evil from his youth; nor will I ever again smite everything living as I have done.
+And Jehovah smelled the [[Genesis-08.fn#Footnote 21.1 — satisfying|satisfying]] fragrance; and Jehovah said in His heart, I will never again [[Genesis-08.fn#Footnote 21.2 — curse|curse]] the ground on account of man, for the imagination of man’s heart is evil from his youth; nor will I ever again smite everything living as I have done.
 
 ## v22
 
 Throughout all the days that earth remains, /  
-Seed time and harvest, and cold and heat, /  
+[[Genesis-08.fn#Footnote 22.1 — Seed|Seed]] time and harvest, and cold and heat, /  
 And summer and winter, and day and night /  
 Shall not cease.

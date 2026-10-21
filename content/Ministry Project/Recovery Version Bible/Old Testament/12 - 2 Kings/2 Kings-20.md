@@ -12,7 +12,7 @@ Now, O Jehovah, please remember how I have walked before You in truth and with a
 
 ## v4
 
-And Isaiah had not gone out of the middle court when the word of Jehovah came to him, saying,
+And Isaiah had not gone out of the middle [[2 Kings-20.fn#Footnote 4.1 — court|court]] when the word of Jehovah came to him, saying,
 
 ## v5
 
@@ -44,7 +44,7 @@ And Isaiah the prophet cried to Jehovah; and He brought the shadow on the steps,
 
 ## v12
 
-At that time Berodach-baladan the son of Baladan, the king of Babylon, sent letters and a gift to Hezekiah, because he had heard that Hezekiah had been sick.
+At that time [[2 Kings-20.fn#Footnote 12.1 — Berodach-baladan|Berodach-baladan]] the son of Baladan, the king of Babylon, sent letters and a gift to Hezekiah, because he had heard that Hezekiah had been sick.
 
 ## v13
 

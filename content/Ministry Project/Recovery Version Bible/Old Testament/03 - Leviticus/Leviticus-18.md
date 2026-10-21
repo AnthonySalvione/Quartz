@@ -1,6 +1,6 @@
 ## v1
 
-Then Jehovah spoke to Moses, saying,
+Then Jehovah [[Leviticus-18.fn#Footnote 1.1 — spoke|spoke]] to Moses, saying,
 
 ## v2
 
@@ -8,19 +8,19 @@ Speak to the children of Israel, and say to them, I am Jehovah your God.
 
 ## v3
 
-You shall not do as they do in the land of Egypt, in which you dwelt; and you shall not do as they do in the land of Canaan, where I am bringing you, nor shall you walk in their statutes.
+You shall not do as they do in the land of [[Leviticus-18.fn#Footnote 3.1 — Egypt|Egypt]], in which you dwelt; and you shall not do as they do in the land of [[Leviticus-18.fn#Footnote 3.1 — Egypt|Canaan]], where I am bringing you, nor shall you walk in their statutes.
 
 ## v4
 
-You shall observe My ordinances, and you shall keep My statutes to walk in them; I am Jehovah your God.
+You shall observe My [[Leviticus-18.fn#Footnote 4.1 — ordinances|ordinances]], and you shall keep My statutes to walk in them; I am Jehovah your God.
 
 ## v5
 
-So you shall keep My statutes and My ordinances, by which, if a man does them, he will live; I am Jehovah.
+So you shall keep My statutes and My ordinances, by which, if a man does them, he will [[Leviticus-18.fn#Footnote 5.1 — live|live]]; I am Jehovah.
 
 ## v6
 
-None of you shall approach to any of his close relatives to uncover their nakedness; I am Jehovah.
+None of you shall approach to any of [[Leviticus-18.fn#Footnote 6.1 — his|his]] close relatives to uncover their nakedness; I am Jehovah.
 
 ## v7
 
@@ -96,7 +96,7 @@ Do not defile yourselves in any of these things, for by all these the nations wh
 
 ## v25
 
-Because the land has become defiled, I visited its iniquity upon it, and the land vomited out its inhabitants.
+Because the land has become defiled, I [[Leviticus-18.fn#Footnote 25.1 — visited|visited]] its iniquity upon it, and the land [[Leviticus-18.fn#Footnote 25.2 — vomited|vomited]] out its inhabitants.
 
 ## v26
 

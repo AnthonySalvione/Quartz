@@ -4,7 +4,7 @@ speaker:
 hymn:
   - "242"
   - "1113"
-reading: "[[Spirit with our Spirit chapter 3|Chapter 3]]"
+reading: "[[Week 3|Chapter 3]]"
 class: The Spirit
 ---
 # Study Questions

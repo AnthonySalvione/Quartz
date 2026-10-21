@@ -4,7 +4,7 @@ And Moab rebelled against Israel after the death of Ahab.
 
 ## v2
 
-And Ahaziah fell through the lattice in his upper chamber which was in Samaria and became ill. And he sent messengers and said to them, Go and inquire of Baal-zebub the god of Ekron whether I will recover from this sickness.
+And Ahaziah fell through the lattice in his upper chamber which was in Samaria and became ill. And he sent messengers and said to them, Go and inquire of [[2 Kings-01.fn#Footnote 2.1 — Baal-zebub|Baal-zebub]] the god of Ekron whether I will recover from this sickness.
 
 ## v3
 
@@ -56,7 +56,7 @@ Already fire has come down from heaven and consumed the first two captains of fi
 
 ## v15
 
-And the Angel of Jehovah said to Elijah, Go down with him; do not be afraid of him. And he rose up and went down with him to the king.
+And the [[2 Kings-01.fn#Footnote 15.1 — Angel|Angel]] of Jehovah said to Elijah, Go down with him; do not be afraid of him. And he rose up and went down with him to the king.
 
 ## v16
 

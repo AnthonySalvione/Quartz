@@ -16,7 +16,7 @@ And they said one to another, Let us appoint a captain, and let us return to Egy
 
 ## v5
 
-Then Moses and Aaron fell on their faces before the whole congregation of the assembly of the children of Israel.
+Then Moses and Aaron [[Numbers-14.fn#Footnote 5.1 — fell|fell]] on their faces before the whole congregation of the assembly of the children of Israel.
 
 ## v6
 
@@ -24,7 +24,7 @@ And Joshua the son of Nun and Caleb the son of Jephunneh, who were among those w
 
 ## v7
 
-And they spoke to the whole assembly of the children of Israel, saying, The land through which we passed to spy out is an exceedingly good land.
+And they spoke to the whole assembly of the children of Israel, saying, The land through which we passed to spy out is an exceedingly [[Numbers-14.fn#Footnote 7.1 — good|good]] land.
 
 ## v8
 
@@ -32,7 +32,7 @@ If Jehovah is pleased with us, He will bring us into this land and give it to us
 
 ## v9
 
-Only do not rebel against Jehovah, nor should you fear the people of the land, for they are our bread. Their protection has been removed from them, and Jehovah is with us; do not fear them.
+Only [[Numbers-14.fn#Footnote 9.1 — do|do]] not rebel against Jehovah, nor should you fear the people of the land, for they are our bread. Their protection has been removed from them, and Jehovah is with us; do not fear them.
 
 ## v10
 
@@ -40,7 +40,7 @@ But the whole assembly said to stone them with stones. Then the glory of Jehovah
 
 ## v11
 
-And Jehovah said to Moses, How long will this people despise Me? And how long will they not believe in Me, in spite of all the signs that I have done among them?
+And Jehovah said to Moses, [[Numbers-14.fn#Footnote 11.1 — How|How]] long will this people despise Me? And how long will they not believe in Me, in spite of all the signs that I have done among them?
 
 ## v12
 
@@ -48,7 +48,7 @@ I will strike them with pestilence and dispossess them, and I will make of you a
 
 ## v13
 
-But Moses said to Jehovah, Then the Egyptians will hear of it, for by Your might You brought this people up from their midst,
+But Moses said to Jehovah, [[Numbers-14.fn#Footnote 13.1 — Then|Then]] the Egyptians will hear of it, for by Your might You brought this people up from their midst,
 
 ## v14
 
@@ -76,7 +76,7 @@ Pardon, I pray, the iniquity of this people according to the greatness of Your l
 
 ## v20
 
-Then Jehovah said, I have pardoned them according to your word;
+Then Jehovah said, I have [[Numbers-14.fn#Footnote 20.1 — pardoned|pardoned]] them according to your word;
 
 ## v21
 
@@ -116,7 +116,7 @@ Your corpses shall fall in this wilderness, and none of you who were numbered, a
 
 ## v30
 
-Shall come into the land, in which I swore to settle you, except Caleb the son of Jephunneh and Joshua the son of Nun.
+Shall come into the land, in which I [[Numbers-14.fn#Footnote 30.1 — swore|swore]] to settle you, except Caleb the son of Jephunneh and Joshua the son of Nun.
 
 ## v31
 
@@ -128,11 +128,11 @@ But as for you, your corpses shall fall in this wilderness.
 
 ## v33
 
-And your children shall wander in the wilderness forty years, and they shall suffer for your unfaithfulness until your corpses have been consumed in the wilderness.
+And your children shall wander in the wilderness forty years, and they shall suffer for your [[Numbers-14.fn#Footnote 33.1 — unfaithfulness|unfaithfulness]] until your corpses have been consumed in the wilderness.
 
 ## v34
 
-According to the number of the days which you spied out the land, forty days, a year for every day, you shall bear your iniquities, forty years; and you shall know My displeasure.
+According to the number of the days which you spied out the land, forty days, a year for every day, you shall bear your iniquities, forty years; and you shall know My [[Numbers-14.fn#Footnote 34.1 — displeasure|displeasure]].
 
 ## v35
 
@@ -160,7 +160,7 @@ And they rose up early in the morning to go up to the top of the mountain, sayin
 
 ## v41
 
-But Moses said, Why do you again transgress the commandment of Jehovah? This will not succeed.
+But Moses said, Why do you [[Numbers-14.fn#Footnote 41.1 — again|again]] transgress the commandment of Jehovah? This will not succeed.
 
 ## v42
 
@@ -168,12 +168,12 @@ Do not go up — for Jehovah is not among you — so that you are not struck dow
 
 ## v43
 
-For the Amalekites and the Canaanites are there before you, and you shall fall by the sword. Because you have turned back from following Jehovah, therefore Jehovah will not be with you.
+For the Amalekites and the Canaanites are there before you, and you shall fall by the sword. Because you have [[Numbers-14.fn#Footnote 43.1 — turned|turned]] back from following Jehovah, therefore Jehovah will not be with you.
 
 ## v44
 
-But they presumed to go up to the top of the mountain, even though neither the Ark of the Covenant of Jehovah nor Moses had departed out of the midst of the camp.
+But they presumed to go up to the top of the mountain, even though neither the [[Numbers-14.fn#Footnote 44.1 — Ark|Ark]] of the Covenant of Jehovah nor Moses had departed out of the midst of the camp.
 
 ## v45
 
-Then the Amalekites and the Canaanites who dwelt in that hill country came down and struck them and beat them back as far as Hormah.
+Then the Amalekites and the [[Numbers-14.fn#Footnote 45.1 — Canaanites|Canaanites]] who dwelt in that hill country came down and struck them and beat them back as far as Hormah.

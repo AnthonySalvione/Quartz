@@ -40,19 +40,19 @@ And I will appoint a place for My people Israel and will plant them there, that 
 
 ## v11
 
-Even since the time when I commanded that there be judges over My people Israel; and I will give you rest from all your enemies. Moreover Jehovah declares to you that Jehovah will make you a house.
+Even since the time when I commanded that there be judges over My people Israel; and I will give you rest from all your enemies. Moreover Jehovah declares to you that Jehovah will make you a [[2 Samuel-07.fn#Footnote 11.1 — house|house]].
 
 ## v12
 
-When your days are fulfilled and you sleep with your fathers, I will raise up your seed after you, which will come forth from your body, and I will establish his kingdom.
+When your days are fulfilled and you sleep with your fathers, I will raise up your [[2 Samuel-07.fn#Footnote 12.1 — seed|seed]] after you, which will come forth from your body, and I will establish his [[2 Samuel-07.fn#Footnote 12.2 — kingdom|kingdom]].
 
 ## v13
 
-It is he who will build a house for My name, and I will establish the throne of his kingdom forever.
+It is [[2 Samuel-07.fn#Footnote 13.1 — he|he]] who will build a house for My name, and I will establish the throne of his kingdom forever.
 
 ## v14
 
-I will be his Father, and he will be My son. If he commits iniquity, I will chasten him with the rod of men and with the stripes of the sons of men;
+I will be his Father, and he will be My [[2 Samuel-07.fn#Footnote 14.1 — son|son]]. [[2 Samuel-07.fn#Footnote 14.2 — If|If]] he commits iniquity, I will chasten him with the rod of men and with the stripes of the sons of men;
 
 ## v15
 
@@ -60,7 +60,7 @@ But My lovingkindness will not depart from him, as I took it away from Saul, who
 
 ## v16
 
-And your house and your kingdom will be made sure forever before you; your throne will be established forever.
+And your [[2 Samuel-07.fn#Footnote 16.1 — house|house]] and your [[2 Samuel-07.fn#Footnote 16.1 — house|kingdom]] will be made sure forever before you; your [[2 Samuel-07.fn#Footnote 16.1 — house|throne]] will be established forever.
 
 ## v17
 

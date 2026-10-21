@@ -1,6 +1,6 @@
 ## v1
 
-And Solomon was thirteen years building his own house, and he finished all his house.
+And Solomon was thirteen years building his own [[1 Kings-07.fn#Footnote 1.1 — house|house]], and he finished all his house.
 
 ## v2
 
@@ -48,19 +48,19 @@ And the great court surrounding had three rows of hewn stone and a row of cedar 
 
 ## v13
 
-And King Solomon sent for Hiram and brought him from Tyre.
+And King Solomon sent for [[1 Kings-07.fn#Footnote 13.1 — Hiram|Hiram]] and brought him from Tyre.
 
 ## v14
 
-He was the son of a widow and of the tribe of Naphtali, and his father was a man of Tyre, a bronze worker; and he was full of wisdom and understanding and skill to do all kinds of work in bronze. And he came to King Solomon and did all his work.
+He was the son of a widow and of the tribe of [[1 Kings-07.fn#Footnote 14.1 — Naphtali|Naphtali]], and his father was a man of [[1 Kings-07.fn#Footnote 14.2 — Tyre|Tyre]], a bronze worker; and he was full of wisdom and understanding and skill to do all kinds of work in bronze. And he [[1 Kings-07.fn#Footnote 14.3 — came|came]] to King Solomon and did all his work.
 
 ## v15
 
-And he formed the two bronze pillars; eighteen cubits was the height of each pillar, and a line of twelve cubits encompassed each pillar.
+And he formed the two bronze [[1 Kings-07.fn#Footnote 15.1 — pillars|pillars]]; [[1 Kings-07.fn#Footnote 15.2 — eighteen|eighteen]] cubits was the height of [[1 Kings-07.fn#Footnote 15.3 — each|each]] pillar, and a line of [[1 Kings-07.fn#Footnote 15.2 — eighteen|twelve]] cubits encompassed [[1 Kings-07.fn#Footnote 15.3 — each|each]] pillar.
 
 ## v16
 
-And he made two capitals of molten bronze to set upon the tops of the pillars; the height of the one capital was five cubits, and the height of the second capital was five cubits.
+And he made two [[1 Kings-07.fn#Footnote 16.1 — capitals|capitals]] of molten bronze to set upon the tops of the pillars; the height of the one capital was five cubits, and the height of the second capital was five cubits.
 
 ## v17
 
@@ -68,7 +68,7 @@ There were nets of checker work with wreaths of chain work for the capitals that
 
 ## v18
 
-So he made the pillars; and there were two rows of pomegranates around the one network, to cover the capitals that were at the top of the pillars. And he did the same for the second capital.
+So he made the pillars; and there were two rows of pomegranates around the one network, to cover the capitals that were at the top of the [[1 Kings-07.fn#Footnote 18.1 — pillars|pillars]]. And he did the same for the second capital.
 
 ## v19
 
@@ -76,11 +76,11 @@ And the capitals that were at the top of the pillars in the portico were of lily
 
 ## v20
 
-So then the capitals that were on the two pillars were above and close to the bulge that was beside the network. And there were two hundred pomegranates, in rows around both capitals.
+So then the capitals that were on the two pillars were above and close to the bulge that was beside the network. And there were two hundred pomegranates, in rows around [[1 Kings-07.fn#Footnote 20.1 — both|both]] capitals.
 
 ## v21
 
-And he erected the pillars at the portico of the temple. When he erected the right pillar, he called its name Jachin; and when he erected the left pillar, he called its name Boaz.
+And he erected the pillars at the portico of the temple. When he erected the right pillar, he called its name [[1 Kings-07.fn#Footnote 21.1 — Jachin|Jachin]]; and when he erected the left pillar, he called its name [[1 Kings-07.fn#Footnote 21.2 — Boaz|Boaz]].
 
 ## v22
 
@@ -88,7 +88,7 @@ And at the top of the pillars was lily work. And the work on the pillars was com
 
 ## v23
 
-And he made the molten sea, ten cubits from brim to brim, fully round; and it was five cubits high, and a line of thirty cubits encompassed it.
+And he made the [[1 Kings-07.fn#Footnote 23.1 — molten|molten]] sea, ten cubits from brim to brim, fully round; and it was five cubits high, and a line of thirty cubits encompassed it.
 
 ## v24
 
@@ -120,7 +120,7 @@ And each base had four bronze wheels with bronze axles. And its four feet had su
 
 ## v31
 
-And the mouth of the laver was within this crown, and it rose above it by one cubit; and its mouth was round like the work of a pedestal; it was a cubit and a half across; and upon its mouth were engravings as well, and its panels were square, not round.
+And the mouth of [[1 Kings-07.fn#Footnote 31.1 — the|the]] laver was within this crown, and it rose above it by one cubit; and its mouth was round like the work of a pedestal; it was a cubit and a half across; and upon its mouth were engravings as well, and its panels were square, not round.
 
 ## v32
 
@@ -156,7 +156,7 @@ And he set the bases, five on the right side of the house and five on the left s
 
 ## v40
 
-And Hiram made the pots and the shovels and the bowls. Thus Hiram finished doing all the work that he was doing for King Solomon in the house of Jehovah:
+And Hiram made the [[1 Kings-07.fn#Footnote 40.1 — pots|pots]] and the shovels and the bowls. Thus Hiram finished doing all the work that he was doing for King Solomon in the house of Jehovah:
 
 ## v41
 
@@ -188,11 +188,11 @@ And Solomon left all the vessels unweighed because of the very great number; the
 
 ## v48
 
-And Solomon made all the vessels that were in the house of Jehovah: the golden altar; and the golden table upon which the bread of the Presence was put;
+And Solomon made all the vessels that were in the house of Jehovah: the golden [[1 Kings-07.fn#Footnote 48.1 — altar|altar]]; and the golden [[1 Kings-07.fn#Footnote 48.2 — table|table]] upon which the bread of the Presence was put;
 
 ## v49
 
-And the lampstands of pure gold, five on the right and five on the left, before the innermost sanctuary; and the flowers and the lamps and the tongs, of gold;
+And the [[1 Kings-07.fn#Footnote 49.1 — lampstands|lampstands]] of pure gold, five on the right and five on the left, before the innermost sanctuary; and the flowers and the lamps and the tongs, of gold;
 
 ## v50
 

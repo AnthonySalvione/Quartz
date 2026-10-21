@@ -1,0 +1,40 @@
+---
+Category:
+  - Worship of the Father
+Subcategory:
+  - His Grace in Sonship
+Lyricist:
+  - Alexander Carruthers
+Melody:
+  - Alexander C. Ewing
+---
+# We bless Thee, God and Father
+## Stanza 1
+We bless Thee, God and Father,
+We joy before Thy face;
+Beyond dark death for ever,
+We share Thy Son's blest place.
+He lives a Man before Thee,
+In cloudless light above,
+In Thine unbounded favor,
+Thine everlasting love.
+
+## Stanza 2
+His Father and our Father,
+His God and ours Thou art;
+And He is Thy Beloved,
+The gladness of Thy heart.
+We're His, in joy He brings us
+To share His part and place,
+To know Thy love and favor,
+The shining of Thy face.
+
+## Stanza 3
+Thy love that now enfolds us
+Can ne'er wax cold or dim;
+In Him that love doth center,
+And we are loved in Him.
+In Him Thy love and glory
+Find their eternal rest;
+The many sons—His brethren—
+In Him, how near, how blest!

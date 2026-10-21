@@ -112,7 +112,7 @@ And the rest of the people, the priests, the Levites, the gatekeepers, the singe
 
 ## v29
 
-Join with their brothers, their nobles, and enter into a curse and an oath, to walk in the law of God, which was given through Moses the servant of God, and to keep and do all the commandments of Jehovah our Lord, as well as His ordinances and His statutes;
+Join with their brothers, their nobles, and enter into a [[Nehemiah-10.fn#Footnote 29.1 — curse|curse]] and an oath, to walk in the law of God, which was given through Moses the servant of God, and to keep and do all the commandments of Jehovah our Lord, as well as His ordinances and His statutes;
 
 ## v30
 
@@ -144,7 +144,7 @@ As well as the firstborn of our sons and of our cattle, as it is written in the 
 
 ## v37
 
-We will also bring the first of our dough and our heave offerings and of the fruit of every tree and the new wine and the fresh oil to the priests at the chambers of the house of our God, and the tithe of our land to the Levites; for they, the Levites, are those who receive the tithes in all our rural towns.
+We will also bring the first of our dough and our heave offerings and of the fruit of every tree and the new wine and the fresh oil to the priests at the chambers of the house of our God, and the [[Nehemiah-10.fn#Footnote 37.1 — tithe|tithe]] of our land to the Levites; for they, the Levites, are those who receive the tithes in all our rural towns.
 
 ## v38
 

@@ -1,10 +1,10 @@
 ## v1
 
-When Jehovah your God brings you into the land which you are about to enter to possess, and clears away many nations from before you — the Hittites, the Girgashites, the Amorites, the Canaanites, the Perizzites, the Hivites, the Jebusites, seven nations more numerous and mightier than you —
+When Jehovah your God brings you into the land which you are about to enter to possess, and clears away many [[Deuteronomy-07.fn#Footnote 1.1 — nations|nations]] from before you — the Hittites, the Girgashites, the Amorites, the Canaanites, the Perizzites, the Hivites, the Jebusites, seven nations more numerous and mightier than you —
 
 ## v2
 
-And Jehovah your God delivers them up before you and you defeat them, you shall utterly destroy them; you shall make no covenant with them, nor shall you show them any favor.
+And Jehovah your God delivers them up before you and you defeat them, you shall [[Deuteronomy-07.fn#Footnote 2.1 — utterly|utterly]] destroy them; you shall make no covenant with them, nor shall you show them any favor.
 
 ## v3
 
@@ -16,11 +16,11 @@ For they will draw your sons away from following after Me to serve other gods, a
 
 ## v5
 
-But you shall deal with them in this way: Their altars you shall tear down, their pillars you shall shatter, their Asherahs you shall hew down, and their idols you shall burn with fire.
+But you shall deal with them in this way: Their altars you shall tear down, their pillars you shall shatter, their [[Deuteronomy-07.fn#Footnote 5.1 — Asherahs|Asherahs]] you shall hew down, and their idols you shall burn with fire.
 
 ## v6
 
-For you are a holy people to Jehovah your God; it is you whom Jehovah your God has chosen from among all the peoples which are upon the face of the earth to be a people for His personal treasure.
+For you are a holy people to Jehovah your God; it is you whom Jehovah your God has chosen from among all the peoples which are upon the face of the earth to be a people for His [[Deuteronomy-07.fn#Footnote 6.1 — personal|personal]] treasure.
 
 ## v7
 
@@ -48,7 +48,7 @@ And it will be that because you listen to these ordinances, and keep them and do
 
 ## v13
 
-And He will love you and bless you and multiply you; He will also bless the fruit of your womb and the fruit of your ground, your grain and your new wine and your fresh oil, the offspring of your cattle and the young of your flock, on the land which He swore to your fathers to give you.
+And He will love you and [[Deuteronomy-07.fn#Footnote 13.1 — bless|bless]] you and multiply you; He will also bless the fruit of your womb and the fruit of your ground, your grain and your new wine and your fresh oil, the offspring of your cattle and the young of your flock, on the land which He swore to your fathers to give you.
 
 ## v14
 
@@ -84,7 +84,7 @@ You shall not be terrified of them, for Jehovah your God is in your midst, a gre
 
 ## v22
 
-And Jehovah your God will clear away these nations from before you little by little; you will not be able to consume them immediately, lest the beasts of the field multiply against you.
+And Jehovah your God will clear away these nations from before you [[Deuteronomy-07.fn#Footnote 22.1 — little|little]] by little; you will not be able to consume them immediately, lest the beasts of the field multiply against you.
 
 ## v23
 

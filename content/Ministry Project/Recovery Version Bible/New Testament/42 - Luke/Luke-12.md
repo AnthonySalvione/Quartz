@@ -3,7 +3,7 @@ Author: Luke
 ---
 ## v1
 
-Meanwhile, when the myriads of the crowd were gathered together so that they trampled on one another, He began to say to His disciples first, Beware of the leaven of the Pharisees, which is hypocrisy.
+[[Luke-12.fn#Footnote 1.1 — Meanwhile|Meanwhile]], when the myriads of the crowd were gathered together so that they trampled on one another, He began to say to His disciples first, Beware of the leaven of the Pharisees, which is hypocrisy.
 
 ## v2
 
@@ -19,11 +19,11 @@ And I say to you My friends, Do not fear those who kill the body and afterward h
 
 ## v5
 
-But I will show you whom you should fear: fear Him who, after killing, has authority to cast into Gehenna; yes, I tell you, fear this One.
+But I will [[Luke-12.fn#Footnote 5.1 — show|show]] you whom you should fear: fear [[Luke-12.fn#Footnote 5.2 — Him|Him]] who, after killing, has authority to cast into [[Luke-12.fn#Footnote 5.3 — Gehenna|Gehenna]]; yes, I tell you, fear this One.
 
 ## v6
 
-Are not five sparrows sold for two assaria? And not one of them is forgotten before God.
+Are not five sparrows sold for two [[Luke-12.fn#Footnote 6.1 — assaria|assaria]]? And not one of them is forgotten before God.
 
 ## v7
 
@@ -35,11 +35,11 @@ Moreover, I tell you, Everyone who confesses in Me before men, the Son of Man wi
 
 ## v9
 
-But he who denies Me before men will be denied before the angels of God.
+But he who denies Me before men will be [[Luke-12.fn#Footnote 9.1 — denied|denied]] before the angels of God.
 
 ## v10
 
-And everyone who will say a word against the Son of Man, it will be forgiven him; but to him who blasphemes against the Holy Spirit, it will not be forgiven.
+And everyone who will say a word against the Son of Man, it will be forgiven him; but to him who [[Luke-12.fn#Footnote 10.1 — blasphemes|blasphemes]] against the Holy Spirit, it will not be forgiven.
 
 ## v11
 
@@ -47,7 +47,7 @@ And when they bring you before the synagogues and the rulers and the authorities
 
 ## v12
 
-For the Holy Spirit will teach you in that hour what should be said.
+For the Holy [[Luke-12.fn#Footnote 12.1 — Spirit|Spirit]] will teach you in that hour what should be said.
 
 ## v13
 
@@ -67,7 +67,7 @@ And He told them a parable, saying, The land of a certain rich man brought forth
 
 ## v17
 
-And he reasoned in himself, saying, What shall I do, for I have no place where I may gather my crops?
+And he reasoned in himself, saying, What shall I do, for I have no place where I may gather my [[Luke-12.fn#Footnote 17.1 — crops|crops]]?
 
 ## v18
 
@@ -79,15 +79,15 @@ And I will say to my soul, Soul, you have many goods laid up for many years; res
 
 ## v20
 
-But God said to him, Foolish one, this night they are requiring your soul from you; and the things which you have prepared, whose will they be?
+But God said to him, Foolish one, this night [[Luke-12.fn#Footnote 20.1 — they|they]] are requiring your soul from you; and the things which you have prepared, whose will they be?
 
 ## v21
 
-So is he who stores up treasure for himself and is not rich toward God.
+So is he who stores up treasure for himself and is not [[Luke-12.fn#Footnote 21.1 — rich|rich]] toward God.
 
 ## v22
 
-And He said to His disciples, Therefore I say to you, Do not be anxious for your life, what you should eat; nor for your body, what you should put on;
+[[Luke-12.fn#Footnote 22.1 — And|And]] He said to His disciples, Therefore I say to you, Do not be anxious for your [[Luke-12.fn#Footnote 22.2 — life|life]], what you should eat; nor for your body, what you should put on;
 
 ## v23
 
@@ -115,7 +115,7 @@ Now if God so arrays the grass in the field, which is here today and tomorrow is
 
 ## v29
 
-And you, do not seek what you shall eat and what you shall drink, and do not be unsettled.
+And you, do not seek what you shall eat and what you shall drink, and do not [[Luke-12.fn#Footnote 29.1 — be|be]] unsettled.
 
 ## v30
 
@@ -127,15 +127,15 @@ However, seek His kingdom, and these things shall be added to you.
 
 ## v32
 
-Do not be afraid, little flock, because your Father has been well pleased to give you the kingdom.
+Do not be afraid, little flock, because your Father has been well pleased to give you the [[Luke-12.fn#Footnote 32.1 — kingdom|kingdom]].
 
 ## v33
 
-Sell your possessions and give alms; make for yourselves purses which do not become old, an unfailing treasure in the heavens, where thief does not come near nor even moth corrupts;
+Sell your possessions and give alms; make for yourselves purses which do not become old, an unfailing [[Luke-12.fn#Footnote 33.1 — treasure|treasure]] in the heavens, where thief does not come near nor even moth corrupts;
 
 ## v34
 
-For where your treasure is, there also your heart will be.
+For where your treasure is, there also your [[Luke-12.fn#Footnote 34.1 — heart|heart]] will be.
 
 ## v35
 
@@ -147,7 +147,7 @@ And you be like men waiting for their own master when he returns from the weddin
 
 ## v37
 
-Blessed are those slaves whom the master, when he comes, will find watching. Truly I tell you that he will gird himself and will have them recline at table, and he will come to them and serve them.
+Blessed are those slaves whom the master, when he comes, will find watching. Truly I tell you that he will gird himself and will have them recline at table, and he will [[Luke-12.fn#Footnote 37.1 — come|come]] to them and serve them.
 
 ## v38
 
@@ -155,7 +155,7 @@ And if he comes in the second watch, or if in the third, and finds them so, bles
 
 ## v39
 
-But know this, that if the master of the house had known in what hour the thief was coming, he would not have allowed his house to be broken into.
+[[Luke-12.fn#Footnote 39.1 — But|But]] [[Luke-12.fn#Footnote 39.2 — know|know]] this, that if the master of the house had known in what hour the thief was coming, he [[Luke-12.fn#Footnote 39.3 — would|would]] not have allowed his house to be [[Luke-12.fn#Footnote 39.4 — broken|broken]] into.
 
 ## v40
 
@@ -191,19 +191,19 @@ And that slave who knew his master’s will and did not prepare or do according 
 
 ## v48
 
-But he who did not know, yet did things worthy of stripes, will receive few lashes. But to everyone to whom much has been given, much will be required from him; and to whom much has been committed, they will ask of him all the more.
+But he who did not know, yet did things worthy of stripes, will receive few lashes. But to everyone to whom much has been given, much will be required from him; and to whom much has been [[Luke-12.fn#Footnote 48.1 — committed|committed]], they will ask of him all the more.
 
 ## v49
 
-I have come to cast fire on the earth, and how I wish that it were already kindled!
+I have come to cast [[Luke-12.fn#Footnote 49.1 — fire|fire]] on the earth, and [[Luke-12.fn#Footnote 49.2 — how|how]] I wish that it were already kindled!
 
 ## v50
 
-But I have a baptism to be baptized with, and how I am pressed until it is accomplished!
+But I have a [[Luke-12.fn#Footnote 50.1 — baptism|baptism]] to be baptized with, and how I am [[Luke-12.fn#Footnote 50.2 — pressed|pressed]] until it is accomplished!
 
 ## v51
 
-Do you think that I have come to give peace on the earth? No, I tell you, but rather division.
+Do you think that I have come to give peace on the earth? No, I tell you, but rather [[Luke-12.fn#Footnote 51.1 — division|division]].
 
 ## v52
 
@@ -223,16 +223,16 @@ And when you see a south wind blowing, you say that there will be scorching heat
 
 ## v56
 
-Hypocrites, you know how to discern the face of the earth and of the sky. How is it then that you do not know how to discern this time?
+[[Luke-12.fn#Footnote 56.1 — Hypocrites|Hypocrites]], you know how to [[Luke-12.fn#Footnote 56.2 — discern|discern]] the [[Luke-12.fn#Footnote 56.3 — face|face]] of the earth and of the sky. [[Luke-12.fn#Footnote 56.4 — How|How]] is it then that you do not know how to [[Luke-12.fn#Footnote 56.5 — discern|discern]] this time?
 
 ## v57
 
-And why do you not judge also of yourselves what is right?
+And why do you not judge also of [[Luke-12.fn#Footnote 57.1 — yourselves|yourselves]] what is right?
 
 ## v58
 
-For as you are going with your opponent at law to a magistrate, endeavor to be released from him on the way, lest he drag you to the judge; and the judge will deliver you up to the officer, and the officer will throw you into prison.
+[[Luke-12.fn#Footnote 58.1 — For|For]] as you are going with your opponent at law to a magistrate, [[Luke-12.fn#Footnote 58.2 — endeavor|endeavor]] to be released from him on the way, lest he drag you to the judge; and the judge will deliver you up to the officer, and the officer will throw you into prison.
 
 ## v59
 
-I tell you, You shall by no means come out from there until you have paid the very last lepton.
+I tell you, You shall by no means come out from there until you have paid the very last [[Luke-12.fn#Footnote 59.1 — lepton|lepton]].

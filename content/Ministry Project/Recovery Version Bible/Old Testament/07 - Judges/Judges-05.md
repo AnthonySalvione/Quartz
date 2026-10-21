@@ -24,7 +24,7 @@ In the days of Shamgar the son of Anath, / In the days of Jael, the highways wer
 
 ## v7
 
-The villages ceased to act; / They ceased in Israel; / Until I, Deborah, rose up; / Until I rose up as a mother in Israel.
+The villages ceased to act; / They ceased in Israel; / Until [[Judges-05.fn#Footnote 7.1 — I|I]], Deborah, rose up; / Until I rose up as a mother in Israel.
 
 ## v8
 
@@ -116,7 +116,7 @@ The wisest of her ladies answer her, / And she herself returns an answer to hers
 
 ## v30
 
-Have they not found and divided the spoil? / A girl, two girls, to each mighty man. / The spoil of dyed garments to Sisera, / The spoil of dyed garments; / A dyed embroidery, two embroideries, / For the neck of the spoiler.
+Have they not found and divided the spoil? / A girl, two girls, to [[Judges-05.fn#Footnote 30.1 — each|each]] mighty man. / The spoil of dyed garments to Sisera, / The spoil of dyed garments; / A dyed embroidery, two embroideries, / For the neck of the spoiler.
 
 ## v31
 

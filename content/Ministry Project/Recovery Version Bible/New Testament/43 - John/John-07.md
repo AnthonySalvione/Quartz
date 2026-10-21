@@ -3,11 +3,11 @@ Author: John
 ---
 ## v1
 
-After these things Jesus walked in Galilee, for He would not walk in Judea, because the Jews were seeking to kill Him.
+After these things Jesus walked in Galilee, for He would not walk in Judea, because the Jews were seeking to [[John-07.fn#Footnote 1.1 — kill|kill]] Him.
 
 ## v2
 
-Now the Jews’ Feast of Tabernacles was near.
+Now the Jews’ [[John-07.fn#Footnote 2.1 — Feast|Feast]] of Tabernacles was near.
 
 ## v3
 
@@ -23,7 +23,7 @@ For not even His brothers believed into Him.
 
 ## v6
 
-Jesus therefore said to them, My time has not yet come, but your time is always ready.
+Jesus therefore said to them, My [[John-07.fn#Footnote 6.1 — time|time]] has not yet come, but your time is always ready.
 
 ## v7
 
@@ -39,7 +39,7 @@ And having said these things to them, He remained in Galilee.
 
 ## v10
 
-But when His brothers had gone up to the feast, then He Himself also went up, not openly, but as it were in secret.
+But when His brothers had gone up to the feast, then He Himself also went up, [[John-07.fn#Footnote 10.1 — not|not]] openly, but as it were in secret.
 
 ## v11
 
@@ -59,7 +59,7 @@ But when it was now the middle of the feast, Jesus went up into the temple and b
 
 ## v15
 
-The Jews therefore marveled and said, How does this man know letters, without ever having studied?
+The Jews therefore marveled and said, How does this man know letters, [[John-07.fn#Footnote 15.1 — without|without]] ever having studied?
 
 ## v16
 
@@ -95,7 +95,7 @@ If a man receives circumcision on the Sabbath that the law of Moses may not be b
 
 ## v24
 
-Do not judge according to appearance, but judge the righteous judgment.
+Do not judge according to [[John-07.fn#Footnote 24.1 — appearance|appearance]], but judge the righteous judgment.
 
 ## v25
 
@@ -111,11 +111,11 @@ But we know where this man is from; yet when the Christ comes, no one knows wher
 
 ## v28
 
-Jesus therefore cried out in the temple, teaching and saying, You both know Me and know where I am from; and I have not come of Myself, but He who sent Me is true, whom you do not know.
+Jesus therefore cried out in the temple, teaching and saying, You both [[John-07.fn#Footnote 28.1 — know|know]] Me and [[John-07.fn#Footnote 28.1 — know|know]] where I am from; and I have not come of Myself, but He who sent Me is true, whom you do not [[John-07.fn#Footnote 28.1 — know|know]].
 
 ## v29
 
-I know Him, because I am from Him, and He sent Me.
+I know Him, because I am [[John-07.fn#Footnote 29.1 — from|from]] Him, and He [[John-07.fn#Footnote 29.2 — sent|sent]] Me.
 
 ## v30
 
@@ -147,15 +147,15 @@ What is the word which He said, You will seek Me and will not find Me; and where
 
 ## v37
 
-Now on the last day, the great day of the feast, Jesus stood and cried out, saying, If anyone thirsts, let him come to Me and drink.
+Now on the [[John-07.fn#Footnote 37.1 — last|last]] day, the great day of the feast, Jesus stood and cried out, saying, If anyone thirsts, let him come to Me and drink.
 
 ## v38
 
-He who believes into Me, as the Scripture said, out of his innermost being shall flow rivers of living water.
+He who believes into Me, as the Scripture said, out of his innermost being shall [[John-07.fn#Footnote 38.1 — flow|flow]] [[John-07.fn#Footnote 38.2 — rivers|rivers]] of living water.
 
 ## v39
 
-But this He said concerning the Spirit, whom those who believed into Him were about to receive; for the Spirit was not yet, because Jesus had not yet been glorified.
+But this He said concerning the Spirit, whom those who believed into Him were about to receive; for the [[John-07.fn#Footnote 39.1 — Spirit|Spirit]] was not yet, because Jesus had not yet been glorified.
 
 ## v40
 
@@ -163,7 +163,7 @@ Some of the crowd therefore, when they heard these words, said, This is truly th
 
 ## v41
 
-Others said, This is the Christ. But some said, Does then the Christ come out of Galilee?
+Others said, This is the Christ. But some said, Does then the Christ come out of [[John-07.fn#Footnote 41.1 — Galilee|Galilee]]?
 
 ## v42
 
@@ -203,7 +203,7 @@ Nicodemus said to them (he who came to Him before, being one of them),
 
 ## v51
 
-Does our law condemn a man unless it first hears from him and knows what he is doing?
+Does our law [[John-07.fn#Footnote 51.1 — condemn|condemn]] a man unless it first hears from him and knows what he is doing?
 
 ## v52
 
@@ -211,4 +211,4 @@ They answered and said to him, Are you also from Galilee? Search and see that no
 
 ## v53
 
-And everyone went to his own house.
+[[John-07.fn#Footnote 53.1 — And|And]] everyone went to his own house.

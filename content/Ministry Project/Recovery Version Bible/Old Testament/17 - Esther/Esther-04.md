@@ -8,7 +8,7 @@ And he went up to the entrance of the king’s gate, for no one was to enter the
 
 ## v3
 
-And throughout every province, wherever the king’s commandment and his decree came, there was great mourning among the Jews, with fasting and weeping and wailing; many lay in sackcloth and ashes.
+And throughout every province, wherever the king’s commandment and his decree came, there was great mourning among the Jews, with [[Esther-04.fn#Footnote 3.1 — fasting|fasting]] and weeping and wailing; many lay in sackcloth and ashes.
 
 ## v4
 

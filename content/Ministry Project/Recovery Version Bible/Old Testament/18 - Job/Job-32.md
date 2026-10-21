@@ -4,7 +4,7 @@ Then these three men ceased answering Job, for he was righteous in his own eyes.
 
 ## v2
 
-And the anger of Elihu the son of Barachel the Buzite, of the family of Ram, was kindled. Against Job was his anger kindled because he justified himself rather than God;
+And the [[Job-32.fn#Footnote 2.1 — anger|anger]] of [[Job-32.fn#Footnote 2.2 — Elihu|Elihu]] the son of Barachel the Buzite, of the family of Ram, was kindled. Against Job was his anger kindled because he justified himself rather than God;
 
 ## v3
 
@@ -33,8 +33,8 @@ And let the multitude of years make wisdom known.
 
 ## v8
 
-But there is a spirit in man,  
-And the breath of the Almighty gives them understanding.
+But [[Job-32.fn#Footnote 8.1 — there|there]] is a [[Job-32.fn#Footnote 8.2 — spirit|spirit]] in man,  
+And the [[Job-32.fn#Footnote 8.2 — spirit|breath]] of the Almighty gives them understanding.
 
 ## v9
 
@@ -44,7 +44,7 @@ Nor the old who understand justice.
 ## v10
 
 Therefore I say, Hear me;  
-I also will declare what I know.
+I also will declare what I [[Job-32.fn#Footnote 10.1 — know|know]].
 
 ## v11
 

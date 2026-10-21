@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Make yourself two trumpets of silver; of beaten work you shall make them; and you shall use them for summoning the assembly and for the setting out of the camps.
+Make yourself two trumpets of [[Numbers-10.fn#Footnote 2.1 — silver|silver]]; of beaten work you shall make them; and you shall use them for summoning the assembly and for the setting out of the camps.
 
 ## v3
 
@@ -16,7 +16,7 @@ But if they blow only one, then the leaders, the heads of the thousands of Israe
 
 ## v5
 
-And when you blow an alarm, the camps that are encamped on the east side shall set out.
+And when you blow an [[Numbers-10.fn#Footnote 5.1 — alarm|alarm]], the camps that are encamped on the east side shall set out.
 
 ## v6
 
@@ -36,7 +36,7 @@ And when you go to war in your land against the adversary who oppresses you, the
 
 ## v10
 
-Also on your days of rejoicing and at your appointed feasts and at the beginnings of your months, you shall blow the trumpets over your burnt offerings and over the sacrifices of your peace offerings; and they shall be a reminder on your behalf before your God; I am Jehovah your God.
+Also on your days of rejoicing and at your appointed feasts and at the beginnings of your months, you shall [[Numbers-10.fn#Footnote 10.1 — blow|blow]] the trumpets over your burnt offerings and over the sacrifices of your peace offerings; and they shall be a reminder on your behalf before your God; I am Jehovah your God.
 
 ## v11
 
@@ -44,7 +44,7 @@ Now it was in the second year, in the second month, on the twentieth day of the 
 
 ## v12
 
-And the children of Israel set out on their journeys from the wilderness of Sinai. Then the cloud settled down in the wilderness of Paran.
+And the children of Israel set out on their journeys from the wilderness of Sinai. Then the cloud [[Numbers-10.fn#Footnote 12.1 — settled|settled]] down in the wilderness of Paran.
 
 ## v13
 
@@ -120,7 +120,7 @@ But he said to him, I will not go; but rather I will go to my own land and to my
 
 ## v31
 
-So Moses said, Please do not leave us, for you know where we can encamp in the wilderness, and you will be eyes for us.
+So [[Numbers-10.fn#Footnote 31.1 — Moses|Moses]] said, Please do not leave us, for you know where we can encamp in the wilderness, and you will be [[Numbers-10.fn#Footnote 31.2 — eyes|eyes]] for us.
 
 ## v32
 
@@ -128,7 +128,7 @@ And if you go with us, whatever good Jehovah does for us, we will do for you.
 
 ## v33
 
-So they set out from the mountain of Jehovah three days’ journey, with the Ark of the Covenant of Jehovah setting out before them three days’ journey, to seek out a resting place for them.
+So they set out from the mountain of Jehovah three days’ journey, with the [[Numbers-10.fn#Footnote 33.1 — Ark|Ark]] of the Covenant of Jehovah setting out before them three days’ journey, to seek out a resting place for them.
 
 ## v34
 
@@ -137,10 +137,10 @@ And the cloud of Jehovah was over them by day when they set out from the camp.
 ## v35
 
 And when the Ark set out, Moses said,  
-Rise up, O Jehovah, and let Your enemies be scattered;  
+[[Numbers-10.fn#Footnote 35.1 — Rise|Rise]] up, O Jehovah, and let Your enemies be scattered;  
 And let those who hate You flee before You.
 
 ## v36
 
 And when it came to rest, he said,  
-Return, O Jehovah, to the ten thousand thousands of Israel.
+[[Numbers-10.fn#Footnote 36.1 — Return|Return]], O [[Numbers-10.fn#Footnote 36.2 — Jehovah|Jehovah]], to the ten thousand thousands of Israel.

@@ -1,0 +1,35 @@
+He who has the Son has life. We have the life of the Son of God. We are sons of God, not sons of law. We are sons of life! You are God's sons in life! Not in love! In life! 
+
+We have the life of the Son of God. Many times we may be able to reject the spirit of the Sons of God, but I tell you, you cannot reject the life of the Son of God. Because, this life of the Son of God now becomes your being. 
+
+This is not the first part within, but the second part. YOu have 2 beings - 1) born of your parents, 2) born of God. In the second being, you have the life of the Son of God. According to your second being, you have the life of the Son of God. Not just the spirit moving nado wking in you, but you have life!! This is your real self!
+
+I do believe that all of you know what I am talking about. Many many times you live in a way that is not only against the Spirit, but also against yourself and your being. Am I right? Against your being. I hate to see the churches without regulations. I don't agree or stand with any regulations, but I do know... that with every son of God, there is the spirit of the Son of God, and the life of the Son of God, which is why we NEED regulation, because within we have a spirit that has life. Once we have this spirit, we no longer need this regulation. The Spirit of the Son of God and the life of the Son of God. We have these two things!! 
+
+Now, I must use an example. When I was young, I was a good kid. You don't need a rule to say "don't eat anything bitter". You don't need that! Your body regulates this for you. It's because there is a life within the child that just couldn't take anything bitter. The child will spit out anything that is bitter. With the Spirit of God, you have the life of the Son of God, but sometimes I tell you, you follow that with bitter things. YOu say you are happy! But you are lying you are not happy. I don't believe you are happy. Why do I not believe this? If you are happy, you don't need to say you are happy.
+
+You are against the life of the Son of God. If you call "Oh, Abba Father" and you live the life of the Son of God, I tell you, not only joy is on the tip of your tongue, but also in thed epths of your whole being. Your whole being will be filled with joy. By this you can see that you have the Spirit of the Son of God and also the lief of the son of God. 
+
+We have the Spirit of the Son of God, the life of the Son of God, and also the position of the Son of God, in the heavenlies. Legally speaking, we have the position of the Sons of God. Sometimes we do not have the life of the Son but we do have the position. So, all the inhertience goes to them. Inhertience goes to them not according to life but according to positino. Real sons who have the life of the Father cannot lose the position of sonship. The life of the son of God is a matter of life, and the position of the Son of God is a matter of sonship. Today, we do not only have the spirit of the son of God, not only the life of the son of God, but hallelujah we also have the position of the Son of God. This is for our inhertience. We are going to inherit ALL of what God is, and all of what God has. All that He is and has is OUR INHERTIENCE because we are the Sons with the position. We have the position of Sonship!! We do not only have the Spirit of God and the Spirit of the Son of God, we also have the POSITION of the Sons of God, so we can LEGALLY inherit all that God is. We have the legal right and position to inherit ALL THE RICHES OF GOD!!
+
+Brothers, do you know what we are doing here in the church life? In the church life day after day we are enjoying the Father. YOu may think that this is just a matter of life, I tell you, maybe today it is just a matter of life, but when we are in the NJ you will se that our enjoying of the father is not just a matter of life but also position. I need to read 21:7 or revelation. When the NJ comes, we all will be His overcomers.
+
+![[Revelation-21#v7]]
+
+Be careful when reading the Bible. "I will be a God to him, and he SHALL BE a Son to Me". Maybe we are not sons today, but we shall be. It is not a matter of life here, here this is a matter of position. We are the sons of God today in life!!! But the whole universe can not see that we are the sons of God in position. When the NJ comes however, the whole universe will SEE THAT WE ARE THE SONS OF GOD IN POSITION!! We are the sons of God in life, which is a present matter, and we are the sons of God in position. 
+
+Today if I go out to the street and shout "People, do you realize, that I am a son of God???" Everyone would call me crazy. Everyone will say I'm crazy. I mean it. I have the Spirit of the Son of God, I have the life of the Son of God, I have the position of the Son of God.
+
+When the NJ comes... I tell you, the whole universe will see that we are indeed the sons of God in position. All the angels and the whole universe will say "LOOK!!! LOOK!!! OH LOOK!! HE IS THE SON OF GOD!" Look at that little guy! He is a son of God! He is enjoying God's rich inheritence - whatever God is - in the New Jerusalem. You need to realize that today the church is just a minature of the New Jerusalem. We have a small-scaled New Jerusalem here. Here, we do not have just the life of the Son of God but also the position of hte Son of God.
+
+Are you a Son of God? Do you need to tell me? We all should recognize that we all have the life of the Son of God, but not only that, but also the position fo the Son of God. We have the SPirit, the life, and the position!
+
+"I am a son of God!" "Me too!"
+
+Not only so, I tell you, while we are saying that we have the spirit, life and position, God is very happy and satisfied. This is to make you holy. You are the Sons of God, you have the spirit, you have the position of hte son of God... but you have to realize that according to our nature and disposition, you are NOT HOLY. Am I right?
+
+Praise the Lord Hallelujah we have the life, spiit nad position!! God says, "Very good, but you are not sanctified. You need more Christ." Let me come into your heart to mingle you with my own holy nature. I tell you, this is the church. I hate to say it, but I must point out, that Christians talk about Ephesians concerning the church, but they do not teach this matter. They just have a talk concerning the church, but do not have any practice. They don't have any prophecying. We like to have the practical church life, and the practical church life is to take the position of the Sons of God with the psirit, life and position. Then, the Father will say "Okay, my child! Okay, my dear child! You have the spriit, life, position, but I have to mix myself with you. I need to put you in the mixer!"
+
+It's terrible to be put into the blender or mixer... terrible, but I tell you, the Father will say "wonderful". "I am going to make you holy by doing this!! Don't you realize that yoj have been chosen by me to be holy?" This is the church life. We all expect to have a tranquil, peaceful, calm church life...  
+
+On the one hand, the church life is wonderful... but on the other hand it is terrible. Terrible to our natural man. 

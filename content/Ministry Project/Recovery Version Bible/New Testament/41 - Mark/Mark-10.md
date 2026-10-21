@@ -3,11 +3,11 @@ Author: Mark
 ---
 ## v1
 
-And He rose up from there and came into the borders of Judea and beyond the Jordan; and again crowds came together to Him, and as He was accustomed, again He taught them.
+And He rose up from there and came into the [[Mark-10.fn#Footnote 1.1 — borders|borders]] of Judea and beyond the Jordan; and again crowds came together to Him, and as He was accustomed, again He [[Mark-10.fn#Footnote 1.2 — taught|taught]] them.
 
 ## v2
 
-And some Pharisees came and asked Him whether it was lawful for a man to divorce a wife, so as to tempt Him.
+[[Mark-10.fn#Footnote 2.1 — And|And]] some [[Mark-10.fn#Footnote 2.2 — Pharisees|Pharisees]] came and asked Him whether it was lawful for a man to [[Mark-10.fn#Footnote 2.3 — divorce|divorce]] a wife, so as to tempt Him.
 
 ## v3
 
@@ -27,7 +27,7 @@ But from the beginning of creation, He made them male and female.
 
 ## v7
 
-For this cause shall a man leave his father and mother and shall be joined to his wife;
+For this cause shall a man leave his father and mother [[Mark-10.fn#Footnote 7.1 — and|and]] shall be joined to his wife;
 
 ## v8
 
@@ -55,7 +55,7 @@ And they brought little children to Him so that He might touch them, but the dis
 
 ## v14
 
-But Jesus, seeing it, was indignant and said to them, Allow the little children to come to Me. Do not forbid them, for of such is the kingdom of God.
+But Jesus, seeing it, was [[Mark-10.fn#Footnote 14.1 — indignant|indignant]] and said to them, [[Mark-10.fn#Footnote 14.2 — Allow|Allow]] the little children to come to Me. Do not forbid them, for of [[Mark-10.fn#Footnote 14.3 — such|such]] is the kingdom of God.
 
 ## v15
 
@@ -67,7 +67,7 @@ And taking them into His arms, He fervently blessed them, laying His hands on th
 
 ## v17
 
-And as He went out into the road, someone ran to Him and kneeling before Him asked Him, Good Teacher, what shall I do that I may inherit eternal life?
+[[Mark-10.fn#Footnote 17.1 — And|And]] as He went out into the road, someone ran to Him and kneeling before Him asked Him, Good Teacher, what shall I do that I may inherit eternal life?
 
 ## v18
 
@@ -83,7 +83,7 @@ And he said to Him, Teacher, all these things I have kept from my youth.
 
 ## v21
 
-And Jesus, looking upon him, was moved with love for him and said to him, One thing you lack: go; the things you have, sell and give to the poor, and you will have treasure in heaven; and come, follow Me.
+And Jesus, looking upon him, was [[Mark-10.fn#Footnote 21.1 — moved|moved]] with love for him and said to him, One thing you lack: go; the things you have, sell and give to the poor, and you will have treasure in heaven; and come, follow [[Mark-10.fn#Footnote 21.2 — Me|Me]].
 
 ## v22
 
@@ -95,7 +95,7 @@ And Jesus, looking around, said to His disciples, How difficult it will be for t
 
 ## v24
 
-And the disciples were amazed at His words. But Jesus again answered and said to them, Children, how difficult it is for those who trust in riches to enter into the kingdom of God!
+And the disciples were amazed at His words. But Jesus again answered and said to them, Children, how difficult it is [[Mark-10.fn#Footnote 24.1 — for|for]] those who trust in riches to enter into the kingdom of God!
 
 ## v25
 
@@ -103,7 +103,7 @@ It is easier for a camel to pass through the eye of a needle than for a rich man
 
 ## v26
 
-But they were astonished beyond measure and said among themselves, Then who can be saved?
+But they were astonished beyond measure and said [[Mark-10.fn#Footnote 26.1 — among|among]] themselves, Then who can be saved?
 
 ## v27
 
@@ -119,7 +119,7 @@ Jesus said, Truly I say to you, There is no one who has left house or brothers o
 
 ## v30
 
-But that he shall receive a hundred times as much now at this time, houses and brothers and sisters and mothers and children and fields, with persecutions, and in the coming age, eternal life.
+But that he shall receive a hundred times as much now at this time, houses and brothers and sisters and mothers and children and fields, with persecutions, and in the coming age, eternal [[Mark-10.fn#Footnote 30.1 — life|life]].
 
 ## v31
 
@@ -131,7 +131,7 @@ Now they were on the road, going up to Jerusalem, and Jesus led the way before t
 
 ## v33
 
-Behold, we are going up to Jerusalem, and the Son of Man will be delivered to the chief priests and to the scribes. And they will condemn Him to death and deliver Him to the Gentiles,
+Behold, we are going up to Jerusalem, and the Son of Man will be [[Mark-10.fn#Footnote 33.1 — delivered|delivered]] to the chief priests and to the [[Mark-10.fn#Footnote 33.2 — scribes|scribes]]. And they will condemn Him to [[Mark-10.fn#Footnote 33.3 — death|death]] and deliver Him to the Gentiles,
 
 ## v34
 
@@ -139,7 +139,7 @@ And they will mock Him and spit at Him and scourge Him, and they will kill Him. 
 
 ## v35
 
-And James and John, the sons of Zebedee, came to Him, saying to Him, Teacher, we want You to do for us whatever we ask You.
+[[Mark-10.fn#Footnote 35.1 — And|And]] James and John, the sons of Zebedee, came to Him, saying to Him, Teacher, we want You to do for us whatever we ask You.
 
 ## v36
 
@@ -151,7 +151,7 @@ And they said to Him, Grant to us to sit, one on Your right and one on Your left
 
 ## v38
 
-But Jesus said to them, You do not know what you are asking. Are you able to drink the cup which I drink, or to be baptized with the baptism with which I am baptized?
+But Jesus said to them, You do not know what you are asking. Are you able to drink the [[Mark-10.fn#Footnote 38.1 — cup|cup]] which I drink, or to be baptized with the [[Mark-10.fn#Footnote 38.1 — cup|baptism]] with which I am baptized?
 
 ## v39
 
@@ -179,15 +179,15 @@ And whoever wants to be first among you shall be the slave of all.
 
 ## v45
 
-For even the Son of Man did not come to be served, but to serve and to give His life as a ransom for many.
+For even the [[Mark-10.fn#Footnote 45.1 — Son|Son]] of Man did not come to be served, but to serve and to give His [[Mark-10.fn#Footnote 45.2 — life|life]] as a [[Mark-10.fn#Footnote 45.3 — ransom|ransom]] for many.
 
 ## v46
 
-And they came to Jericho. And as He was going out from Jericho, as well as His disciples and a large crowd, the son of Timaeus, Bartimaeus, a blind beggar, sat by the road.
+And they came to Jericho. And as He was going out from Jericho, as well as His disciples and a large crowd, the son of Timaeus, Bartimaeus, a [[Mark-10.fn#Footnote 46.1 — blind|blind]] beggar, sat by the road.
 
 ## v47
 
-And when he heard that it was Jesus the Nazarene, he began to cry out and say, Jesus, Son of David, have mercy on me!
+And when he heard that it was Jesus the Nazarene, he began to cry out and say, Jesus, [[Mark-10.fn#Footnote 47.1 — Son|Son]] of David, have mercy on me!
 
 ## v48
 
@@ -195,7 +195,7 @@ And many rebuked him so that he would be silent, but he cried out much more, Son
 
 ## v49
 
-And Jesus, standing still, said, Call him here. And they called the blind man, saying to him, Take courage. Rise. He is calling you.
+And Jesus, standing still, said, [[Mark-10.fn#Footnote 49.1 — Call|Call]] him here. And they called the blind man, saying to him, Take courage. Rise. He is calling you.
 
 ## v50
 
@@ -203,8 +203,8 @@ And throwing his garment aside, he leaped up and came to Jesus.
 
 ## v51
 
-And Jesus answered him and said, What do you want Me to do for you? And the blind man said to Him, Rabboni, that I may receive my sight!
+And Jesus answered him and said, [[Mark-10.fn#Footnote 51.1 — What|What]] do you want Me to do for you? And the blind man said to Him, Rabboni, that I may receive my sight!
 
 ## v52
 
-And Jesus said to him, Go; your faith has healed you. And immediately he received his sight and followed Him on the road.
+And Jesus said to him, Go; your faith has [[Mark-10.fn#Footnote 52.1 — healed|healed]] you. And immediately he received his sight and followed Him on the road.

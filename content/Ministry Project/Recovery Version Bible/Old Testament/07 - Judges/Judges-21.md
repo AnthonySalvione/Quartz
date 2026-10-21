@@ -40,7 +40,7 @@ So the assembly sent twelve thousand of the valiant there and commanded them, sa
 
 ## v11
 
-And this is the thing that you shall do: Every male and every woman who has lain with a male you shall utterly destroy.
+And this is the thing that you shall do: Every male and every woman who has lain with a male you shall [[Judges-21.fn#Footnote 11.1 — utterly|utterly]] destroy.
 
 ## v12
 
@@ -96,4 +96,4 @@ And the children of Israel departed from there at that time, each man to his tri
 
 ## v25
 
-In those days there was no king in Israel; everyone did what was right in his own eyes.
+In those days there was [[Judges-21.fn#Footnote 25.1 — no|no]] king in Israel; everyone did what was right in his own eyes.

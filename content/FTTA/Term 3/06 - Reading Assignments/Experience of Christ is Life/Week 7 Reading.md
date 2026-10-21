@@ -1,0 +1,73 @@
+---
+document type: reading
+---
+# The growth in life (3)
+
+## Scripture Reading: 
+[[Romans-08#v1|Rom. 8:1-6]]
+
+## Freed from the law of sin and of death
+
+### Being in Christ Jesus
+
+***Romans 7*** speaks of our involvement with several persons. In this chapter there are a woman ([[Romans-07#v2|vv. 2-3]]), two husbands ([[Romans-07#v2|vv. 2-4]]), “I” ([[Romans-07#v7|vv. 7-24]]), and sin ([[Romans-07#v8|vv. 8-9]], [[Romans-07#v11|11]], [[Romans-07#v13|13-14]], [[Romans-07#v17|17]], [[Romans-07#v20|20]]). Chapter 8 shows us another person. Verse 1 says, “There is now then no condemnation to those who are in Christ Jesus.” We are now in Christ Jesus, not in the old husband, the “I,” or sin. However, if in our experience we remain in the old husband or the “I,” we are under sin. According to ***Romans 7***, sin is a person ([[Romans-08#v8|vv. 8]], [[Romans-08#v9|9]], [[Romans-08#v11|11]], [[Romans-08#v17|17]], [[Romans-08#v20|20]]). It is difficult to say whether this person is Satan or ourself, because these two are one. In Matthew 16 when Peter rebuked the Lord, saying, “God be merciful to You, Lord,” Jesus turned and said to Peter, “Get behind Me, Satan!” ([[Matthew-16#v22|vv. 22-23]]). At that time Peter and Satan were one. The “I” in ***Romans 7*** is not merely identified with Satan; the “I” and Satan are one. Jesus Christ is the only person in the entire universe who is not one with Satan.
+
+On the one hand, sin is Satan himself. On the other hand, because Satan injected himself into the human race, the entire human race also became sin; that is, the entire human race became one with Satan. Satan, sin, and the human race are one in the eyes of God. If we live by the “I,” we cannot avoid sin, because the “I” is sin. We can never get away from sin, and we can never overcome sin because we ourselves are sin. Regardless of how good one might seem to be in the eyes of others, in the eyes of God he is sin.
+
+The experience of sin in ***Romans 7*** leads us into condemnation ([[Romans-07#v24|v. 24]]; [[Romans-07#v1|8:1]]). The condemnation in [[Romans-08#v1|Romans 8:1]] is not the condemnation concerning the things we did in the past. It is the condemnation of our current situation. No one else condemns himself as much as a seeking Christian. Before we were seeking Christ, we did not condemn ourselves very much. After we had a clearance with God, we made up our mind to be perfect, pure, and right in everything. As a result, we may constantly condemn ourselves. Those who seek the Lord may not only be under this condemnation day after day but even hour after hour. We condemn ourselves that we are wrong in our attitude and wrong in the way we speak, in the inaccurate words we use. If one means business to seek after Christ, he may become a person who constantly condemns himself. This is the condemned person unveiled in ***Romans 7*** who eventually says, “Wretched man that I am! Who will deliver me from the body of this death?” ([[Romans-07#v24|v. 24]]).
+
+In ***Romans 7*** Paul could not escape from sin. However, in chapter 8 he declares, “There is now then no condemnation to those who are in Christ Jesus” ([[Romans-08#v1|v. 1]]). Paul was no longer in himself. Therefore, he was not in sin; that is, he was not in Satan. He was in another person, Christ Jesus, who in our experience of life is the Spirit of life. Christ Jesus in verse 1 and the Spirit of life in verse 2 are one person. Without being the Spirit of life, Christ could not be real to us. In Christ we are freed from condemnation because Christ Jesus today is the Spirit of life.
+
+### The law of the Spirit of life
+
+[[Romans-08#v2|Romans 8:2]] says, “The law of the Spirit of life has freed me in Christ Jesus from the law of sin and of death.” Strictly speaking, it is not the person of Christ in [[Romans-08#v2|Romans 8:2]] who frees us; it is the law of this person. With this person of life there is a law, the law of the Spirit of life, that frees us from the law of sin and of death.
+
+Every life has a law and even is a law. Even the small insects know how to fly because of the law of their life. The highest created life, the human life, is also a law. It is not correct to say that our sinful living comes from our habit. Our living does not come from our habit; it comes from our life as a law. If one scolds a table, it will not react, because inanimate things do not have a law. However, if we are scolded, we will be angry due to the law of our natural life, which is ourselves.
+
+The law of the Spirit of life ([[Romans-08#v2|v. 2]]), the law of good in the mind ([[Romans-07#v23|7:23]]), and the law of sin and of death ([[Romans-07#v23|v. 23]]; [[Romans-08#v2|8:2]]) are natural laws, not outward regulating laws. A natural law is not a regulation; it is a natural power. Gravity is an example of a natural law. When something is thrown into the air, it comes down because of the law of gravity. Objects always fall unless a stronger power is in effect. An airplane can fly against the power of gravity only because the law of aerodynamics overcomes the law of gravity. Without another power to restrain us, we sin spontaneously, just as an object falls downward when dropped. To tell a lie does not require exercise. When one lies, he does it spontaneously. Peter did not need to exercise to lie when he denied the Lord, saying, “I do not know the man!” ([[Matthew-26#v72|Matt. 26:72]]). He did it spontaneously.
+
+Sin and death are companions. Where one is, the other is surely there also. The law of sin is also the law of death. However, within us is a stronger person, Jesus Christ as the Spirit of life. This stronger person is a stronger law, and this stronger law defeats us as the weaker law. In this way the stronger law frees us from the weaker law.
+
+### Setting our mind on the spirit
+
+We should no longer trust in ourselves and should not try to overcome sin. We are not able to overcome it. Rather, we should set our mind on the spirit. [[Romans-08#v6|Romans 8:6]] says, “The mind set on the flesh is death, but the mind set on the spirit is life and peace.” Today the Spirit, who is the Spirit of life, Christ Jesus Himself, is one with us in our spirit. All day long we need to set our mind on nothing but our spirit. Our mind set on our spirit is life, and this life is the processed Triune God — the Father, the Son, and the Spirit, the consummation of the Triune God. Moreover, a person whose mind is set on the spirit walks according to the spirit ([[Romans-08#v4|v. 4]]). We must learn to see these truths and learn to practice setting our mind on our spirit all the time. This is the experience of life, which produces the growth of life.
+
+## Questions and answers
+
+### Question: Is the experience to which Paul refers in ***Romans 7*** the experience of a believer or an unbeliever?
+
+Answer: ***Romans 7*** describes a fighting between two laws: the law of sin and the law of good. When we believed in the Lord Jesus, we were regenerated, and we became a new creation. However, after being saved every believer makes up his mind to do good. A new believer may say, “I was a sinful person in the past, but I have now repented and made confession to God, and I have believed in the Lord Jesus. Now since I am saved, I must try my best to do good.” To make up one’s mind in this way immediately brings one back to the experience of an unbeliever. When Paul wrote ***Romans 7***, he was a saved person. After being saved, he may have gone back to his old standing as an unbeliever trying to keep the law. When a believer returns to the standing of an unbeliever under the law, trying to do good to please God, he experiences ***Romans 7***.
+
+Throughout the years Bible students have argued whether ***Romans 7*** is the experience of an unbeliever or of a Christian. However, after being saved, every saved one experiences being brought back to the standing of an unbeliever. They make up their mind to please God, to do good, and to be perfect, but they are eventually defeated. In the morning they may have a morning revival, and after this revival they make up their mind to be perfect for the whole day. However, by noontime they have made several mistakes, and by the afternoon they may be fully defeated. That night they may try to make restitution, confessing their failures, and the next morning they will try again. This history repeats itself many times.
+
+### Question: Is trying to set our mind on our spirit an example of trying to do good?
+
+Answer: In my youth I heard a saying, “To know sin is to sin.” Before Adam and Eve took the fruit of the tree of the knowledge of good and evil, they were innocent; there was no sin. After they took the fruit, their eyes were opened, and they began to know good and evil. To try to do good is sin. Likewise, to try to set our mind on the spirit is also sin. Do not try to do anything. Simply set your mind on the spirit. Paul does not charge us to try to set our mind on the spirit. He simply says, “The mind set on the spirit is life and peace” ([[Romans-08#v6|8:6b]]). After hearing a message on setting the mind on the spirit, some may resolve to do their best to do this. We need to stop our doing. Whenever we try to overcome, we are defeated. Faith is not doing or trying; faith is simply believing what God has said and saying Amen. This faith keeps us in rest.
+
+### Question: How do you apply the law of the Spirit of life?
+
+Answer: To apply the law of life may also be our doing. Do not consider how to apply the law of the Spirit of life or how to stop the law of sin. If you have seen the law of the Spirit of life, simply say, “Hallelujah, Amen!” The law of the Spirit of life will work by itself; it does not need you to apply it. Faith stops any kind of activity. It stops you from trying and doing. We do not know how the Lord will do it, but we do believe that He will do it.
+
+### Question: What is a practical example of setting our mind on the spirit?
+
+Answer: To define the way to set our mind on the spirit is to yield to a temptation. Paul does not charge us by saying, “Set your mind on the spirit.” We do not need to make up our mind to do this. Faith stops our activities. Faith always praises God. The example of Joshua and Caleb in the Bible shows us what it is to believe. Joshua and Caleb were not the ones who overcame in Numbers 13 and 14; it was the One in whom they trusted. God did everything. They simply enjoyed what God did. In Joshua 3 they crossed the Jordan River, but it was God who stopped the water. They simply walked over.
+
+Do not try to overcome your sin. Simply believe. Hallelujah! We are in Christ. Christ is our great I Am, and He is the Spirit of life. We have a Savior. If we do something for ourselves, we are attempting to be our own savior. We are declaring that we do not need Him. If we declare that we are wretched and hopeless and cannot do anything to rescue ourselves, we are declaring that we need a Savior.
+
+### Question: If in our fallen nature we are Satan, how can we live a grafted life with the Lord flowing through us to express Himself?
+
+Answer: We are the branches grafted into the cultivated Christ. He is the stronger life, and we are the weaker life. Regardless of what Satan would do, Christ is stronger. As long as we abide in Him, we remain in the place where we are grafted. Christ will do everything. We do not need to analyze. An antibiotic is stronger than the germs. We know that it deals with the germs, but we do not know how, and we do not need to know.
+
+Faith stops our activities. Faith even “blinds” us. If we have faith, we are like blind men. Abraham did not know where the Lord was leading him or what route he was taking. He only knew that the Lord was leading him. This is faith. To be too clear is to not believe.
+
+### Question: It seems that it is easy to have faith when I am in the meetings. However, as soon as I return home, there are “giants” waiting to devour what I have enjoyed. What can I do?
+
+Answer: Faith is always real and true. The environment is a lie. Listen to faith, not to the lie. If our environment is good, we do not need to believe. We need to believe when we are in a difficult environment. Worry, anxiety, and even physical sickness, all are lies. Faith always tells the environment that it is a lie, not a giant. To deny the environment is faith. In Numbers 13 and 14, Joshua and Caleb took the word of God as their faith. The unbelieving Israelites all saw the giants in Canaan and gave an evil report. However, Joshua and Caleb said, “Only do not rebel against Jehovah, nor should you fear the people of the land, for they are our bread” ([[Numbers-14#v9|14:9]]). Do not recognize the environment. Do not say that the meeting hall is the mountaintop and that your home is so poor. If you say this, you are standing with Satan. Your home is much better than the meeting hall. It is like the third heaven and the Holy of Holies, because wherever Christ is, there is the Holy of Holies.
+
+Sometimes we help Satan to do many things. Our husband or wife may not be that bad, but because we say they are bad, they become bad. The more we talk in this way, the worse they will be. This kind of speaking opens the door to Satan. We need to shut the door by declaring something positive. We should say, “I am not defeated. My being defeated is a lie. Satan, this lie must return to you.” To proclaim in this way is to exercise faith. Faith is against the environment.
+
+### Question: Some of the persons whom we are visiting are involved in improper matters. Should we tell them not to try to change themselves?
+
+Answer: We should not tell them this. We should simply bring them into Christ. We need to help them to believe into Christ and to pray. The Lord Jesus did not tell Zaccheus to restore fourfold what he had taken from others. The Lord only ministered Himself into Zaccheus and did something within him. It was not Zaccheus himself who could give half of his possessions to the poor. It was the Lord within him. He experienced a dynamic salvation.
+
+When we go to visit people, we must learn to speak Christ, to speak by the Spirit, that is, to minister Christ, the Spirit of life, into them. Then their salvation will be dynamic and organic, not something of teaching. Their salvation is not a receiving of a certain religion to change their way of living. Therefore, we have to pray much. While we are going out to speak to people, we need to be praying, “Lord, regardless of how good my word is, it is vanity. You are the reality. While I am speaking, You must come out with my word.”

@@ -40,7 +40,7 @@ And Jehovah spoke through His servants the prophets, saying,
 
 ## v11
 
-Because Manasseh the king of Judah has done these abominations and has done more evil than all that the Amorites did, who were before him, and has caused Judah also to sin with his idols;
+Because [[2 Kings-21.fn#Footnote 11.1 — Manasseh|Manasseh]] the king of Judah has done these abominations and has done more evil than all that the Amorites did, who were before him, and has caused Judah also to sin with his idols;
 
 ## v12
 

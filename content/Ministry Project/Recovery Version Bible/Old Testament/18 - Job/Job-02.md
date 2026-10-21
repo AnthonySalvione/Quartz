@@ -1,6 +1,6 @@
 ## v1
 
-Then one day, when the sons of God came to present themselves before Jehovah, Satan also came among them to present himself before Jehovah.
+Then one day, when the [[Job-02.fn#Footnote 1.1 — sons|sons]] of God came to present themselves before Jehovah, [[Job-02.fn#Footnote 1.2 — Satan|Satan]] also came among them to present himself before Jehovah.
 
 ## v2
 
@@ -8,7 +8,7 @@ And Jehovah said to Satan, Where have you come from? And Satan answered Jehovah 
 
 ## v3
 
-And Jehovah said to Satan, Have you considered My servant Job? For there is none like him on the earth, a perfect and upright man, who fears God and turns away from evil. And he still holds fast his integrity, though you have moved Me against him to destroy him without cause.
+And Jehovah said to Satan, Have you [[Job-02.fn#Footnote 3.1 — considered|considered]] My servant Job? For there is none like him on the earth, a perfect and upright man, who fears God and turns away from evil. And he still holds fast his integrity, though you have moved Me against him to destroy him without cause.
 
 ## v4
 
@@ -20,7 +20,7 @@ But stretch forth Your hand, and touch his bone and his flesh; and he will surel
 
 ## v6
 
-And Jehovah said to Satan, Here he is, in your hand; only spare his life.
+And Jehovah said to Satan, Here he is, in your hand; [[Job-02.fn#Footnote 6.1 — only|only]] spare his life.
 
 ## v7
 
@@ -48,4 +48,4 @@ And when they lifted up their eyes from a distance and did not recognize him, th
 
 ## v13
 
-And they sat with him on the ground seven days and seven nights; but none spoke a word to him, for they saw that his pain was very great.
+And they sat with him on the ground seven days and seven nights; but [[Job-02.fn#Footnote 13.1 — none|none]] spoke a word to him, for they saw that his pain was very great.

@@ -12,7 +12,7 @@ And the children of Israel cried out to Jehovah, for he had nine hundred iron ch
 
 ## v4
 
-Now Deborah was a prophetess, the wife of Lappidoth. She judged Israel at that time.
+Now [[Judges-04.fn#Footnote 4.1 — Deborah|Deborah]] was a prophetess, the wife of Lappidoth. She judged Israel at that time.
 
 ## v5
 

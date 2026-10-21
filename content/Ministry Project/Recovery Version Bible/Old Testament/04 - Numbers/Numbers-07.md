@@ -1,6 +1,6 @@
 ## v1
 
-And on the day that Moses had finished setting up the tabernacle, and had anointed it and sanctified it and all its furnishings and the altar and all its utensils, and had anointed them and sanctified them,
+And on the day that Moses had finished setting up the tabernacle, and had [[Numbers-07.fn#Footnote 1.1 — anointed|anointed]] it and sanctified it and all its furnishings and the altar and all its utensils, and had anointed them and sanctified them,
 
 ## v2
 
@@ -8,7 +8,7 @@ The leaders of Israel, the heads of their fathers’ households (they were the l
 
 ## v3
 
-And they brought their offering before Jehovah: six covered wagons and twelve oxen, a wagon for every two of the leaders and an ox for each one; and they presented them before the tabernacle.
+And they brought their offering before Jehovah: [[Numbers-07.fn#Footnote 3.1 — six|six]] covered wagons and twelve oxen, a wagon for every two of the leaders and an ox for each one; and they presented them before the tabernacle.
 
 ## v4
 
@@ -36,7 +36,7 @@ But to the sons of Kohath he gave none, because the service of the sanctuary bel
 
 ## v10
 
-And the leaders presented offerings for the dedication of the altar in the day that it was anointed; that is, the leaders presented their offering before the altar.
+And the leaders presented [[Numbers-07.fn#Footnote 10.1 — offerings|offerings]] for the dedication of the altar in the day that it was anointed; that is, the leaders presented their offering before the altar.
 
 ## v11
 
@@ -352,4 +352,4 @@ And all the livestock for the sacrifice of peace offerings: twenty-four bulls, s
 
 ## v89
 
-And when Moses went into the Tent of Meeting to speak with Him, he heard the voice speaking to him from above the expiation cover that was upon the Ark of the Testimony, from between the two cherubim; and he spoke to Him.
+And when Moses went into the Tent of Meeting to speak with Him, he heard the voice speaking to him from above the expiation cover that was upon the Ark of the Testimony, from between the two cherubim; and [[Numbers-07.fn#Footnote 89.1 — he|he]] spoke to Him.

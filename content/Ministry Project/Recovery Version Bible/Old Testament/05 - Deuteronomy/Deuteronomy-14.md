@@ -1,14 +1,14 @@
 ## v1
 
-You are the children of Jehovah your God; you shall not cut yourselves nor shave your forehead for the dead.
+[[Deuteronomy-14.fn#Footnote 1.1 — You|You]] are the children of Jehovah your God; you shall not cut yourselves nor shave your forehead for the dead.
 
 ## v2
 
-For you are a holy people to Jehovah your God, and Jehovah has chosen you to be a people for His personal treasure, from among all the peoples which are upon the face of the earth.
+For you are a holy people to Jehovah your God, and Jehovah has chosen you to be a people for His [[Deuteronomy-14.fn#Footnote 2.1 — personal|personal]] treasure, from among all the peoples which are upon the face of the earth.
 
 ## v3
 
-You shall not eat any abominable thing.
+You shall not [[Deuteronomy-14.fn#Footnote 3.1 — eat|eat]] any abominable thing.
 
 ## v4
 
@@ -20,11 +20,11 @@ The deer, the gazelle, the roebuck, the wild goat, the ibex, the antelope, the m
 
 ## v6
 
-And every animal that has a divided hoof, that is, has its hoof split in two, and that chews the cud among the animals, that you may eat.
+And every animal that [[Deuteronomy-14.fn#Footnote 6.1 — has|has]] a divided hoof, that is, has its hoof split in two, and that chews the cud among the animals, that you may eat.
 
 ## v7
 
-However, these you shall not eat of those that chew the cud or of those that have a split hoof: the camel, the hare, and the hyrax; because although they chew the cud, they do not have a divided hoof; they are unclean to you.
+However, these you shall not eat of those that chew the cud or of those that [[Deuteronomy-14.fn#Footnote 7.1 — have|have]] a split hoof: the camel, the hare, and the hyrax; because although they chew the cud, they do not have a divided hoof; they are unclean to you.
 
 ## v8
 
@@ -72,7 +72,7 @@ The stork, the heron of every kind, the hoopoe, and the bat.
 
 ## v19
 
-And all flying insects are unclean to you; they shall not be eaten.
+And all [[Deuteronomy-14.fn#Footnote 19.1 — flying|flying]] insects are unclean to you; they shall not be eaten.
 
 ## v20
 
@@ -80,7 +80,7 @@ You may eat any clean flying animal.
 
 ## v21
 
-You shall not eat any carcass; to the sojourner who is within your gates you may give it that he may eat it; or you may sell it to a foreigner. For you are a holy people to Jehovah your God. You shall not boil a kid in its mother’s milk.
+You shall not eat any carcass; to the sojourner who is within your gates you may give it that he may eat it; or you may sell it to a foreigner. For you are a holy people to Jehovah your God. You shall not [[Deuteronomy-14.fn#Footnote 21.1 — boil|boil]] a kid in its mother’s milk.
 
 ## v22
 
@@ -88,7 +88,7 @@ You must give a tenth of all the produce of your seed, which the field brings fo
 
 ## v23
 
-And you shall eat before Jehovah your God, in the place where He will choose to cause His name to dwell, the tithe of your grain, of your new wine, and of your fresh oil and the firstborn of your herd and flock, that you may learn to fear Jehovah your God always.
+And you shall eat [[Deuteronomy-14.fn#Footnote 23.1 — before|before]] Jehovah your God, in the place where He will choose to cause His name to dwell, the tithe of your grain, of your new wine, and of your fresh oil and the firstborn of your herd and flock, that you may learn to fear Jehovah your God always.
 
 ## v24
 
@@ -108,7 +108,7 @@ But you shall not forsake the Levite who is within your gates, for he has no por
 
 ## v28
 
-At the end of every three years you shall bring forth all the tithe of your produce for that year and lay it within your gates;
+At the end of every three years you shall bring forth all the [[Deuteronomy-14.fn#Footnote 28.1 — tithe|tithe]] of your produce for that year and lay it within your gates;
 
 ## v29
 

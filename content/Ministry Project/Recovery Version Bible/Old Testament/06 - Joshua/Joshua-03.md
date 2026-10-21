@@ -8,7 +8,7 @@ And at the end of three days the officers went through the midst of the camp,
 
 ## v3
 
-And they commanded the people, saying, When you see the Ark of the Covenant of Jehovah your God and the Levitical priests bearing it, you shall set out from your place and go after it.
+And they commanded the people, saying, When you see the [[Joshua-03.fn#Footnote 3.1 — Ark|Ark]] of the Covenant of Jehovah your God and the Levitical priests bearing it, you shall set out from your place and go after it.
 
 ## v4
 
@@ -48,7 +48,7 @@ Therefore now take twelve men for yourselves out of the tribes of Israel, one ma
 
 ## v13
 
-And when the soles of the feet of the priests who carry the Ark of Jehovah, the Lord of all the earth, come to rest in the waters of the Jordan; the waters of the Jordan, the waters that flow down from upstream, will be cut off, and they will stand in a heap.
+And when the soles of the feet of the priests who carry the Ark of Jehovah, the Lord of all the earth, come to rest in the waters of the Jordan; the waters of the Jordan, the waters that flow down from upstream, will be cut off, and they will [[Joshua-03.fn#Footnote 13.1 — stand|stand]] in a heap.
 
 ## v14
 
@@ -60,7 +60,7 @@ And when those who carried the Ark came to the Jordan, and the feet of the pries
 
 ## v16
 
-The waters that flowed down from upstream stood and rose up in a heap a great distance away, at Adam, the city that is beside Zarethan; and those that flowed down toward the sea of the Arabah, the Salt Sea, were completely cut off. And the people crossed over from opposite Jericho.
+The waters that flowed down from upstream stood and rose up in a heap a great distance away, at Adam, the city that is beside Zarethan; and those that flowed down toward the sea of the [[Joshua-03.fn#Footnote 16.1 — Arabah|Arabah]], the [[Joshua-03.fn#Footnote 16.2 — Salt|Salt]] Sea, were completely cut off. And the people [[Joshua-03.fn#Footnote 16.3 — crossed|crossed]] over from opposite Jericho.
 
 ## v17
 

@@ -1,6 +1,6 @@
 ## v1
 
-Then Samuel died, and all Israel gathered together and mourned for him; and they buried him at his house in Ramah. And David rose up and went down into the wilderness of Paran.
+Then Samuel [[1 Samuel-25.fn#Footnote 1.1 — died|died]], and all Israel gathered together and mourned for him; and they buried him at his house in Ramah. And David rose up and went down into the wilderness of Paran.
 
 ## v2
 
@@ -80,7 +80,7 @@ And as she rode on her donkey and came down under the cover of the mountain, Dav
 
 ## v21
 
-Now David had said, It was certainly in vain that I guarded all that this fellow has in the wilderness, so that nothing was missed of all that he has; for he has repaid me evil for good.
+Now David had said, [[1 Samuel-25.fn#Footnote 21.1 — It|It]] was certainly in vain that I guarded all that this fellow has in the wilderness, so that nothing was missed of all that he has; for he has repaid me evil for good.
 
 ## v22
 
@@ -96,7 +96,7 @@ And she fell at his feet and said, Upon me alone, my lord, be this iniquity; and
 
 ## v25
 
-May my lord not take this worthless man Nabal to heart. For as his name is, so he is: Nabal is his name, and folly is with him. But I your female servant did not see my lord’s young men, whom you sent.
+May my lord not take this worthless man Nabal to heart. For as his name is, so he is: [[1 Samuel-25.fn#Footnote 25.1 — Nabal|Nabal]] is his name, and folly is with him. But I your female servant did not see my lord’s young men, whom you sent.
 
 ## v26
 
@@ -152,7 +152,7 @@ And about ten days later Jehovah struck Nabal, and he died.
 
 ## v39
 
-And when David heard that Nabal was dead, he said, Blessed be Jehovah, who has pleaded the cause of my reproach at the hand of Nabal and who has withheld His servant from evildoing; and Jehovah has returned the evildoing of Nabal upon his own head. And David sent men to propose to Abigail, that he might take her to himself as wife.
+And when David heard that Nabal was dead, he said, Blessed be Jehovah, who has pleaded the cause of my reproach at the hand of Nabal and who has withheld His servant from evildoing; and Jehovah has returned the evildoing of Nabal upon his own head. And David sent men to propose to Abigail, that he might take her to himself as [[1 Samuel-25.fn#Footnote 39.1 — wife|wife]].
 
 ## v40
 

@@ -28,7 +28,7 @@ But it is your eyes that have seen all the great work of Jehovah which He did.
 
 ## v8
 
-Therefore you shall keep the whole commandment which I am commanding you today so that you may be strong and that you may go in and possess the land into which you are crossing over to possess,
+Therefore you shall keep the whole commandment which I am commanding you today so that you may be [[Deuteronomy-11.fn#Footnote 8.1 — strong|strong]] and that you may go in and possess the land into which you are crossing over to possess,
 
 ## v9
 
@@ -36,7 +36,7 @@ And so that you may extend your days upon the ground which Jehovah swore to your
 
 ## v10
 
-For the land which you are entering in to possess is not like the land of Egypt, from which you came forth, where you used to sow your seed and water by foot as in a vegetable garden.
+For the land which you are entering in to possess is not like the land of Egypt, from which you came forth, where you used to sow your seed and [[Deuteronomy-11.fn#Footnote 10.1 — water|water]] by foot as in a vegetable garden.
 
 ## v11
 
@@ -44,7 +44,7 @@ But the land into which you are crossing over to possess is a land of mountains 
 
 ## v12
 
-It is a land which Jehovah your God cares for; always the eyes of Jehovah your God are upon it, from the beginning of the year even to the end of the year.
+It is a land which Jehovah your God cares for; always the [[Deuteronomy-11.fn#Footnote 12.1 — eyes|eyes]] of Jehovah your God are upon it, from the beginning of the year even to the end of the year.
 
 ## v13
 
@@ -52,7 +52,7 @@ And if you are certain to listen to My commandments, which I am commanding you t
 
 ## v14
 
-I will give rain for your land in its season, the early rain and the late rain, so that you may gather your grain and your new wine and your fresh oil.
+I will give rain for your land in its season, the [[Deuteronomy-11.fn#Footnote 14.1 — early|early]] rain and the late rain, so that you may gather your grain and your new wine and your fresh oil.
 
 ## v15
 
@@ -68,7 +68,7 @@ And the anger of Jehovah burn against you and He shut up heaven, so that there i
 
 ## v18
 
-Therefore you shall lay these words of mine on your heart and on your soul; and you shall bind them on your hand as a sign, and they shall be as frontlets between your eyes;
+Therefore you shall [[Deuteronomy-11.fn#Footnote 18.1 — lay|lay]] these words of mine on your heart and on your soul; and you shall bind them on your hand as a sign, and they shall be as frontlets between your eyes;
 
 ## v19
 
@@ -92,7 +92,7 @@ Jehovah will dispossess all these nations from before you, and you will disposse
 
 ## v24
 
-Every place on which the sole of your foot treads will be yours; from the wilderness and Lebanon, from the river, the river Euphrates, even to the farmost sea will be your territory.
+Every place on which the sole of your foot treads will be yours; from the wilderness and Lebanon, from the river, the river Euphrates, even to the [[Deuteronomy-11.fn#Footnote 24.1 — farmost|farmost]] sea will be your territory.
 
 ## v25
 
@@ -100,7 +100,7 @@ No man will be able to stand against you; Jehovah your God will put the dread an
 
 ## v26
 
-See, I am setting before you today a blessing and a curse:
+See, I am setting before you today a [[Deuteronomy-11.fn#Footnote 26.1 — blessing|blessing]] and a [[Deuteronomy-11.fn#Footnote 26.1 — blessing|curse]]:
 
 ## v27
 

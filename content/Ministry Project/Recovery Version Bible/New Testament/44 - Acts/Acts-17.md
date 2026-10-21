@@ -3,11 +3,11 @@ Author: Luke
 ---
 ## v1
 
-And they traveled through Amphipolis and Apollonia and came to Thessalonica, where there was a synagogue of the Jews.
+And they traveled through Amphipolis and Apollonia and came to [[Acts-17.fn#Footnote 1.1 — Thessalonica|Thessalonica]], where there was a [[Acts-17.fn#Footnote 1.2 — synagogue|synagogue]] of the Jews.
 
 ## v2
 
-And according to his custom Paul went in to them, and on three Sabbaths he reasoned with them from the Scriptures,
+And according to his custom Paul [[Acts-17.fn#Footnote 2.1 — went|went]] in to them, and on three Sabbaths he reasoned with them from the Scriptures,
 
 ## v3
 
@@ -15,7 +15,7 @@ Opening and setting before them that the Christ had to suffer and rise from the 
 
 ## v4
 
-And some of them were persuaded and were joined to Paul and Silas, as well as a great multitude of the devout Greeks, and of the chief women not a few.
+And some of them [[Acts-17.fn#Footnote 4.1 — were|were]] persuaded and were joined to Paul and Silas, as well as a great multitude of the devout Greeks, and of the chief women not a few.
 
 ## v5
 
@@ -23,7 +23,7 @@ But the Jews, becoming jealous and taking along some evil men from among the loa
 
 ## v6
 
-But when they did not find them, they dragged Jason and some brothers before the city officials, shouting, These men who have upset the world have come here also,
+But when they did not find them, they dragged Jason and some brothers before the city officials, shouting, These men who have [[Acts-17.fn#Footnote 6.1 — upset|upset]] the world have come here also,
 
 ## v7
 
@@ -43,7 +43,7 @@ And the brothers immediately sent Paul and Silas away during the night to Berea,
 
 ## v11
 
-Now these people were more noble than those in Thessalonica, for they received the word with all eagerness, examining the Scriptures daily to see whether these things were so.
+Now these people were more [[Acts-17.fn#Footnote 11.1 — noble|noble]] than those in Thessalonica, for they received the word with all eagerness, examining the Scriptures daily to see whether these things were so.
 
 ## v12
 
@@ -59,11 +59,11 @@ And immediately the brothers then sent Paul off, to go as far as the sea; and Si
 
 ## v15
 
-And those who conducted Paul brought him as far as Athens; and receiving a command for Silas and Timothy to come to him as quickly as possible, they went off.
+And those who conducted Paul brought him as far as [[Acts-17.fn#Footnote 15.1 — Athens|Athens]]; and receiving a command for Silas and Timothy to come to him as quickly as possible, they went off.
 
 ## v16
 
-And while Paul was waiting for them in Athens, his spirit was provoked within him as he beheld that the city was full of idols.
+And while Paul was waiting for them in Athens, his [[Acts-17.fn#Footnote 16.1 — spirit|spirit]] was provoked within him as he beheld that the city was [[Acts-17.fn#Footnote 16.2 — full|full]] of idols.
 
 ## v17
 
@@ -71,15 +71,15 @@ He reasoned therefore in the synagogue with the Jews and the devout, and in the 
 
 ## v18
 
-And some of the Epicurean and Stoic philosophers also confronted him. And some said, What would this babbler wish to say? And others, He seems to be an announcer of foreign deities — because he was announcing Jesus and the resurrection as the gospel.
+And some of the [[Acts-17.fn#Footnote 18.1 — Epicurean|Epicurean]] and [[Acts-17.fn#Footnote 18.2 — Stoic|Stoic]] philosophers also confronted him. And some said, What would this [[Acts-17.fn#Footnote 18.3 — babbler|babbler]] wish to say? And others, He seems to be an announcer of foreign [[Acts-17.fn#Footnote 18.4 — deities|deities]] — because he was announcing Jesus and the resurrection as the gospel.
 
 ## v19
 
-And they took hold of him and led him to the Areopagus, saying, May we know what this new teaching is which is being spoken by you?
+And they took hold of him and led him to the [[Acts-17.fn#Footnote 19.1 — Areopagus|Areopagus]], saying, May we know what this new teaching is which is being spoken by you?
 
 ## v20
 
-For you are bringing strange things to our ears. We intend to know therefore what these things mean.
+For you are bringing strange things to our ears. We intend to know therefore [[Acts-17.fn#Footnote 20.1 — what|what]] these things mean.
 
 ## v21
 
@@ -87,7 +87,7 @@ For you are bringing strange things to our ears. We intend to know therefore wha
 
 ## v22
 
-And Paul stood in the midst of the Areopagus and said, Men of Athens, I observe that in every way you very much revere your deities.
+And Paul stood in the midst of the Areopagus and said, [[Acts-17.fn#Footnote 22.1 — Men|Men]] of Athens, I observe that in every way you [[Acts-17.fn#Footnote 22.2 — very|very]] much revere your deities.
 
 ## v23
 
@@ -95,7 +95,7 @@ For while I was passing through and carefully observing the objects of your wors
 
 ## v24
 
-The God who made the world and all things in it, this One, being Lord of heaven and earth, does not dwell in temples made with hands;
+The [[Acts-17.fn#Footnote 24.1 — God|God]] who made the world and all things in it, this One, being Lord of heaven and earth, does not dwell in temples made with hands;
 
 ## v25
 
@@ -103,27 +103,27 @@ Neither is He served by human hands as though He needed anything in addition, si
 
 ## v26
 
-And He made from one every nation of men to dwell on all the face of the earth, determining beforehand their appointed seasons and the boundaries of their dwelling,
+And He made from [[Acts-17.fn#Footnote 26.1 — one|one]] every nation of men to dwell on all the face of the earth, determining beforehand their [[Acts-17.fn#Footnote 26.2 — appointed|appointed]] seasons and the boundaries of their dwelling,
 
 ## v27
 
-That they might seek God, if perhaps they might grope for Him and find Him, even though He is not far from each one of us;
+That they might seek God, if perhaps they might grope for Him and find Him, even though He is [[Acts-17.fn#Footnote 27.1 — not|not]] far from each one of us;
 
 ## v28
 
-For in Him we live and move and are, as even some poets among you have said, For we are also His race.
+For [[Acts-17.fn#Footnote 28.1 — in|in]] Him we live and move and are, as even some [[Acts-17.fn#Footnote 28.2 — poets|poets]] among you have said, For we are also [[Acts-17.fn#Footnote 28.3 — His|His]] [[Acts-17.fn#Footnote 28.4 — race|race]].
 
 ## v29
 
-Being then the race of God, we ought not to suppose that what is divine is like gold or silver or stone, like an engraving of art and thought of man.
+Being then the race of God, we ought not to suppose that [[Acts-17.fn#Footnote 29.1 — what|what]] is divine is like gold or silver or stone, like an engraving of art and [[Acts-17.fn#Footnote 29.2 — thought|thought]] of man.
 
 ## v30
 
-Therefore, having overlooked the times of ignorance, God now charges all men everywhere to repent,
+Therefore, having overlooked the times of ignorance, God now [[Acts-17.fn#Footnote 30.1 — charges|charges]] all men everywhere to repent,
 
 ## v31
 
-Because He has set a day in which He is to judge the world in righteousness by the man whom He has designated, having furnished proof to all by raising Him from the dead.
+Because He has set a [[Acts-17.fn#Footnote 31.1 — day|day]] in which He is to judge the world in righteousness by the man whom He has designated, having furnished [[Acts-17.fn#Footnote 31.2 — proof|proof]] to all by raising Him from the dead.
 
 ## v32
 

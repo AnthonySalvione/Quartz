@@ -3,7 +3,7 @@ Author: Mark
 ---
 ## v1
 
-And they came to the other side of the sea, into the region of the Gerasenes.
+[[Mark-05.fn#Footnote 1.1 — And|And]] they came to the other side of the sea, into the region of the Gerasenes.
 
 ## v2
 
@@ -11,7 +11,7 @@ And when He came out of the boat, immediately, from out of the tombs, a man with
 
 ## v3
 
-Who had his dwelling among the tombs. And no one could bind him any longer, not even with a chain,
+Who had his dwelling among the [[Mark-05.fn#Footnote 3.1 — tombs|tombs]]. And no one could bind him any longer, not even with a chain,
 
 ## v4
 
@@ -27,11 +27,11 @@ And when he saw Jesus from a distance, he ran and worshipped Him,
 
 ## v7
 
-And crying out with a loud voice, he said, What do I have to do with You, Jesus, Son of the Most High God? I adjure You by God, do not torment me!
+And crying out with a loud voice, [[Mark-05.fn#Footnote 7.1 — he|he]] said, [[Mark-05.fn#Footnote 7.2 — What|What]] do I have to do with You, Jesus, Son of the Most High God? I adjure You by God, do not torment me!
 
 ## v8
 
-For He had said to him, Come out of the man, unclean spirit.
+For He had said to him, Come out of the man, unclean [[Mark-05.fn#Footnote 8.1 — spirit|spirit]].
 
 ## v9
 
@@ -47,11 +47,11 @@ Now there on the mountainside was a great herd of hogs feeding.
 
 ## v12
 
-And they entreated Him, saying, Send us to the hogs, so that we may enter into them.
+And [[Mark-05.fn#Footnote 12.1 — they|they]] entreated Him, saying, Send us to the hogs, so that we may enter into them.
 
 ## v13
 
-And He gave them permission. And the unclean spirits came out and entered into the hogs, and the herd, about two thousand, rushed down the steep slope into the sea, and they were drowned in the sea.
+And [[Mark-05.fn#Footnote 13.1 — He|He]] gave them permission. And the unclean spirits came out and entered into the hogs, and the herd, about two thousand, rushed down the steep slope into the sea, and they were drowned in the sea.
 
 ## v14
 
@@ -79,7 +79,7 @@ And He did not allow him, but said to him, Go to your house, to your own people,
 
 ## v20
 
-And he departed and began to proclaim in Decapolis what great things Jesus had done for him, and all marveled.
+And he departed and began to proclaim in [[Mark-05.fn#Footnote 20.1 — Decapolis|Decapolis]] what great things Jesus had done for him, and all marveled.
 
 ## v21
 
@@ -87,11 +87,11 @@ And when Jesus had crossed over again in the boat to the other side, a great cro
 
 ## v22
 
-And one of the rulers of the synagogue came, Jairus by name, and seeing Him, fell at His feet;
+[[Mark-05.fn#Footnote 22.1 — And|And]] one of the rulers of the synagogue came, Jairus by name, and seeing Him, fell at His feet;
 
 ## v23
 
-And he entreated Him much, saying, My little daughter is at the point of death. Please come and lay Your hands on her that she may be healed and live.
+And he entreated Him much, saying, My little daughter is at the point of death. Please come and lay Your hands on her that she may be [[Mark-05.fn#Footnote 23.1 — healed|healed]] and live.
 
 ## v24
 
@@ -99,7 +99,7 @@ And He went with him, and a great crowd followed Him and pressed upon Him.
 
 ## v25
 
-And a woman was there, who had a flow of blood for twelve years.
+And a [[Mark-05.fn#Footnote 25.1 — woman|woman]] was there, who had a flow of blood for twelve years.
 
 ## v26
 
@@ -111,7 +111,7 @@ When she heard the things concerning Jesus, she came up in the crowd behind Him 
 
 ## v28
 
-For she said, If I touch even His garments, I will be healed.
+For she said, If I touch even His garments, I will be [[Mark-05.fn#Footnote 28.1 — healed|healed]].
 
 ## v29
 
@@ -119,11 +119,11 @@ And immediately the fountain of her blood was dried up, and she knew in her body
 
 ## v30
 
-And immediately Jesus, realizing in Himself that power had gone out of Him, turned around in the crowd and said, Who touched My garments?
+And immediately Jesus, realizing in Himself that [[Mark-05.fn#Footnote 30.1 — power|power]] had gone out of Him, turned around in the crowd and said, Who touched My garments?
 
 ## v31
 
-And His disciples said to Him, You see the crowd pressing upon You and You say, Who touched Me?
+And His disciples said to Him, You see the crowd [[Mark-05.fn#Footnote 31.1 — pressing|pressing]] upon You and You say, Who touched Me?
 
 ## v32
 
@@ -131,11 +131,11 @@ And He looked around to see her who had done this.
 
 ## v33
 
-But the woman, frightened and trembling, knew what had happened to her, and she came and fell down before Him and told Him the whole truth.
+But the woman, [[Mark-05.fn#Footnote 33.1 — frightened|frightened]] and trembling, knew what had happened to her, and she came and fell down before Him and told Him the whole truth.
 
 ## v34
 
-And He said to her, Daughter, your faith has healed you. Go in peace and be well from your affliction.
+And He said to her, [[Mark-05.fn#Footnote 34.1 — Daughter|Daughter]], your faith has [[Mark-05.fn#Footnote 34.2 — healed|healed]] you. Go [[Mark-05.fn#Footnote 34.3 — in|in]] peace and be [[Mark-05.fn#Footnote 34.4 — well|well]] from your affliction.
 
 ## v35
 
@@ -143,7 +143,7 @@ While He was still speaking, some came from the house of the ruler of the synago
 
 ## v36
 
-But Jesus, overhearing the word spoken, said to the ruler of the synagogue, Do not be afraid — only believe.
+But Jesus, [[Mark-05.fn#Footnote 36.1 — overhearing|overhearing]] the word spoken, said to the ruler of the synagogue, Do not be afraid — only believe.
 
 ## v37
 
@@ -163,7 +163,7 @@ And they laughed scornfully at Him. But He, putting them all out, took the fathe
 
 ## v41
 
-And He took hold of the child’s hand and said to her, Talitha koum! which being interpreted is, Little girl, to you I say, Arise!
+And He took hold of the child’s hand and said to her, [[Mark-05.fn#Footnote 41.1 — Talitha|Talitha]] koum! which being interpreted is, Little girl, to you I say, Arise!
 
 ## v42
 
@@ -171,4 +171,4 @@ And immediately the little girl rose up and walked about, for she was twelve yea
 
 ## v43
 
-And He strongly commanded them that no one should know about this, and told them to give her something to eat.
+And He strongly commanded them that [[Mark-05.fn#Footnote 43.1 — no|no]] one should know about this, and told them to give her something to eat.

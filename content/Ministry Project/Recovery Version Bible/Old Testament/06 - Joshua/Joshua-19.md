@@ -180,11 +180,11 @@ And Jehud and Bene-berak and Gath-rimmon
 
 ## v46
 
-And Me-jarkon and Rakkon with the border opposite Japho.
+And Me-jarkon and Rakkon with the border opposite [[Joshua-19.fn#Footnote 46.1 — Japho|Japho]].
 
 ## v47
 
-When the territory of the children of Dan was lost to them, the children of Dan went up and fought against Leshem; and they took it and struck it with the edge of the sword; and they took possession of it and inhabited it; and they called Leshem Dan, according to the name of Dan their father.
+When the territory of the children of Dan was lost to them, the children of Dan went up and fought against [[Joshua-19.fn#Footnote 47.1 — Leshem|Leshem]]; and they took it and struck it with the edge of the sword; and they took possession of it and inhabited it; and they called Leshem Dan, according to the name of Dan their father.
 
 ## v48
 

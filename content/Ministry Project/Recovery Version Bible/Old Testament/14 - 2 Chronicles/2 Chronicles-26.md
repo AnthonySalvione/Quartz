@@ -1,6 +1,6 @@
 ## v1
 
-And all the people of Judah took Uzziah, who was sixteen years old, and made him king in the place of his father Amaziah.
+And all the people of Judah took [[2 Chronicles-26.fn#Footnote 1.1 — Uzziah|Uzziah]], who was sixteen years old, and made him king in the place of his father Amaziah.
 
 ## v2
 
@@ -64,7 +64,7 @@ But when he had become strong, his heart became uplifted, to his own destruction
 
 ## v17
 
-And Azariah the priest went in after him, and with Azariah were eighty priests of Jehovah who were valiant men.
+And Azariah the priest went in after him, and with [[2 Chronicles-26.fn#Footnote 17.1 — Azariah|Azariah]] were eighty priests of Jehovah who were valiant men.
 
 ## v18
 

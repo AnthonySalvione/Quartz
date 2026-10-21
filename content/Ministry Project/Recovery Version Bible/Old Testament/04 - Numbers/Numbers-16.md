@@ -4,11 +4,11 @@ Now Korah the son of Izhar, the son of Kohath, the son of Levi, with Dathan and 
 
 ## v2
 
-And rose up before Moses, with certain of the children of Israel, two hundred fifty leaders of the assembly, who were summoned to the meeting, well-known men.
+And rose up before Moses, with certain of the children of Israel, [[Numbers-16.fn#Footnote 2.1 — two|two]] hundred fifty leaders of the assembly, who were summoned to the meeting, well-known men.
 
 ## v3
 
-And they assembled themselves together against Moses and against Aaron, and said to them, You take too much upon yourselves, for all the assembly are holy, every one of them, and Jehovah is among them. Why then do you exalt yourselves above the congregation of Jehovah?
+And they assembled themselves together against Moses and against Aaron, and said to them, You take too much upon yourselves, for all the assembly are holy, every one of them, and Jehovah is among them. Why then do you [[Numbers-16.fn#Footnote 3.1 — exalt|exalt]] yourselves above the congregation of Jehovah?
 
 ## v4
 
@@ -16,11 +16,11 @@ And when Moses heard this, he fell on his face.
 
 ## v5
 
-And he spoke to Korah and to all his company, saying, In the morning Jehovah will make known who is His and who is holy, and will bring him near to Himself; even the one whom He will choose He will bring near to Himself.
+And he spoke to Korah and to all his company, saying, [[Numbers-16.fn#Footnote 5.1 — In|In]] the morning Jehovah will make known who is His and who is holy, and will bring him near to Himself; even the one whom He will choose He will bring near to Himself.
 
 ## v6
 
-Do this: Take censers for yourselves, Korah and all your company,
+Do this: Take censers for yourselves, Korah and all [[Numbers-16.fn#Footnote 6.1 — your|your]] company,
 
 ## v7
 
@@ -52,7 +52,7 @@ Is it not enough that you have brought us up out of a land flowing with milk and
 
 ## v14
 
-Indeed, you have not brought us into a land flowing with milk and honey, nor have you given us an inheritance of fields and vineyards. Will you put out the eyes of these men? We will not come up!
+Indeed, you have not brought us into a land flowing with milk and honey, nor have you given us an inheritance of fields and vineyards. [[Numbers-16.fn#Footnote 14.1 — Will|Will]] you put out the eyes of these men? We will not come up!
 
 ## v15
 
@@ -84,7 +84,7 @@ Separate yourselves from among this assembly, so that I may consume them in a mo
 
 ## v22
 
-But they fell on their faces and said, O God, the God of the spirits of all flesh, will one man sin and You be angry with the whole assembly?
+But they fell on their faces and said, O God, the God of the [[Numbers-16.fn#Footnote 22.1 — spirits|spirits]] of all flesh, will one man sin and You be angry with the whole assembly?
 
 ## v23
 
@@ -116,7 +116,7 @@ If these people die as all human beings die, or if what befalls all human beings
 
 ## v30
 
-But if Jehovah brings about a new thing, and the ground opens its mouth and swallows them up with all that belongs to them, and they descend alive into Sheol, then you will understand that these men have despised Jehovah.
+But if Jehovah brings about a new thing, and the ground opens its mouth and swallows them up with all that belongs to them, and they descend alive into [[Numbers-16.fn#Footnote 30.1 — Sheol|Sheol]], then you will understand that these men have despised Jehovah.
 
 ## v31
 
@@ -128,7 +128,7 @@ So the earth opened its mouth and swallowed them up, along with their households
 
 ## v33
 
-So they and all that belonged to them descended alive into Sheol; and the earth closed over them, and they perished from the midst of the congregation.
+So they and all that belonged to them [[Numbers-16.fn#Footnote 33.1 — descended|descended]] alive into Sheol; and the earth closed over them, and they perished from the midst of the congregation.
 
 ## v34
 
@@ -136,7 +136,7 @@ And all Israel who were around them fled at their outcry, for they said, The ear
 
 ## v35
 
-And fire came forth from Jehovah and consumed the two hundred fifty men who presented the incense.
+And fire came forth from Jehovah and [[Numbers-16.fn#Footnote 35.1 — consumed|consumed]] the two hundred fifty men who presented the incense.
 
 ## v36
 
@@ -148,7 +148,7 @@ Tell Eleazar the son of Aaron the priest to take the censers up out of the burni
 
 ## v38
 
-The censers of those who have sinned against their own lives, let them be made into beaten plates for a covering of the altar, for they presented them before Jehovah and they became holy. So they shall be a sign to the children of Israel.
+The censers of those who have sinned against their own lives, let them be made into beaten plates for a covering of the [[Numbers-16.fn#Footnote 38.1 — altar|altar]], for they presented them before Jehovah and they became holy. So they shall be a sign to the children of Israel.
 
 ## v39
 
@@ -160,7 +160,7 @@ As a reminder to the children of Israel that no stranger who is not of the seed 
 
 ## v41
 
-But on the next day the whole assembly of the children of Israel murmured against Moses and against Aaron, saying, You have caused the people of Jehovah to die.
+But on the next day the whole assembly of the children of Israel [[Numbers-16.fn#Footnote 41.1 — murmured|murmured]] against Moses and against Aaron, saying, You have caused the people of Jehovah to die.
 
 ## v42
 
@@ -180,7 +180,7 @@ Get away from the midst of this assembly that I might consume them in a moment. 
 
 ## v46
 
-And Moses said to Aaron, Take the censer and put fire in it from the altar, and lay incense on it, and carry it quickly to the assembly, and make expiation for them. For wrath has gone forth from Jehovah; the plague has begun.
+And Moses said to Aaron, Take the censer and put fire in it from the altar, and lay incense on it, and carry it quickly to the assembly, and make [[Numbers-16.fn#Footnote 46.1 — expiation|expiation]] for them. For wrath has gone forth from Jehovah; the plague has begun.
 
 ## v47
 

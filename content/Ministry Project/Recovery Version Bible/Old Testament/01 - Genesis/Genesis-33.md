@@ -12,7 +12,7 @@ And he himself passed on before them and bowed down to the ground seven times un
 
 ## v4
 
-And Esau ran to meet him and embraced him and fell on his neck and kissed him, and they wept.
+And Esau ran to meet him and embraced him and fell on his neck and [[Genesis-33.fn#Footnote 4.1 — kissed|kissed]] him, and they wept.
 
 ## v5
 
@@ -28,7 +28,7 @@ And Leah also came near with her children, and they bowed down; and afterward Jo
 
 ## v8
 
-And Esau said, What do you mean by all this camp which I met? And he said, To find favor in the sight of my lord.
+And [[Genesis-33.fn#Footnote 8.1 — Esau|Esau]] said, What do you mean by all this camp which I met? And he said, To find favor in the sight of my lord.
 
 ## v9
 
@@ -44,7 +44,7 @@ Please take my blessing which has been brought to you, because God has dealt gra
 
 ## v12
 
-Then Esau said, Let us take our journey and go, and I will go before you.
+Then [[Genesis-33.fn#Footnote 12.1 — Esau|Esau]] said, Let us take our journey and go, and I will go before you.
 
 ## v13
 
@@ -64,11 +64,11 @@ So Esau returned that day on his way to Seir.
 
 ## v17
 
-And Jacob journeyed to Succoth and built a house for himself and made booths for his livestock; therefore the name of the place is called Succoth.
+And Jacob journeyed to Succoth and [[Genesis-33.fn#Footnote 17.1 — built|built]] a house for himself and made booths for his livestock; therefore the name of the place is called [[Genesis-33.fn#Footnote 17.2 — Succoth|Succoth]].
 
 ## v18
 
-And Jacob came safely to the city of Shechem, which is in the land of Canaan, when he came from Paddan-aram; and he camped before the city.
+And Jacob came [[Genesis-33.fn#Footnote 18.1 — safely|safely]] to the city of [[Genesis-33.fn#Footnote 18.2 — Shechem|Shechem]], which is in the land of Canaan, when he came from Paddan-aram; and he camped before the city.
 
 ## v19
 
@@ -76,4 +76,4 @@ And he bought the piece of land, where he had pitched his tent, from the hand of
 
 ## v20
 
-And there he erected an altar and called it El-Elohe-Israel.
+And there he erected an [[Genesis-33.fn#Footnote 20.1 — altar|altar]] and called it [[Genesis-33.fn#Footnote 20.2 — ElEloheIsrael|El-Elohe-Israel]].

@@ -44,7 +44,7 @@ And the acts of Asa, the first and the last, are there written in the book of th
 
 ## v12
 
-And in the thirty-ninth year of his reign, Asa became diseased in his feet; his disease was very severe, yet even in his disease he pursued not Jehovah but the physicians.
+And in the thirty-ninth year of his reign, Asa became [[2 Chronicles-16.fn#Footnote 12.1 — diseased|diseased]] in his feet; his disease was very severe, yet even in his disease he pursued not Jehovah but the physicians.
 
 ## v13
 

@@ -12,7 +12,7 @@ You have not forsaken your brothers these many days unto this day, but have kept
 
 ## v4
 
-And now Jehovah your God has given your brothers rest as He promised them. And now turn and go to your tents, to the land of your possession, which Moses the servant of Jehovah gave you across the Jordan.
+And now Jehovah your God has given your brothers rest as He promised them. And now [[Joshua-22.fn#Footnote 4.1 — turn|turn]] and go to your tents, to the land of your possession, which Moses the servant of Jehovah gave you across the Jordan.
 
 ## v5
 
@@ -36,7 +36,7 @@ So the children of Reuben and the children of Gad and the half-tribe of Manasseh
 
 ## v10
 
-And when they came into the region of the Jordan that is in the land of Canaan, the children of Reuben and the children of Gad and the half-tribe of Manasseh built an altar there at the Jordan, an altar great in appearance.
+And when they came into the region of the Jordan that is in the land of Canaan, the children of Reuben and the children of Gad and the half-tribe of Manasseh built an [[Joshua-22.fn#Footnote 10.1 — altar|altar]] there at the Jordan, an altar great in appearance.
 
 ## v11
 

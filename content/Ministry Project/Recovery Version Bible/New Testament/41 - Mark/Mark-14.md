@@ -3,7 +3,7 @@ Author: Mark
 ---
 ## v1
 
-Now the Passover and the Feast of Unleavened Bread were two days away. And the chief priests and the scribes were seeking a way to seize Him by craftiness and kill Him,
+[[Mark-14.fn#Footnote 1.1 — Now|Now]] the Passover and the Feast of Unleavened Bread were two days away. And the chief priests and the scribes were seeking a way to seize Him by craftiness and kill Him,
 
 ## v2
 
@@ -11,15 +11,15 @@ For they said, Not at the feast, lest there be a tumult by the people.
 
 ## v3
 
-And while He was in Bethany in the house of Simon the leper, as He reclined at table, a woman came, having an alabaster flask of ointment, of very costly pure nard, and she broke the alabaster flask and poured it over His head.
+[[Mark-14.fn#Footnote 3.1 — And|And]] while He was in Bethany in the house of Simon the leper, as He reclined at table, a woman came, having an alabaster flask of ointment, of very costly pure nard, and she broke the alabaster flask and poured it over His head.
 
 ## v4
 
-But there were some who were indignantly commenting among themselves: Why has this waste of the ointment been made?
+But there were some who were indignantly commenting among themselves: Why has this waste of the ointment [[Mark-14.fn#Footnote 4.1 — been|been]] made?
 
 ## v5
 
-For this ointment could have been sold for over three hundred denarii and given to the poor. And they were infuriated with her.
+For this ointment could have been sold for over three hundred [[Mark-14.fn#Footnote 5.1 — denarii|denarii]] and given to the poor. And they were infuriated with her.
 
 ## v6
 
@@ -27,15 +27,15 @@ But Jesus said, Leave her alone. Why do you trouble her? She has done a noble de
 
 ## v7
 
-For you always have the poor with you, and whenever you want, you can do good for them. But you do not always have Me.
+For you always have the poor with you, and whenever you want, you can do good for them. But you do not always have [[Mark-14.fn#Footnote 7.1 — Me|Me]].
 
 ## v8
 
-She has done what she could; she has anointed My body beforehand for the burial.
+[[Mark-14.fn#Footnote 8.1 — She|She]] has done what she could; she has [[Mark-14.fn#Footnote 8.2 — anointed|anointed]] My body beforehand for the burial.
 
 ## v9
 
-And truly I say to you, Wherever the gospel is proclaimed in the whole world, what this woman has done shall also be told as a memorial of her.
+And truly I say to you, Wherever the gospel is [[Mark-14.fn#Footnote 9.1 — proclaimed|proclaimed]] in the whole world, what this woman has done shall also be told as a memorial of her.
 
 ## v10
 
@@ -43,11 +43,11 @@ And Judas Iscariot, one of the twelve, went off to the chief priests to deliver 
 
 ## v11
 
-And when they heard this, they rejoiced and promised to give him money. And he sought a way to deliver Him up opportunely.
+And when they heard this, they rejoiced and promised to give him [[Mark-14.fn#Footnote 11.1 — money|money]]. And he sought a way to [[Mark-14.fn#Footnote 11.2 — deliver|deliver]] Him up opportunely.
 
 ## v12
 
-And on the first day of the Feast of Unleavened Bread, when they sacrificed the passover, His disciples said to Him, Where do You want us to go and prepare so that You may eat the passover?
+And on the first day of the [[Mark-14.fn#Footnote 12.1 — Feast|Feast]] of Unleavened Bread, when they [[Mark-14.fn#Footnote 12.2 — sacrificed|sacrificed]] the passover, His disciples said to Him, Where do You want us to go and prepare so that You may eat the passover?
 
 ## v13
 
@@ -55,7 +55,7 @@ And He sent two of His disciples and said to them, Go into the city, and a man c
 
 ## v14
 
-And wherever he enters, say to the master of the house, The Teacher says, Where is My guest room, where I may eat the passover with My disciples?
+And wherever he enters, say to the [[Mark-14.fn#Footnote 14.1 — master|master]] of the house, The Teacher says, Where is My guest room, where I may eat the passover with My disciples?
 
 ## v15
 
@@ -71,23 +71,23 @@ And when evening fell, He came with the twelve.
 
 ## v18
 
-And as they were reclining at table and eating, Jesus said, Truly I say to you that one of you will betray Me, one who is eating with Me.
+And as they were reclining at table and [[Mark-14.fn#Footnote 18.1 — eating|eating]], Jesus said, Truly I say to you that [[Mark-14.fn#Footnote 18.2 — one|one]] of you will betray Me, one who is eating with Me.
 
 ## v19
 
-They began to be grieved and to say to Him one by one, Surely not I?
+They began to be grieved and to say to Him one by one, Surely not [[Mark-14.fn#Footnote 19.1 — I|I]]?
 
 ## v20
 
-And He said to them, It will be one of the twelve, one who dips with Me in the dish.
+And He said to them, It will be one of the twelve, [[Mark-14.fn#Footnote 20.1 — one|one]] who dips with Me in the dish.
 
 ## v21
 
-For the Son of Man is going away, even as it is written concerning Him, but woe to that man through whom the Son of Man is betrayed! It would have been good for that man if he had not been born.
+For the Son of Man is [[Mark-14.fn#Footnote 21.1 — going|going]] away, even as it is written concerning Him, but woe to that man through whom the Son of Man is betrayed! It would have been good for that man if he had not been born.
 
 ## v22
 
-And as they were eating, He took bread and blessed it, and He broke it and gave it to them, and said, Take; this is My body.
+[[Mark-14.fn#Footnote 22.1 — And|And]] as they were [[Mark-14.fn#Footnote 22.2 — eating|eating]], He took bread and blessed it, and He broke it and gave it to them, and said, Take; this is My body.
 
 ## v23
 
@@ -95,11 +95,11 @@ And He took a cup and gave thanks, and He gave it to them; and they all drank of
 
 ## v24
 
-And He said to them, This is My blood of the covenant, which is being poured out for many.
+And He said to them, This is My blood of the [[Mark-14.fn#Footnote 24.1 — covenant|covenant]], which is being poured out for many.
 
 ## v25
 
-Truly I say to you, I shall by no means drink of the product of the vine anymore until that day when I drink it new in the kingdom of God.
+Truly I say to you, I shall by no means drink of the [[Mark-14.fn#Footnote 25.1 — product|product]] of the vine anymore until that day when I drink it new in the kingdom of God.
 
 ## v26
 
@@ -107,7 +107,7 @@ And after singing a hymn, they went out to the Mount of Olives.
 
 ## v27
 
-And Jesus said to them, You will all be stumbled, because it is written, “I will smite the Shepherd, and the sheep will be scattered.”
+And Jesus said to them, You will all be [[Mark-14.fn#Footnote 27.1 — stumbled|stumbled]], because it is written, “I will smite the Shepherd, and the sheep will be scattered.”
 
 ## v28
 
@@ -119,7 +119,7 @@ But Peter said to Him, Even if all will be stumbled, yet I will not!
 
 ## v30
 
-And Jesus said to him, Truly I say to you that today in this night, before a rooster crows twice, you will deny Me three times.
+And Jesus said to him, Truly I say to you that today in this night, before a rooster crows twice, you will [[Mark-14.fn#Footnote 30.1 — deny|deny]] Me three times.
 
 ## v31
 
@@ -127,11 +127,11 @@ But he went on speaking more intensely, Even if I must die with You, I will by n
 
 ## v32
 
-And they came to a place named Gethsemane, and He said to His disciples, Sit here while I pray.
+[[Mark-14.fn#Footnote 32.1 — And|And]] they came to a place named Gethsemane, and He said to His disciples, Sit here while I pray.
 
 ## v33
 
-And He took Peter and James and John with Him and began to be awestruck and deeply distressed.
+And He took Peter and James and John with Him and began to be [[Mark-14.fn#Footnote 33.1 — awestruck|awestruck]] and deeply distressed.
 
 ## v34
 
@@ -139,11 +139,11 @@ And He said to them, My soul is exceedingly sorrowful, even to death. Remain her
 
 ## v35
 
-And going forward a little, He fell on the ground and prayed that, if it were possible, the hour would pass from Him.
+And going forward a little, He fell on the ground and prayed that, if it were possible, the [[Mark-14.fn#Footnote 35.1 — hour|hour]] would pass from Him.
 
 ## v36
 
-And He said, Abba Father, all things are possible to You; remove this cup from Me; yet not what I will, but what You will.
+And He said, Abba Father, all things are possible to [[Mark-14.fn#Footnote 36.1 — You|You]]; remove this cup from Me; yet not what I will, but what You will.
 
 ## v37
 
@@ -187,7 +187,7 @@ And they laid hands on Him and seized Him.
 
 ## v47
 
-But a certain one of those standing by drew his sword and struck the slave of the high priest, and took off his ear.
+But a certain [[Mark-14.fn#Footnote 47.1 — one|one]] of those standing by drew his sword and struck the slave of the high priest, and took off his ear.
 
 ## v48
 
@@ -195,7 +195,7 @@ And Jesus answered and said to them, Have you come out as against a robber with 
 
 ## v49
 
-Day after day I was with you in the temple teaching and you did not seize Me. But may the Scriptures be fulfilled.
+Day after day I was with you in the [[Mark-14.fn#Footnote 49.1 — temple|temple]] [[Mark-14.fn#Footnote 49.2 — teaching|teaching]] and you did not seize Me. But may the Scriptures be fulfilled.
 
 ## v50
 
@@ -211,7 +211,7 @@ But he left the linen cloth behind and fled naked.
 
 ## v53
 
-And they led Jesus away to the high priest, and all the chief priests and the elders and the scribes came together.
+[[Mark-14.fn#Footnote 53.1 — And|And]] they [[Mark-14.fn#Footnote 53.2 — led|led]] Jesus away to the high priest, and all the chief priests and the elders and the scribes came together.
 
 ## v54
 
@@ -219,7 +219,7 @@ And Peter followed Him at a distance until he was within the courtyard of the hi
 
 ## v55
 
-Now the chief priests and the whole Sanhedrin were seeking testimony against Jesus in order to put Him to death, and they could not find it.
+Now the chief priests and the whole [[Mark-14.fn#Footnote 55.1 — Sanhedrin|Sanhedrin]] were seeking testimony against Jesus in order to put Him to death, and they could not find it.
 
 ## v56
 
@@ -231,7 +231,7 @@ And some stood up and testified falsely against Him, saying,
 
 ## v58
 
-We heard Him say, I will destroy this temple made with hands, and in three days I will build another made without hands.
+We heard Him say, I will destroy this temple made with hands, and [[Mark-14.fn#Footnote 58.1 — in|in]] three days I will build another made without hands.
 
 ## v59
 
@@ -243,27 +243,27 @@ And the high priest stood up in the midst and questioned Jesus, saying, Do You n
 
 ## v61
 
-But He was silent and did not answer anything. Again the high priest questioned Him and said to Him, Are You the Christ, the Son of the Blessed?
+But He was silent and did not answer anything. Again the high priest questioned Him and said to Him, Are You the Christ, the Son of the [[Mark-14.fn#Footnote 61.1 — Blessed|Blessed]]?
 
 ## v62
 
-And Jesus said, I am. And you shall see the Son of Man sitting at the right hand of Power and coming with the clouds of heaven.
+And Jesus said, [[Mark-14.fn#Footnote 62.1 — I|I]] am. And you shall see the Son of Man sitting at the right hand of Power and coming with the clouds of heaven.
 
 ## v63
 
-And the high priest, tearing his garments, said, What further need do we have of witnesses?
+And the high priest, tearing his [[Mark-14.fn#Footnote 63.1 — garments|garments]], said, What further need do we have of witnesses?
 
 ## v64
 
-You heard the blasphemy! How does it appear to you? And they all condemned Him as being worthy of death.
+You heard the [[Mark-14.fn#Footnote 64.1 — blasphemy|blasphemy]]! How does it appear to you? And they all condemned Him as being worthy of death.
 
 ## v65
 
-And some began to spit at Him and to blindfold His face and to beat Him with their fists and to say to Him, Prophesy! And the attendants, slapping Him about, took Him.
+And some began to [[Mark-14.fn#Footnote 65.1 — spit|spit]] at Him and to blindfold His face and to beat Him with their fists and to say to Him, [[Mark-14.fn#Footnote 65.2 — Prophesy|Prophesy]]! And the attendants, [[Mark-14.fn#Footnote 65.3 — slapping|slapping]] Him about, took Him.
 
 ## v66
 
-And while Peter was below in the courtyard, one of the servant girls of the high priest came,
+[[Mark-14.fn#Footnote 66.1 — And|And]] while Peter was below in the courtyard, one of the servant girls of the high priest came,
 
 ## v67
 
@@ -279,11 +279,11 @@ And the servant girl, seeing him, began again to say to those standing by, This 
 
 ## v70
 
-But again he denied it. And after a little while, those standing by again said to Peter, Surely you are one of them, for you are a Galilean as well.
+But again he denied it. And after a little while, those standing by again said to Peter, Surely you are one of them, for you are a Galilean as [[Mark-14.fn#Footnote 70.1 — well|well]].
 
 ## v71
 
-But he began to curse and to swear, I do not know this man of whom you speak!
+But he began to [[Mark-14.fn#Footnote 71.1 — curse|curse]] and to swear, I do not know this man of whom you speak!
 
 ## v72
 

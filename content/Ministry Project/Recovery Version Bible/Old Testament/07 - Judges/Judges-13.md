@@ -8,7 +8,7 @@ And there was a certain man from Zorah, of the family of the Danites, whose name
 
 ## v3
 
-And the Angel of Jehovah appeared to the woman and said to her, Now you are barren and have borne no children; but you will conceive and bear a son.
+And the [[Judges-13.fn#Footnote 3.1 — Angel|Angel]] of Jehovah [[Judges-13.fn#Footnote 3.2 — appeared|appeared]] to the woman and said to her, Now you are barren and have borne no children; but you will conceive and bear a son.
 
 ## v4
 
@@ -16,11 +16,11 @@ And now be careful not to drink wine or strong drink nor to eat anything unclean
 
 ## v5
 
-For you shall conceive and bear a son. And no razor shall come upon his head, for the boy will be a Nazarite to God from the womb; and he will begin to save Israel from the hand of the Philistines.
+For you shall conceive and bear a son. And no razor shall come upon his head, for the boy will be a [[Judges-13.fn#Footnote 5.1 — Nazarite|Nazarite]] to God from the womb; and he will begin to save Israel from the hand of the Philistines.
 
 ## v6
 
-Then the woman came and told her husband, saying, A man of God came to me; and His appearance was like the appearance of an angel of God, very awesome. And I did not ask Him where He was from, nor did He tell me His name;
+Then the woman came and told her husband, saying, A [[Judges-13.fn#Footnote 6.1 — man|man]] of God came to me; and His appearance was like the appearance of an angel of God, very awesome. And I did not ask Him where He was from, nor did He tell me His name;
 
 ## v7
 
@@ -68,7 +68,7 @@ Then Manoah said to the Angel of Jehovah, What is Your name, so that when Your w
 
 ## v18
 
-And the Angel of Jehovah said to him, Why do you ask about My name, since it is wonderful?
+And the Angel of Jehovah said to him, Why do you ask about My name, since it is [[Judges-13.fn#Footnote 18.1 — wonderful|wonderful]]?
 
 ## v19
 
@@ -96,4 +96,4 @@ And the woman bore a son, and she called his name Samson. And the boy grew up, a
 
 ## v25
 
-And the Spirit of Jehovah began to move him at Mahaneh-dan, between Zorah and Eshtaol.
+And the Spirit of Jehovah began to move him at [[Judges-13.fn#Footnote 25.1 — Mahaneh-dan|Mahaneh-dan]], between Zorah and Eshtaol.

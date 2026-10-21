@@ -96,7 +96,7 @@ For Haman the son of Hammedatha the Agagite, the enemy of all the Jews, had plot
 
 ## v25
 
-But when Esther came before the king, he commanded by letter that his wicked plot, which he had plotted against the Jews, should return upon his own head and that he and his sons should be hanged on the gallows.
+But when [[Esther-09.fn#Footnote 25.1 — Esther|Esther]] came before the king, he commanded by letter that his wicked plot, which he had plotted against the Jews, should return upon his own head and that he and his sons should be hanged on the gallows.
 
 ## v26
 

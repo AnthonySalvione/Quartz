@@ -1,6 +1,6 @@
 ## v1
 
-Then after this the children of Moab and the children of Ammon and with them some of the Meunim came against Jehoshaphat for battle.
+Then after this the children of Moab and the children of Ammon and with them some of the [[2 Chronicles-20.fn#Footnote 1.1 — Meunim|Meunim]] came against Jehoshaphat for battle.
 
 ## v2
 
@@ -100,7 +100,7 @@ And when Jehoshaphat and his people came to take the spoil of them as plunder, t
 
 ## v26
 
-And on the fourth day they assembled themselves in the valley of Beracah (for there they blessed Jehovah; therefore they have called the name of that place the valley of Beracah to this day).
+And on the fourth day they assembled themselves in the valley of [[2 Chronicles-20.fn#Footnote 26.1 — Beracah|Beracah]] (for there they blessed Jehovah; therefore they have called the name of that place the valley of Beracah to this day).
 
 ## v27
 
@@ -144,4 +144,4 @@ And he joined himself with him to make ships to go to Tarshish, and they made th
 
 ## v37
 
-Then Eliezer the son of Dodavahu from Mareshah prophesied against Jehoshaphat, saying, Because you have joined yourself with Ahaziah, Jehovah has destroyed your works. And the ships were shattered and were unable to go to Tarshish.
+Then Eliezer the son of Dodavahu from Mareshah prophesied against Jehoshaphat, saying, [[2 Chronicles-20.fn#Footnote 37.1 — Because|Because]] you have joined yourself with Ahaziah, Jehovah has destroyed your works. And the ships were shattered and were unable to go to Tarshish.

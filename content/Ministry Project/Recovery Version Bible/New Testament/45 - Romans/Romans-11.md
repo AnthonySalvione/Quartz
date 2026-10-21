@@ -3,7 +3,7 @@ Author: Paul
 ---
 ## v1
 
-I say then, Has God cast away His people? Absolutely not! For I also am an Israelite, out of the seed of Abraham, of the tribe of Benjamin.
+I say then, Has God cast away His people? Absolutely not! For [[Romans-11.fn#Footnote 1.1 — I|I]] also am an Israelite, out of the seed of Abraham, of the tribe of Benjamin.
 
 ## v2
 
@@ -11,11 +11,11 @@ God has not cast away His people whom He foreknew. Or do you not know what the S
 
 ## v3
 
-“Lord, they have killed Your prophets, they have torn down Your altars; and I am left alone, and they are seeking my life.”
+“Lord, they have killed Your prophets, they have torn down Your altars; and I am left alone, and they are seeking my [[Romans-11.fn#Footnote 3.1 — life|life]].”
 
 ## v4
 
-But what does the divine answer say to him? “I have reserved for Myself seven thousand men who have not bowed the knee to Baal.”
+But what does the divine answer say to him? “I have reserved for Myself seven thousand men who have not bowed the knee to [[Romans-11.fn#Footnote 4.1 — Baal|Baal]].”
 
 ## v5
 
@@ -43,7 +43,7 @@ Let their eyes be darkened so that they cannot see; and bend their back continua
 
 ## v11
 
-I say then, Have they stumbled so as to fall? Absolutely not! But by their misstep salvation has come to the Gentiles, to provoke them to jealousy.
+I say then, Have they [[Romans-11.fn#Footnote 11.1 — stumbled|stumbled]] so as to fall? Absolutely not! But by their misstep salvation has come to the Gentiles, to provoke them to jealousy.
 
 ## v12
 
@@ -63,11 +63,11 @@ For if their being cast aside is the reconciliation of the world, what will thei
 
 ## v16
 
-Now if the dough offered as the firstfruits is holy, the lump is also; and if the root is holy, the branches are also.
+Now if the dough offered as the [[Romans-11.fn#Footnote 16.1 — firstfruits|firstfruits]] is holy, the lump is also; and if the root is holy, the branches are also.
 
 ## v17
 
-But if some of the branches were broken off, and you, being a wild olive tree, were grafted in among them and became a fellow partaker of the root of fatness of the olive tree,
+But if some of the branches were broken off, and you, being a wild olive tree, were [[Romans-11.fn#Footnote 17.1 — grafted|grafted]] in among them and became a fellow partaker of the root of fatness of the [[Romans-11.fn#Footnote 17.2 — olive|olive]] tree,
 
 ## v18
 
@@ -91,7 +91,7 @@ Behold then the kindness and severity of God: on those who fell, severity; but o
 
 ## v23
 
-And they also, if they do not continue in unbelief, will be grafted in, for God is able to graft them in again.
+And they also, if they do not continue in unbelief, will be grafted in, for God is able [[Romans-11.fn#Footnote 23.1 — to|to]] graft them in again.
 
 ## v24
 
@@ -99,7 +99,7 @@ For if you were cut off from what is by nature a wild olive tree and were grafte
 
 ## v25
 
-For I do not want you, brothers, to be ignorant of this mystery (lest you be wise in yourselves), that hardness has come upon Israel in part, until the fullness of the Gentiles comes in;
+For I do not want you, brothers, to be ignorant of this mystery (lest you be wise in yourselves), that hardness has come upon Israel in part, until the fullness of the [[Romans-11.fn#Footnote 25.1 — Gentiles|Gentiles]] comes in;
 
 ## v26
 
@@ -111,7 +111,7 @@ And this is the covenant from Me with them, when I take away their sins.”
 
 ## v28
 
-According to the gospel they are enemies for your sake, but according to the selection they are beloved for the fathers’ sake.
+According to the gospel they are enemies [[Romans-11.fn#Footnote 28.1 — for|for]] your sake, but according to the selection they are beloved [[Romans-11.fn#Footnote 28.1 — for|for]] the fathers’ sake.
 
 ## v29
 
@@ -127,11 +127,11 @@ So these also now have disobeyed, so that because of the mercy shown to you they
 
 ## v32
 
-For God has shut up all in disobedience that He might show mercy to all.
+For God has shut up all in disobedience that He might [[Romans-11.fn#Footnote 32.1 — show|show]] mercy to all.
 
 ## v33
 
-Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are His judgments and untraceable His ways!
+[[Romans-11.fn#Footnote 33.1 — Oh|Oh]], the depth of the riches and [[Romans-11.fn#Footnote 33.2 — wisdom|wisdom]] and knowledge of God! How unsearchable are His judgments and untraceable His ways!
 
 ## v34
 

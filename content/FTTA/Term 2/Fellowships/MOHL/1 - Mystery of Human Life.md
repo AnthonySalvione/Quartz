@@ -1,3 +1,11 @@
+---
+speaker:
+  - Paul Deng
+reading: First Key
+class: Mystery of Human Life
+---
+
+
 During the mid-80s brother lee wanted andrew yu to come up with the best part of the ministry - the content of the high gospel, the content of God's Economy. So, brother Andrew Yu looked through THOUSANDS OF OUTLINES, eventually MOHL was born. I remember being a college student at that time and we didnt have this booklet so easy to carry. We had a folder that we flipped through page by page to show college students. It was 1987 - 37000 were baptized in taiwan, because of thsi booklet. Not only so, it was translated into more than 20 languages.
 
 two weeks ago I was in Milan Italy, and one time I stopped 4 high-school age boys - iasked them - what do you think? What is the point of hyman life? Why is man living on the earth? they said - i dont know... im athiest. It's okay, I just began to share. 10 minutes later they all called on the Lord's name with me. So, you dont need to convince people there is god necesarily... you just need to exercise your spirit to speak the word of the truth. When the word of truth is spoken by someone exercising their spirit, the word shines. So many people have never heard that they have a human spirit. That is why they couldn't be satisfied.

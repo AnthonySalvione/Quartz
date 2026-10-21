@@ -4,7 +4,7 @@ In the twenty-third year of Joash the son of Ahaziah, the king of Judah, Jehoaha
 
 ## v2
 
-And he did what was evil in the sight of Jehovah and followed after the sins of Jeroboam the son of Nebat by which he caused Israel to sin; he did not turn away from them.
+And he did what was evil in the sight of Jehovah and followed after the sins of Jeroboam the son of Nebat [[2 Kings-13.fn#Footnote 2.1 — by|by]] which he caused Israel to sin; he did not turn away from them.
 
 ## v3
 
@@ -20,7 +20,7 @@ And Jehovah gave Israel a deliverer, and they went out from under the hand of Sy
 
 ## v6
 
-However they did not depart from the sins of the house of Jeroboam, by which he caused Israel to sin, but walked in them. And also the Asherah remained standing in Samaria.)
+However they did not depart from the sins of the house of Jeroboam, by which he caused Israel to sin, but walked in them. And also the [[2 Kings-13.fn#Footnote 6.1 — Asherah|Asherah]] remained standing in Samaria.)
 
 ## v7
 
@@ -36,7 +36,7 @@ And Jehoahaz slept with his fathers, and they buried him in Samaria. And Joash h
 
 ## v10
 
-In the thirty-seventh year of Joash the king of Judah, Jehoash the son of Jehoahaz began to reign over Israel in Samaria; he reigned sixteen years.
+In the thirty-seventh year of [[2 Kings-13.fn#Footnote 10.1 — Joash|Joash]] the king of Judah, [[2 Kings-13.fn#Footnote 10.2 — Jehoash|Jehoash]] the son of Jehoahaz began to reign over Israel in Samaria; he reigned sixteen years.
 
 ## v11
 
@@ -52,7 +52,7 @@ And Joash slept with his fathers; and Jeroboam sat upon his throne. And Joash wa
 
 ## v14
 
-Now when Elisha was ill with his illness by which he eventually died, Joash the king of Israel went down to him and wept over him and said, My father! My father! The chariots of Israel and its horsemen!
+Now when Elisha was [[2 Kings-13.fn#Footnote 14.1 — ill|ill]] with his illness by which he eventually died, Joash the king of Israel went down to him and wept over him and said, My father! My father! The chariots of Israel and its horsemen!
 
 ## v15
 
@@ -64,7 +64,7 @@ And he said to the king of Israel, Grasp the bow; and he grasped it. And Elisha 
 
 ## v17
 
-And he said, Open the window toward the east; and he opened it. And Elisha said, Shoot; and he shot. And he said, Jehovah’s arrow of victory, an arrow of victory against Syria; for you will strike Syria in Aphek until you have consumed it.
+And he said, Open the window toward the east; and he opened it. And Elisha said, Shoot; and he shot. And he said, Jehovah’s arrow of [[2 Kings-13.fn#Footnote 17.1 — victory|victory]], an arrow of victory against Syria; for you will strike Syria in Aphek until you have consumed it.
 
 ## v18
 
@@ -80,7 +80,7 @@ And Elisha died, and they buried him. Now the bands of the Moabites would invade
 
 ## v21
 
-And it so happened that as the people were burying a man, they saw a band; and they cast the man into the grave of Elisha. And as soon as the man touched the bones of Elisha, he came to life and stood up on his feet.
+And it so happened that as the people were burying a man, they saw a band; and they cast the man into the grave of Elisha. And as soon as the man [[2 Kings-13.fn#Footnote 21.1 — touched|touched]] the bones of Elisha, he came to life and stood up on his feet.
 
 ## v22
 

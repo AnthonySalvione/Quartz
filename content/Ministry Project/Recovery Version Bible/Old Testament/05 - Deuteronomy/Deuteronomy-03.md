@@ -28,7 +28,7 @@ But all the cattle and the spoil of the cities we took as our plunder.
 
 ## v8
 
-So at that time we took the land from the hand of the two kings of the Amorites who were across the Jordan, from the valley of the Arnon to Mount Hermon
+So at that time we [[Deuteronomy-03.fn#Footnote 8.1 — took|took]] the land from the hand of the two kings of the Amorites who were across the Jordan, from the valley of the Arnon to Mount Hermon
 
 ## v9
 
@@ -52,7 +52,7 @@ And the rest of Gilead and all Bashan, the kingdom of Og, I gave to the half-tri
 
 ## v14
 
-Jair the son of Manasseh took all the region of Argob as far as the border of the Geshurites and the Maacathites; and he called it, that is, Bashan, after his own name, Havvoth-jair, as it is to this day.)
+Jair the son of Manasseh took all the region of Argob as far as the border of the Geshurites and the Maacathites; and he called [[Deuteronomy-03.fn#Footnote 14.1 — it|it]], that is, Bashan, after his own name, [[Deuteronomy-03.fn#Footnote 14.2 — Havvoth-jair|Havvoth-jair]], as it is to this day.)
 
 ## v15
 
@@ -64,7 +64,7 @@ And to the Reubenites and to the Gadites I gave the region from Gilead even as f
 
 ## v17
 
-And the Arabah, with the Jordan as a border, from Chinnereth even as far as the sea of the Arabah, the Salt Sea, at the foot of the slopes of Pisgah on the east.
+And the Arabah, with the Jordan as a border, from [[Deuteronomy-03.fn#Footnote 17.1 — Chinnereth|Chinnereth]] even as far as the sea of the Arabah, the Salt Sea, at the foot of the slopes of Pisgah on the east.
 
 ## v18
 
@@ -100,11 +100,11 @@ Let me please cross over and see the good land that is across the Jordan, this f
 
 ## v26
 
-But Jehovah was infuriated with me on your account and did not listen to me. And Jehovah said to me, Enough! Speak no more to Me about this matter.
+But Jehovah was infuriated with me on your account and did not listen to me. And Jehovah said to me, [[Deuteronomy-03.fn#Footnote 26.1 — Enough|Enough]]! Speak no more to Me about this matter.
 
 ## v27
 
-Go up to the top of Pisgah; and lift up your eyes to the west and to the north and to the south and to the east; and see it with your eyes, for you shall not cross over this Jordan.
+Go up to the top of Pisgah; and lift up your eyes to the [[Deuteronomy-03.fn#Footnote 27.1 — west|west]] and to the north and to the south and to the east; and see it with your eyes, for you shall not cross over this Jordan.
 
 ## v28
 

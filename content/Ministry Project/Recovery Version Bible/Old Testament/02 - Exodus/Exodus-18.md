@@ -1,18 +1,18 @@
 ## v1
 
-Now Jethro, the priest of Midian, Moses’ father-in-law, heard of all that God had done for Moses and for Israel His people, how Jehovah had brought Israel out of Egypt.
+[[Exodus-18.fn#Footnote 1.1 — Now|Now]] [[Exodus-18.fn#Footnote 1.2 — Jethro|Jethro]], the priest of Midian, Moses’ father-in-law, heard of all that God had done for Moses and for Israel His people, how Jehovah had brought Israel out of Egypt.
 
 ## v2
 
-And Jethro, Moses’ father-in-law, had taken Moses’ wife Zipporah, after he had sent her away,
+And Jethro, Moses’ father-in-law, had taken Moses’ wife [[Exodus-18.fn#Footnote 2.1 — Zipporah|Zipporah]], after he had sent her away,
 
 ## v3
 
-And her two sons, of whom the name of one was Gershom, for Moses said, I have been a sojourner in a foreign land;
+And her two sons, of whom the name of one was [[Exodus-18.fn#Footnote 3.1 — Gershom|Gershom]], for [[Exodus-18.fn#Footnote 3.2 — Moses|Moses]] said, I have been a sojourner in a foreign land;
 
 ## v4
 
-And the name of the other was Eliezer, for he said, The God of my father was my help and delivered me from the sword of Pharaoh.
+And the name of the other was [[Exodus-18.fn#Footnote 4.1 — Eliezer|Eliezer]], for he said, The God of my father was my help and delivered me from the sword of Pharaoh.
 
 ## v5
 
@@ -40,7 +40,7 @@ And Jethro said, Blessed be Jehovah, who has delivered you from the hand of the 
 
 ## v11
 
-Now I know that Jehovah is greater than all gods, for it was demonstrated in this matter, when they dealt proudly against the people.
+Now I know that Jehovah is greater than all gods, for it was demonstrated in this matter, when they dealt proudly against the [[Exodus-18.fn#Footnote 11.1 — people|people]].
 
 ## v12
 
@@ -48,7 +48,7 @@ Then Jethro, Moses’ father-in-law, took a burnt offering and sacrifices for Go
 
 ## v13
 
-And on the following day Moses sat to judge the people, and the people stood around Moses from the morning to the evening.
+And on the following day [[Exodus-18.fn#Footnote 13.1 — Moses|Moses]] sat to judge the people, and the people stood around Moses from the morning to the evening.
 
 ## v14
 
@@ -80,7 +80,7 @@ And you shall teach them the statutes and the laws, and make known to them the w
 
 ## v21
 
-You also should look for able men among all the people who fear God, men of truth, who hate unjust gain; and place them over them, as leaders of thousands, leaders of hundreds, leaders of fifties, and leaders of tens.
+You also should look for able men among all the people who fear God, men of truth, who hate unjust gain; and place them over them, as [[Exodus-18.fn#Footnote 21.1 — leaders|leaders]] of thousands, leaders of hundreds, leaders of fifties, and leaders of tens.
 
 ## v22
 

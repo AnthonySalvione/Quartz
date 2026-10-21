@@ -3,7 +3,7 @@ Author: John
 ---
 ## v1
 
-After these things Jesus went away across the Sea of Galilee, which is the Sea of Tiberias.
+After these things Jesus went away across the [[John-06.fn#Footnote 1.1 — Sea|Sea]] of Galilee, which is the Sea of Tiberias.
 
 ## v2
 
@@ -11,11 +11,11 @@ And a great crowd followed Him, because they saw the signs which He did on those
 
 ## v3
 
-And Jesus went up to the mountain and sat there with His disciples.
+And Jesus went up to the [[John-06.fn#Footnote 3.1 — mountain|mountain]] and sat there with His disciples.
 
 ## v4
 
-Now the Passover, the feast of the Jews, was near.
+Now the [[John-06.fn#Footnote 4.1 — Passover|Passover]], the feast of the Jews, was near.
 
 ## v5
 
@@ -27,7 +27,7 @@ But this He said to test him, for He Himself knew what He was about to do.
 
 ## v7
 
-Philip answered Him, Two hundred denarii worth of bread is not sufficient for them, that each one may take a little.
+Philip answered Him, Two hundred [[John-06.fn#Footnote 7.1 — denarii|denarii]] worth of bread is not sufficient for them, that each one may take a little.
 
 ## v8
 
@@ -35,7 +35,7 @@ One of His disciples, Andrew, Simon Peter’s brother, said to Him,
 
 ## v9
 
-There is a little boy here who has five barley loaves and two fish; but what are these for so many?
+There is a little boy here who has [[John-06.fn#Footnote 9.1 — five|five]] [[John-06.fn#Footnote 9.2 — barley|barley]] loaves and [[John-06.fn#Footnote 9.1 — five|two]] [[John-06.fn#Footnote 9.2 — barley|fish]]; but what are these for so many?
 
 ## v10
 
@@ -51,7 +51,7 @@ And when they were filled, He said to His disciples, Gather the broken pieces le
 
 ## v13
 
-So they gathered them and filled twelve handbaskets with broken pieces from the five barley loaves which were left over among those who had eaten.
+So they gathered them and filled [[John-06.fn#Footnote 13.1 — twelve|twelve]] handbaskets with broken pieces from the five barley loaves which were left over among those who had eaten.
 
 ## v14
 
@@ -59,7 +59,7 @@ The people therefore, seeing the sign which He did, said, This is truly the Prop
 
 ## v15
 
-Then Jesus, knowing that they were about to come and take Him by force to make Him King, withdrew again to the mountain, Himself alone.
+Then Jesus, knowing that they were about to come and take Him by force [[John-06.fn#Footnote 15.1 — to|to]] make Him King, withdrew again to the mountain, Himself alone.
 
 ## v16
 
@@ -71,11 +71,11 @@ And they got into a boat and began crossing the sea to Capernaum. And it had alr
 
 ## v18
 
-And because a strong wind was blowing, the sea was churning.
+And because a strong wind was blowing, the [[John-06.fn#Footnote 18.1 — sea|sea]] was churning.
 
 ## v19
 
-Then, when they had rowed about twenty-five or thirty stadia, they saw Jesus walking on the sea and coming near the boat, and they became frightened.
+Then, when they had rowed about [[John-06.fn#Footnote 19.1 — twenty-five|twenty-five]] or thirty stadia, they saw [[John-06.fn#Footnote 19.2 — Jesus|Jesus]] walking on the sea and coming near the boat, and they became frightened.
 
 ## v20
 
@@ -83,7 +83,7 @@ But He said to them, It is I. Do not be afraid.
 
 ## v21
 
-Then they were willing to take Him into the boat; and immediately the boat was at the land to which they were going.
+Then they were willing to [[John-06.fn#Footnote 21.1 — take|take]] Him into the boat; and immediately the boat was at the land to which they were going.
 
 ## v22
 
@@ -107,15 +107,15 @@ Jesus answered them and said, Truly, truly, I say to you, You seek Me not becaus
 
 ## v27
 
-Work not for the food which perishes, but for the food which abides unto eternal life, which the Son of Man will give you; for Him has the Father, even God, sealed.
+Work not for the food which perishes, but for the food which abides unto [[John-06.fn#Footnote 27.1 — eternal|eternal]] life, which the Son of Man will give you; for Him has the Father, even God, sealed.
 
 ## v28
 
-Then they said to Him, What shall we do that we may work the works of God?
+Then they said to Him, What shall we [[John-06.fn#Footnote 28.1 — do|do]] that we may [[John-06.fn#Footnote 28.1 — do|work]] the works of God?
 
 ## v29
 
-Jesus answered and said to them, This is the work of God, that you believe into Him whom He has sent.
+Jesus answered and said to them, This is the work of God, that you [[John-06.fn#Footnote 29.1 — believe|believe]] into Him whom He has [[John-06.fn#Footnote 29.2 — sent|sent]].
 
 ## v30
 
@@ -131,7 +131,7 @@ Jesus therefore said to them, Truly, truly, I say to you, Moses has not given yo
 
 ## v33
 
-For the bread of God is He who comes down out of heaven and gives life to the world.
+For the bread of God is He who [[John-06.fn#Footnote 33.1 — comes|comes]] down out of heaven and gives life to the world.
 
 ## v34
 
@@ -139,7 +139,7 @@ They said therefore to Him, Lord, give us this bread always.
 
 ## v35
 
-Jesus said to them, I am the bread of life; he who comes to Me shall by no means hunger, and he who believes into Me shall by no means ever thirst.
+Jesus said to them, I am the [[John-06.fn#Footnote 35.1 — bread|bread]] of life; he who comes to Me shall [[John-06.fn#Footnote 35.2 — by|by]] no means hunger, and he who believes into Me shall by no means ever thirst.
 
 ## v36
 
@@ -167,7 +167,7 @@ The Jews therefore murmured concerning Him because He said, I am the bread that 
 
 ## v42
 
-And they said, Is not this Jesus, the son of Joseph, whose father and mother we know? How does He now say, I have come down out of heaven?
+And they said, Is not this Jesus, the [[John-06.fn#Footnote 42.1 — son|son]] of Joseph, whose father and mother we know? How does He now say, I have come down out of heaven?
 
 ## v43
 
@@ -183,7 +183,7 @@ It is written in the prophets, “And they shall all be taught of God.” Everyo
 
 ## v46
 
-Not that anyone has seen the Father, except Him who is from God, He has seen the Father.
+Not that anyone has seen the Father, except Him who is [[John-06.fn#Footnote 46.1 — from|from]] God, He has seen the Father.
 
 ## v47
 
@@ -203,7 +203,7 @@ This is the bread which comes down out of heaven, that anyone may eat of it and 
 
 ## v51
 
-I am the living bread which came down out of heaven; if anyone eats of this bread, he shall live forever; and the bread which I will give is My flesh, given for the life of the world.
+I am the [[John-06.fn#Footnote 51.1 — living|living]] bread which came down out of heaven; if anyone eats of this bread, he shall live forever; and the bread which I will give is My [[John-06.fn#Footnote 51.2 — flesh|flesh]], given [[John-06.fn#Footnote 51.3 — for|for]] the life of the world.
 
 ## v52
 
@@ -211,11 +211,11 @@ The Jews then contended with one another, saying, How can this man give us His f
 
 ## v53
 
-Jesus therefore said to them, Truly, truly, I say to you, Unless you eat the flesh of the Son of Man and drink His blood, you do not have life within yourselves.
+Jesus therefore said to them, Truly, truly, I say to you, Unless you eat the flesh of the Son of Man and drink His [[John-06.fn#Footnote 53.1 — blood|blood]], you do not have life within yourselves.
 
 ## v54
 
-He who eats My flesh and drinks My blood has eternal life, and I will raise him up in the last day.
+He who [[John-06.fn#Footnote 54.1 — eats|eats]] My [[John-06.fn#Footnote 54.2 — flesh|flesh]] and drinks My [[John-06.fn#Footnote 54.2 — flesh|blood]] has eternal life, and I will raise him up in the last day.
 
 ## v55
 
@@ -223,11 +223,11 @@ For My flesh is true food, and My blood is true drink.
 
 ## v56
 
-He who eats My flesh and drinks My blood abides in Me and I in him.
+He who eats My flesh and drinks My blood abides in Me and [[John-06.fn#Footnote 56.1 — I|I]] in him.
 
 ## v57
 
-As the living Father has sent Me and I live because of the Father, so he who eats Me, he also shall live because of Me.
+As the living Father has sent Me and I live because of the Father, so he who [[John-06.fn#Footnote 57.1 — eats|eats]] Me, he also shall live because of Me.
 
 ## v58
 
@@ -247,15 +247,15 @@ But Jesus, knowing in Himself that His disciples were murmuring about this, said
 
 ## v62
 
-Then what if you saw the Son of Man ascending to where He was before?
+Then what if you saw the Son of Man [[John-06.fn#Footnote 62.1 — ascending|ascending]] to where He was before?
 
 ## v63
 
-It is the Spirit who gives life; the flesh profits nothing; the words which I have spoken to you are spirit and are life.
+It is the [[John-06.fn#Footnote 63.1 — Spirit|Spirit]] who gives life; the [[John-06.fn#Footnote 63.2 — flesh|flesh]] profits nothing; the [[John-06.fn#Footnote 63.3 — words|words]] which I have spoken to you are spirit and are life.
 
 ## v64
 
-But there are some of you who do not believe. For Jesus knew from the beginning who were the ones who did not believe and who was the one who would betray Him.
+But there are some of you who do not believe. For Jesus knew from the beginning who were the ones who did not believe and who was the one who would [[John-06.fn#Footnote 64.1 — betray|betray]] Him.
 
 ## v65
 

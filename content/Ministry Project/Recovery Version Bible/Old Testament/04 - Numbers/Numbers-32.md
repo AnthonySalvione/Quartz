@@ -1,6 +1,6 @@
 ## v1
 
-Now the children of Reuben and the children of Gad had a very great abundance of livestock. And when they saw the land of Jazer and the land of Gilead, that the place was indeed a place for livestock,
+[[Numbers-32.fn#Footnote 1.1 — Now|Now]] the children of Reuben and the children of Gad had a very great abundance of livestock. And when they saw the land of Jazer and the land of Gilead, that the place was indeed a place for livestock,
 
 ## v2
 
@@ -16,7 +16,7 @@ The land which Jehovah struck before the assembly of Israel, is a land for lives
 
 ## v5
 
-And they said, If we have found favor in your sight, let this land be given to your servants for a possession; do not make us cross over the Jordan.
+And they said, If we have found favor in your sight, let this [[Numbers-32.fn#Footnote 5.1 — land|land]] be given to your servants for a possession; do not make us [[Numbers-32.fn#Footnote 5.2 — cross|cross]] over the Jordan.
 
 ## v6
 
@@ -84,7 +84,7 @@ And all of your armed men will cross over the Jordan before Jehovah until He has
 
 ## v22
 
-And the land is subdued before Jehovah, then afterward you shall return and be free of obligation toward Jehovah and toward Israel; and this land shall be yours for a possession before Jehovah.
+And the land is subdued before Jehovah, then afterward you shall return and be free of [[Numbers-32.fn#Footnote 22.1 — obligation|obligation]] toward Jehovah and toward Israel; and this land shall be yours for a possession before Jehovah.
 
 ## v23
 
@@ -160,7 +160,7 @@ And Moses gave Gilead to Machir the son of Manasseh, and he dwelt in it.
 
 ## v41
 
-And Jair the son of Manasseh went and took its villages and called them Havvoth-jair.
+And Jair the son of Manasseh went and took its villages and called them [[Numbers-32.fn#Footnote 41.1 — Havvoth-jair|Havvoth-jair]].
 
 ## v42
 

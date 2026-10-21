@@ -1,10 +1,10 @@
 ## v1
 
-And the inhabitants of Jerusalem made Ahaziah, his youngest son, king in his place, for the band of men who had come up to the camp with the Arabians had slain all the older sons; so Ahaziah the son of Jehoram the king of Judah reigned.
+And the inhabitants of Jerusalem made [[2 Chronicles-22.fn#Footnote 1.1 — Ahaziah|Ahaziah]], his youngest son, king in his place, for the band of men who had come up to the camp with the Arabians had slain all the older sons; so Ahaziah the son of Jehoram the king of Judah reigned.
 
 ## v2
 
-Ahaziah was twenty-two years old when he began to reign, and he reigned one year in Jerusalem; and his mother’s name was Athaliah, the daughter of Omri.
+Ahaziah was [[2 Chronicles-22.fn#Footnote 2.1 — twenty-two|twenty-two]] years old when he began to reign, and he reigned one year in Jerusalem; and his mother’s name was Athaliah, the [[2 Chronicles-22.fn#Footnote 2.2 — daughter|daughter]] of Omri.
 
 ## v3
 
@@ -16,11 +16,11 @@ And he did what was evil in the sight of Jehovah, like the house of Ahab; for th
 
 ## v5
 
-He walked also in their counsel and went with Jehoram the son of Ahab the king of Israel to battle against Hazael the king of Syria at Ramoth-gilead. And the Syrians struck Joram,
+He walked also in their counsel and went with Jehoram the son of Ahab the king of Israel to battle against Hazael the king of Syria at Ramoth-gilead. And the Syrians struck [[2 Chronicles-22.fn#Footnote 5.1 — Joram|Joram]],
 
 ## v6
 
-And he returned to heal in Jezreel because of the wounds that they had inflicted on him in Ramah when he fought with Hazael the king of Syria. And Ahaziah the son of Jehoram, the king of Judah, went down to see Jehoram the son of Ahab in Jezreel, for he was sick.
+And he returned to heal in Jezreel because of the wounds that they had inflicted on him in Ramah when he fought with Hazael the king of Syria. And [[2 Chronicles-22.fn#Footnote 6.1 — Ahaziah|Ahaziah]] the son of Jehoram, the king of Judah, went down to see Jehoram the son of Ahab in Jezreel, for he was sick.
 
 ## v7
 
@@ -36,7 +36,7 @@ And he sought for Ahaziah, and they caught him; for he had been hiding in Samari
 
 ## v10
 
-And when Athaliah the mother of Ahaziah saw that her son was dead, she rose up and destroyed all the royal seed of the house of Judah.
+And when Athaliah the mother of Ahaziah saw that her son was dead, she rose up and [[2 Chronicles-22.fn#Footnote 10.1 — destroyed|destroyed]] all the royal seed of the house of Judah.
 
 ## v11
 

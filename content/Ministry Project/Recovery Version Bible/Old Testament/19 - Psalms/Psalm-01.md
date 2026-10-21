@@ -1,6 +1,6 @@
 ## v1
 
-Blessed is the man  
+[[Psalm-01.fn#Footnote 1.1 — Blessed|Blessed]] is the man  
 Who does not walk  
 In the counsel of the wicked,  
 Nor stand on the path of sinners,  
@@ -8,7 +8,7 @@ Nor sit in the seat of mockers;
 
 ## v2
 
-Rather his delight is in the law of Jehovah,  
+Rather his delight is in the [[Psalm-01.fn#Footnote 2.1 — law|law]] of Jehovah,  
 And in His law he meditates by day and by night.
 
 ## v3
@@ -17,7 +17,7 @@ And he will be like a tree
 Transplanted beside streams of water,  
 Which yields its fruit in its season,  
 And whose foliage does not wither;  
-And everything he does prospers.
+And everything he does [[Psalm-01.fn#Footnote 3.1 — prospers|prospers]].
 
 ## v4
 

@@ -20,7 +20,7 @@ So Moses the servant of Jehovah died there in the land of Moab according to the 
 
 ## v6
 
-And He buried him in the valley in the land of Moab opposite Beth-peor; but no man knows his burial site to this day.
+And [[Deuteronomy-34.fn#Footnote 6.1 — He|He]] buried him in the valley in the land of Moab opposite Beth-peor; but no man knows his burial site to this day.
 
 ## v7
 
@@ -32,7 +32,7 @@ And the children of Israel wept for Moses in the plains of Moab for thirty days;
 
 ## v9
 
-And Joshua the son of Nun was filled with the spirit of wisdom, for Moses had laid his hands upon him; and the children of Israel listened to him and did as Jehovah had commanded Moses.
+And [[Deuteronomy-34.fn#Footnote 9.1 — Joshua|Joshua]] the son of Nun was filled with the spirit of wisdom, for Moses had [[Deuteronomy-34.fn#Footnote 9.2 — laid|laid]] his hands upon him; and the children of Israel listened to him and did as Jehovah had commanded Moses.
 
 ## v10
 

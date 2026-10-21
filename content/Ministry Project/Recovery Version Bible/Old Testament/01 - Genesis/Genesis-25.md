@@ -1,6 +1,6 @@
 ## v1
 
-And Abraham took another wife, whose name was Keturah.
+And Abraham took [[Genesis-25.fn#Footnote 1.1 — another|another]] wife, whose name was Keturah.
 
 ## v2
 
@@ -16,7 +16,7 @@ And the sons of Midian: Ephah and Epher and Hanoch and Abida and Eldaah. All the
 
 ## v5
 
-And Abraham gave all that he had to Isaac.
+And Abraham gave [[Genesis-25.fn#Footnote 5.1 — all|all]] that he had to [[Genesis-25.fn#Footnote 5.2 — Isaac|Isaac]].
 
 ## v6
 
@@ -32,7 +32,7 @@ And Abraham expired and died in a good old age, an old man and full of days, and
 
 ## v9
 
-And Isaac and Ishmael his sons buried him in the cave of Machpelah, in the field of Ephron the son of Zohar the Hittite, which faces Mamre,
+And Isaac and Ishmael his sons buried him in the cave of [[Genesis-25.fn#Footnote 9.1 — Machpelah|Machpelah]], in the field of Ephron the son of Zohar the Hittite, which faces Mamre,
 
 ## v10
 
@@ -40,7 +40,7 @@ The field which Abraham purchased of the children of Heth; there Abraham was bur
 
 ## v11
 
-And after the death of Abraham, God blessed Isaac his son. And Isaac dwelt by Beer-lahai-roi.
+And after the death of Abraham, God [[Genesis-25.fn#Footnote 11.1 — blessed|blessed]] Isaac his son. And Isaac dwelt by Beer-lahai-roi.
 
 ## v12
 
@@ -80,7 +80,7 @@ And Isaac was forty years old when he took Rebekah, the daughter of Bethuel the 
 
 ## v21
 
-And Isaac entreated Jehovah for his wife because she was barren. And Jehovah was entreated of him, and Rebekah his wife conceived.
+And Isaac [[Genesis-25.fn#Footnote 21.1 — entreated|entreated]] Jehovah for his wife because she was barren. And Jehovah was entreated of him, and Rebekah his wife conceived.
 
 ## v22
 
@@ -89,10 +89,10 @@ And the children struggled with each other within her. And she said, If it is so
 ## v23
 
 And Jehovah said to her,  
-Two nations are in your womb, /  
+[[Genesis-25.fn#Footnote 23.1 — Two|Two]] nations are in your womb, /  
 And two peoples shall be separated from your bowels. /  
 And the one people shall be stronger than the other people. /  
-And the older shall serve the younger.
+And the older shall serve the [[Genesis-25.fn#Footnote 23.2 — younger|younger]].
 
 ## v24
 
@@ -100,11 +100,11 @@ And when her days to be delivered were fulfilled, behold, there were twins in he
 
 ## v25
 
-And the first came forth red, all over like a hairy garment; and they called his name Esau.
+And the first came forth red, all over like a hairy garment; and they called his name [[Genesis-25.fn#Footnote 25.1 — Esau|Esau]].
 
 ## v26
 
-And after that his brother came forth, and his hand was holding on to Esau’s heel, so his name was called Jacob. And Isaac was sixty years old when she bore them.
+And after that his brother came forth, and his hand was [[Genesis-25.fn#Footnote 26.1 — holding|holding]] on to Esau’s heel, so his name was called [[Genesis-25.fn#Footnote 26.2 — Jacob|Jacob]]. And Isaac was sixty years old when she bore them.
 
 ## v27
 
@@ -112,7 +112,7 @@ And when the boys grew up, Esau became a skillful hunter, a man of the field; bu
 
 ## v28
 
-Now Isaac loved Esau because he had a taste for game, but Rebekah loved Jacob.
+Now Isaac loved Esau because [[Genesis-25.fn#Footnote 28.1 — he|he]] had a taste for game, but Rebekah loved Jacob.
 
 ## v29
 
@@ -120,11 +120,11 @@ And Jacob cooked a stew. And Esau came in from the field, and he was faint.
 
 ## v30
 
-And Esau said to Jacob, Let me swallow down some of the red stew, that red stew there, for I am faint. Therefore his name was called Edom.
+And Esau said to Jacob, Let me swallow down some of the red stew, that red stew there, for I am faint. Therefore his name was called [[Genesis-25.fn#Footnote 30.1 — Edom|Edom]].
 
 ## v31
 
-And Jacob said, First sell me your birthright.
+And Jacob said, [[Genesis-25.fn#Footnote 31.1 — First|First]] sell me your birthright.
 
 ## v32
 
@@ -136,4 +136,4 @@ And Jacob said, First swear to me. And he swore to him and sold his birthright t
 
 ## v34
 
-And Jacob gave Esau bread and lentil stew, and he ate and drank and rose up and went away. Thus Esau despised his birthright.
+And Jacob gave Esau bread and lentil stew, and he ate and drank and rose up and went away. Thus Esau [[Genesis-25.fn#Footnote 34.1 — despised|despised]] his birthright.

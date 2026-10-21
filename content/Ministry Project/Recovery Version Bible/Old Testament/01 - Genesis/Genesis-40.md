@@ -28,7 +28,7 @@ And he asked Pharaoh’s officials, who were with him in custody in his master�
 
 ## v8
 
-And they said to him, We have had a dream, and there is no one to interpret it. And Joseph said to them, Do not interpretations belong to God? Please tell it to me.
+And they said to him, We have had a dream, and there is no one to interpret it. And Joseph said to them, [[Genesis-40.fn#Footnote 8.1 — Do|Do]] not interpretations belong to God? Please tell it to me.
 
 ## v9
 

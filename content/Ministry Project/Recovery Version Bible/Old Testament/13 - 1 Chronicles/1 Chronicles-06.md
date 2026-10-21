@@ -108,7 +108,7 @@ Eliab his son, Jeroham his son, Elkanah his son.
 
 ## v28
 
-And the sons of Samuel: the firstborn Joel and Abijah.
+And the sons of Samuel: the firstborn [[1 Chronicles-06.fn#Footnote 28.1 — Joel|Joel]] and Abijah.
 
 ## v29
 
@@ -120,7 +120,7 @@ Shimea his son, Haggiah his son, Asaiah his son.
 
 ## v31
 
-And these are they whom David set over the service of song in the house of Jehovah after the Ark was at rest.
+And these are they whom David set over the [[1 Chronicles-06.fn#Footnote 31.1 — service|service]] of song in the house of Jehovah after the Ark was at rest.
 
 ## v32
 
@@ -128,7 +128,7 @@ And they ministered before the tabernacle of the Tent of Meeting with singing un
 
 ## v33
 
-And these are they who attended and their sons: Of the sons of the Kohathites: Heman the singer, the son of Joel, the son of Samuel,
+And these are they who attended and their sons: Of the sons of the Kohathites: [[1 Chronicles-06.fn#Footnote 33.1 — Heman|Heman]] the singer, the son of Joel, the son of [[1 Chronicles-06.fn#Footnote 33.1 — Heman|Samuel]],
 
 ## v34
 
@@ -224,7 +224,7 @@ But the fields of the city and its villages they gave to Caleb the son of Jephun
 
 ## v57
 
-And to the children of Aaron they gave the city of refuge, Hebron; and Libnah and its pasture lands, and Jattir, and Eshtemoa and its pasture lands,
+And to the children of Aaron they gave the [[1 Chronicles-06.fn#Footnote 57.1 — city|city]] of refuge, Hebron; and Libnah and its pasture lands, and Jattir, and Eshtemoa and its pasture lands,
 
 ## v58
 

@@ -52,7 +52,7 @@ And these wineskins, which we filled, were new; and here they are: they are torn
 
 ## v14
 
-And the men took some of their provisions, but they did not ask for the counsel of Jehovah.
+And the men took some of their provisions, [[Joshua-09.fn#Footnote 14.1 — but|but]] they did not ask for the counsel of Jehovah.
 
 ## v15
 

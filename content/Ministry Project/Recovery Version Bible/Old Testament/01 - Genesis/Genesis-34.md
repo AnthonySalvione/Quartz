@@ -8,7 +8,7 @@ And when Shechem the son of Hamor the Hivite, the prince of the land, saw her, h
 
 ## v3
 
-And his soul clung to Dinah the daughter of Jacob, and he loved the girl and spoke affectionately to the girl.
+And his soul clung to Dinah the daughter of Jacob, and he loved the girl and spoke [[Genesis-34.fn#Footnote 3.1 — affectionately|affectionately]] to the girl.
 
 ## v4
 
@@ -36,7 +36,7 @@ And make marriages with us: Give your daughters to us, and take our daughters fo
 
 ## v10
 
-And you shall dwell with us, and the land will be before you; dwell and trade in it, and acquire holdings in it.
+And you shall dwell with us, and the land will be before you; dwell and [[Genesis-34.fn#Footnote 10.1 — trade|trade]] in it, and acquire holdings in it.
 
 ## v11
 
@@ -96,7 +96,7 @@ And all who went out of the gate of his city listened to Hamor and to Shechem hi
 
 ## v25
 
-Then on the third day, when they were still in pain, two of Jacob’s sons, Simeon and Levi, Dinah’s brothers, each took his sword and came upon the city unawares, and slew every male.
+Then on the third day, when they were still in pain, two of Jacob’s sons, Simeon and Levi, Dinah’s brothers, each took his sword and came upon the city [[Genesis-34.fn#Footnote 25.1 — unawares|unawares]], and slew every male.
 
 ## v26
 
@@ -116,7 +116,7 @@ And they took captive and plundered all their wealth and all their little ones a
 
 ## v30
 
-And Jacob said to Simeon and Levi, You have brought trouble upon me by making me odious among the inhabitants of the land, among the Canaanites and the Perizzites; and I am few in number, and they will gather themselves together against me and strike me; and I will be destroyed, I and my house.
+And Jacob said to Simeon and Levi, You have [[Genesis-34.fn#Footnote 30.1 — brought|brought]] trouble upon me by making me odious among the inhabitants of the land, among the Canaanites and the Perizzites; and I am few in number, and they will gather themselves together against me and strike me; and I will be destroyed, I and my house.
 
 ## v31
 

@@ -44,7 +44,7 @@ So six hundred men girded with weapons of war set out from there, from the famil
 
 ## v12
 
-And they went up and encamped in Kiriath-jearim in Judah. Because of this, that place is called Mahaneh-dan to this day; it is there behind Kiriath-jearim.
+And they went up and encamped in Kiriath-jearim in Judah. Because of this, that place is called [[Judges-18.fn#Footnote 12.1 — Mahaneh-dan|Mahaneh-dan]] to this day; it is there behind Kiriath-jearim.
 
 ## v13
 
@@ -116,8 +116,8 @@ And they called the name of the city Dan, according to the name of Dan their fat
 
 ## v30
 
-And the children of Dan erected for themselves the sculptured idol; and Jonathan the son of Gershom, the son of Moses, he and his sons, became priests to the tribe of Dan until the day of the captivity of the land.
+And the children of Dan erected for themselves the sculptured idol; and Jonathan the son of Gershom, the son of [[Judges-18.fn#Footnote 30.1 — Moses|Moses]], he and his sons, became priests to the tribe of Dan until the day of the captivity of the land.
 
 ## v31
 
-Thus they set up the sculptured idol that Micah had made the whole time that the house of God was in Shiloh.
+Thus they [[Judges-18.fn#Footnote 31.1 — set|set]] up the sculptured idol that Micah had made the whole time that the house of God was in Shiloh.

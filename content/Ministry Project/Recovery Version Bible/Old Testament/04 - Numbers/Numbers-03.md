@@ -8,11 +8,11 @@ And these are the names of the sons of Aaron: Nadab the firstborn and Abihu, Ele
 
 ## v3
 
-These are the names of the sons of Aaron, the anointed priests, who were consecrated to serve as priests.
+These are the names of the sons of Aaron, the anointed priests, [[Numbers-03.fn#Footnote 3.1 — who|who]] were consecrated to serve as priests.
 
 ## v4
 
-But Nadab and Abihu died before Jehovah when they offered strange fire before Jehovah in the wilderness of Sinai, and they had no children. So Eleazar and Ithamar served as priests in the presence of Aaron their father.
+But [[Numbers-03.fn#Footnote 4.1 — Nadab|Nadab]] and Abihu died before Jehovah when they offered strange fire before Jehovah in the wilderness of Sinai, and they had no children. So Eleazar and Ithamar served as priests in the presence of Aaron their father.
 
 ## v5
 
@@ -28,7 +28,7 @@ And they shall keep his charge and the charge of the whole assembly before the T
 
 ## v8
 
-And they shall keep all the furnishings of the Tent of Meeting and the charge of the children of Israel to do the service of the tabernacle.
+And they shall keep all the [[Numbers-03.fn#Footnote 8.1 — furnishings|furnishings]] of the Tent of Meeting and the charge of the children of Israel to do the service of the tabernacle.
 
 ## v9
 
@@ -36,7 +36,7 @@ And you shall give the Levites to Aaron and to his sons; they are wholly given t
 
 ## v10
 
-And you shall appoint Aaron and his sons, and they shall keep their priesthood; but the stranger who comes near shall be put to death.
+And you shall [[Numbers-03.fn#Footnote 10.1 — appoint|appoint]] Aaron and his sons, and they shall keep their priesthood; but the [[Numbers-03.fn#Footnote 10.2 — stranger|stranger]] who comes near shall be put to death.
 
 ## v11
 
@@ -44,7 +44,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v12
 
-As for Me, I have now taken the Levites from among the children of Israel instead of every firstborn who opens the womb among the children of Israel. So the Levites shall be Mine.
+As for Me, I have now taken the [[Numbers-03.fn#Footnote 12.1 — Levites|Levites]] from among the children of Israel instead of every firstborn who opens the womb among the children of Israel. So the Levites shall be Mine.
 
 ## v13
 
@@ -64,7 +64,7 @@ And Moses numbered them according to the word of Jehovah, as he was commanded.
 
 ## v17
 
-And these were the sons of Levi by their names: Gershon and Kohath and Merari.
+And these were the [[Numbers-03.fn#Footnote 17.1 — sons|sons]] of Levi by their names: Gershon and Kohath and Merari.
 
 ## v18
 
@@ -120,7 +120,7 @@ And the leader of the father’s household of the families of the Kohathites sha
 
 ## v31
 
-And their charge shall be the Ark and the table and the lampstand and the altars and the utensils of the sanctuary with which they minister and the screen and all its service.
+And their [[Numbers-03.fn#Footnote 31.1 — charge|charge]] shall be the Ark and the table and the lampstand and the altars and the utensils of the sanctuary with which they minister and the screen and all its service.
 
 ## v32
 
@@ -148,7 +148,7 @@ And the pillars around the court and their sockets and their pegs and their cord
 
 ## v38
 
-And those who encamp before the tabernacle to the east, before the Tent of Meeting toward the sunrise, shall be Moses and Aaron and his sons, keeping the charge of the sanctuary for the charge of the children of Israel; and the stranger who comes near shall be put to death.
+And those who encamp before the tabernacle to the east, before the Tent of Meeting toward the sunrise, shall be Moses and Aaron and his sons, keeping the [[Numbers-03.fn#Footnote 38.1 — charge|charge]] of the sanctuary for the charge of the children of Israel; and the stranger who comes near shall be put to death.
 
 ## v39
 

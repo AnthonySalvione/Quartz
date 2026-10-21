@@ -53,7 +53,7 @@ And they do not withhold their spit from my face.
 
 ## v11
 
-For He has loosened my cord and afflicted me;  
+For He has loosened [[Job-30.fn#Footnote 11.1 — my|my]] cord and afflicted me;  
 Therefore they have cast off restraint in my presence.
 
 ## v12

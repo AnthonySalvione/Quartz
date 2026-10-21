@@ -24,11 +24,11 @@ The land of Egypt is before you; settle your father and your brothers in the bes
 
 ## v7
 
-And Joseph brought in Jacob his father and set him before Pharaoh, and Jacob blessed Pharaoh.
+And Joseph brought in Jacob his father and set him before Pharaoh, and Jacob [[Genesis-47.fn#Footnote 7.1 — blessed|blessed]] Pharaoh.
 
 ## v8
 
-And Pharaoh said to Jacob, How many are the years of your life?
+And Pharaoh said to Jacob, How many are the [[Genesis-47.fn#Footnote 8.1 — years|years]] of your life?
 
 ## v9
 
@@ -52,7 +52,7 @@ And there was no food in all the land, for the famine was so very severe that th
 
 ## v14
 
-And Joseph collected all the money that was to be found in the land of Egypt and in the land of Canaan for the grain which they bought, and Joseph brought the money into Pharaoh’s house.
+And Joseph [[Genesis-47.fn#Footnote 14.1 — collected|collected]] all the money that was to be found in the land of Egypt and in the land of Canaan for the grain which they bought, and Joseph brought the money into Pharaoh’s house.
 
 ## v15
 
@@ -64,7 +64,7 @@ And Joseph said, Bring your livestock, and I will give you food in exchange for 
 
 ## v17
 
-And they brought their livestock to Joseph, and Joseph gave them food in exchange for the horses and for the flocks of sheep and for the herds of cattle and for the donkeys; and he fed them with food in exchange for all their livestock that year.
+And they brought their livestock to Joseph, and Joseph gave them food in exchange for the horses and for the flocks of sheep and for the herds of cattle and for the donkeys; and he [[Genesis-47.fn#Footnote 17.1 — fed|fed]] them with food in exchange for all their livestock that year.
 
 ## v18
 
@@ -112,12 +112,12 @@ And Jacob lived in the land of Egypt seventeen years. Thus the days of Jacob, th
 
 ## v29
 
-And the time for Israel to die drew near. And he called his son Joseph and said to him, If now I have found favor in your sight, please put your hand under my thigh and deal with me in kindness and truth. Please do not bury me in Egypt;
+And the time for Israel to die drew near. And he called his son Joseph and said to him, If now I have found favor in your sight, please put your hand under my [[Genesis-47.fn#Footnote 29.1 — thigh|thigh]] and deal with me in kindness and truth. Please do not bury me in Egypt;
 
 ## v30
 
-But when I lie down with my fathers, you shall carry me out of Egypt, and bury me in their burial place. And he said, I will do as you have said.
+But when I [[Genesis-47.fn#Footnote 30.1 — lie|lie]] down with my fathers, you shall carry me out of Egypt, and bury me in their burial place. And he said, I will do as you have said.
 
 ## v31
 
-And he said, Swear to me; and he swore to him. Then Israel bowed himself at the head of his bed.
+And he said, Swear to me; and he swore to him. Then Israel bowed himself [[Genesis-47.fn#Footnote 31.1 — at|at]] the head of his bed.

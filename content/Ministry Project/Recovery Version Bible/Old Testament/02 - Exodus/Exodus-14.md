@@ -12,7 +12,7 @@ And Pharaoh will say of the children of Israel, They are wandering aimlessly in 
 
 ## v4
 
-And I will harden Pharaoh’s heart, and he will pursue after them; and I will glorify Myself through Pharaoh and through all his army, and the Egyptians will know that I am Jehovah. And they did so.
+And I will [[Exodus-14.fn#Footnote 4.1 — harden|harden]] Pharaoh’s heart, and he will pursue after them; and I will glorify Myself through Pharaoh and through all his army, and the Egyptians will know that I am Jehovah. And they did so.
 
 ## v5
 
@@ -52,7 +52,7 @@ But Moses said to the people, Do not be afraid; stand firm, and see the salvatio
 
 ## v14
 
-Jehovah will fight for you, and you will be still.
+Jehovah will fight for you, and you will be [[Exodus-14.fn#Footnote 14.1 — still|still]].
 
 ## v15
 
@@ -72,11 +72,11 @@ Then the Egyptians will know that I am Jehovah when I glorify Myself through Pha
 
 ## v19
 
-And the Angel of God, who went before the camp of Israel, moved and went behind them; and the pillar of cloud moved from before them and stood behind them.
+And the [[Exodus-14.fn#Footnote 19.1 — Angel|Angel]] of God, who went before the camp of Israel, moved and went behind them; and the pillar of cloud moved from before them and stood behind them.
 
 ## v20
 
-And it came between the camp of the Egyptians and the camp of Israel. And the cloud was there with the darkness, yet it gave light by night to them. Thus one did not come near the other all night.
+And it came between the camp of the Egyptians and the camp of Israel. And the cloud was there with the [[Exodus-14.fn#Footnote 20.1 — darkness|darkness]], yet it gave [[Exodus-14.fn#Footnote 20.1 — darkness|light]] by night to them. Thus one did not come near the other all night.
 
 ## v21
 
@@ -84,7 +84,7 @@ And when Moses stretched out his hand over the sea, Jehovah caused the sea to go
 
 ## v22
 
-And the children of Israel went into the midst of the sea upon the dry ground, and the waters were a wall to them on their right hand and on their left.
+And the children of Israel [[Exodus-14.fn#Footnote 22.1 — went|went]] into the midst of the sea upon the dry ground, and the waters were a wall to them on their right hand and on their left.
 
 ## v23
 
@@ -96,7 +96,7 @@ And at the morning watch Jehovah looked down upon the camp of the Egyptians from
 
 ## v25
 
-And He caused their chariot wheels to swerve and made them drive with difficulty, so that the Egyptians said, Let us flee from Israel, for Jehovah is fighting for them against the Egyptians.
+And [[Exodus-14.fn#Footnote 25.1 — He|He]] caused their chariot wheels to swerve and made them drive with difficulty, so that the Egyptians said, Let us flee from Israel, for Jehovah is fighting for them against the Egyptians.
 
 ## v26
 
@@ -108,7 +108,7 @@ And Moses stretched out his hand over the sea, and the sea returned to its level
 
 ## v28
 
-And as the waters returned, they covered the chariots and the horsemen, even all the army of Pharaoh that went in after them into the sea; not even one of them was left.
+And as the waters returned, they [[Exodus-14.fn#Footnote 28.1 — covered|covered]] the chariots and the horsemen, even all the army of Pharaoh that went in after them into the sea; not even one of them was left.
 
 ## v29
 
@@ -116,8 +116,8 @@ But the children of Israel walked on dry land through the midst of the sea, and 
 
 ## v30
 
-Thus Jehovah saved Israel that day out of the hand of the Egyptians, and Israel saw the Egyptians dead upon the seashore.
+Thus Jehovah [[Exodus-14.fn#Footnote 30.1 — saved|saved]] Israel that day out of the hand of the Egyptians, and Israel saw the Egyptians dead upon the seashore.
 
 ## v31
 
-And when Israel saw the great power which Jehovah exercised against the Egyptians, the people feared Jehovah; and they believed in Jehovah and in His servant Moses.
+And when Israel saw the great power which Jehovah exercised against the Egyptians, the people feared Jehovah; and they believed in Jehovah and in His servant [[Exodus-14.fn#Footnote 31.1 — Moses|Moses]].

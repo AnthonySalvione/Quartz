@@ -12,7 +12,7 @@ And they said, If you send away the Ark of the God of Israel, do not send it awa
 
 ## v4
 
-And they said, What is the trespass offering that we should return to Him? And they said, Five golden tumors and five golden mice, according to the number of the lords of the Philistines; for one plague was upon you all and upon your lords.
+And they said, What is the trespass offering that we should return to Him? And they said, Five golden [[1 Samuel-06.fn#Footnote 4.1 — tumors|tumors]] and five golden mice, according to the number of the lords of the Philistines; for one plague was upon you all and upon your lords.
 
 ## v5
 
@@ -20,7 +20,7 @@ Therefore you shall make images of your tumors and images of your mice that deva
 
 ## v6
 
-Why then should you harden your hearts as the Egyptians and Pharaoh hardened their hearts? When He had dealt severely with them, did they not let the people go, and they went?
+Why then should you harden your hearts as the Egyptians and Pharaoh hardened their hearts? When He had dealt severely with them, did they not let [[1 Samuel-06.fn#Footnote 6.1 — the|the]] people go, and they went?
 
 ## v7
 
@@ -68,11 +68,11 @@ And these are the gold tumors that the Philistines returned to Jehovah as a tres
 
 ## v18
 
-And the gold mice, according to the number of all the cities of the Philistines that belonged to the five lords, both of fortified cities and country villages, as far as the great stone on which they rested the Ark of Jehovah, which is there to this day, in the field of Joshua the Beth-shemeshite.
+And the gold mice, according to the number of all the cities of the Philistines that belonged to the five lords, both of fortified cities and country villages, as far as the [[1 Samuel-06.fn#Footnote 18.1 — great|great]] stone on which they rested the Ark of Jehovah, which is there to this day, in the field of Joshua the Beth-shemeshite.
 
 ## v19
 
-And He struck the men of Beth-shemesh because they looked into the Ark of Jehovah; and He struck seventy men among the people. And the people mourned because Jehovah struck the people with a great slaughter.
+And He struck the men of Beth-shemesh because they looked into the Ark of Jehovah; and He struck seventy men [[1 Samuel-06.fn#Footnote 19.1 — among|among]] the people. And the people mourned because Jehovah struck the people with a great slaughter.
 
 ## v20
 

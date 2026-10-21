@@ -7,11 +7,11 @@ Now when morning had come, all the chief priests and the elders of the people to
 
 ## v2
 
-And having bound Him, they led Him away and delivered Him to Pilate the governor.
+And having bound Him, they led Him away and delivered Him to [[Matthew-27.fn#Footnote 2.1 — Pilate|Pilate]] the governor.
 
 ## v3
 
-Then Judas, who betrayed Him, seeing that He was condemned, regretted and returned the thirty pieces of silver to the chief priests and elders,
+Then Judas, who betrayed Him, seeing that He was condemned, [[Matthew-27.fn#Footnote 3.1 — regretted|regretted]] and returned the thirty pieces of silver to the chief priests and elders,
 
 ## v4
 
@@ -23,7 +23,7 @@ And he threw the pieces of silver into the temple and departed, and he went away
 
 ## v6
 
-And the chief priests took the pieces of silver and said, It is not lawful to put them into the temple treasury, since it is blood money.
+And the [[Matthew-27.fn#Footnote 6.1 — chief|chief]] priests took the pieces of silver and said, It is not lawful to put them into the [[Matthew-27.fn#Footnote 6.2 — temple|temple]] treasury, since it is blood money.
 
 ## v7
 
@@ -35,7 +35,7 @@ Therefore that field has been called the Field of Blood to this day.
 
 ## v9
 
-At that time what was spoken through Jeremiah the prophet was fulfilled, saying, “And they took the thirty pieces of silver, the price of Him that had been priced, whom they of the sons of Israel had priced,
+At that time what was spoken through [[Matthew-27.fn#Footnote 9.1 — Jeremiah|Jeremiah]] the prophet was fulfilled, saying, “And they took the thirty pieces of silver, the price of Him that had been priced, whom they of the sons of Israel had priced,
 
 ## v10
 
@@ -47,7 +47,7 @@ And Jesus stood before the governor, and the governor questioned Him, saying, Ar
 
 ## v12
 
-And while He was being accused by the chief priests and elders, He answered nothing.
+And while He was being accused by the chief priests and elders, He answered [[Matthew-27.fn#Footnote 12.1 — nothing|nothing]].
 
 ## v13
 
@@ -55,7 +55,7 @@ Then Pilate said to Him, Do You not hear how many things they testify against Yo
 
 ## v14
 
-And He did not answer him, not even to one word, so that the governor marveled greatly.
+And He did [[Matthew-27.fn#Footnote 12.1 — nothing|not]] answer him, not even to one word, so that the governor marveled greatly.
 
 ## v15
 
@@ -67,7 +67,7 @@ And they had at that time a notorious prisoner named Barabbas.
 
 ## v17
 
-Therefore when they were gathered together, Pilate said to them, Whom do you want me to release to you? Barabbas or Jesus who is called Christ?
+Therefore when they were gathered together, Pilate said to them, [[Matthew-27.fn#Footnote 17.1 — Whom|Whom]] do you want me to release to you? Barabbas or Jesus who is called Christ?
 
 ## v18
 
@@ -75,7 +75,7 @@ For he knew that it was because of envy that they had delivered Him up.
 
 ## v19
 
-And while he was sitting on the judgment seat, his wife sent word to him, saying, Have nothing to do with that righteous man, for I have suffered much today in a dream because of Him.
+And while he was sitting on the judgment seat, his wife sent word to him, saying, Have nothing to do with that righteous man, for I have suffered much today in a [[Matthew-27.fn#Footnote 19.1 — dream|dream]] because of Him.
 
 ## v20
 
@@ -95,7 +95,7 @@ But he said, Why, what evil has He done? But they cried out the more, saying, Le
 
 ## v24
 
-And Pilate, seeing that nothing was gained but rather that an uproar was taking place, took water and washed his hands before the crowd, saying, I am innocent of this man’s blood. You see to it yourselves.
+And Pilate, seeing that nothing was gained but rather that an uproar was taking place, took water and [[Matthew-27.fn#Footnote 24.1 — washed|washed]] his hands before the crowd, saying, [[Matthew-27.fn#Footnote 24.2 — I|I]] am innocent of this [[Matthew-27.fn#Footnote 24.3 — man’s|man’s]] blood. You see to it yourselves.
 
 ## v25
 
@@ -103,11 +103,11 @@ And all the people answered and said, His blood be upon us and upon our children
 
 ## v26
 
-Then he released to them Barabbas, but Jesus he scourged and delivered up to be crucified.
+Then he released to them Barabbas, but Jesus he [[Matthew-27.fn#Footnote 26.1 — scourged|scourged]] and delivered up to be [[Matthew-27.fn#Footnote 26.2 — crucified|crucified]].
 
 ## v27
 
-Then the governor’s soldiers took Jesus into the praetorium and gathered about Him the whole cohort.
+Then the governor’s soldiers took Jesus into the [[Matthew-27.fn#Footnote 27.1 — praetorium|praetorium]] and gathered about Him the whole cohort.
 
 ## v28
 
@@ -115,7 +115,7 @@ And they stripped Him and put a scarlet robe around Him,
 
 ## v29
 
-And they wove a crown of thorns and placed it on His head and put a reed in His right hand; and they kneeled before Him and mocked Him, saying, Rejoice, King of the Jews!
+And they wove a crown of [[Matthew-27.fn#Footnote 29.1 — thorns|thorns]] and placed it on His head and put a reed in His right hand; and they kneeled before Him and mocked Him, saying, [[Matthew-27.fn#Footnote 29.2 — Rejoice|Rejoice]], King of the Jews!
 
 ## v30
 
@@ -123,23 +123,23 @@ And they spat on Him and took the reed and beat Him on the head.
 
 ## v31
 
-And when they had mocked Him, they stripped Him of the robe and put His garments on Him, and led Him away to crucify Him.
+And when they had mocked Him, they stripped Him of the robe and put His garments on Him, and [[Matthew-27.fn#Footnote 31.1 — led|led]] Him away to crucify Him.
 
 ## v32
 
-And as they were going out, they found a man of Cyrene, Simon by name; this one they compelled to take up His cross.
+And as they were going out, they found a man of [[Matthew-27.fn#Footnote 32.1 — Cyrene|Cyrene]], Simon by name; this one they compelled to take up His cross.
 
 ## v33
 
-And when they had come to a place called Golgotha, that is to say, Place of a Skull,
+And when they had come to a place called [[Matthew-27.fn#Footnote 33.1 — Golgotha|Golgotha]], that is to say, Place of a Skull,
 
 ## v34
 
-They gave Him wine to drink, mingled with gall. And when He tasted it, He would not drink.
+They gave Him [[Matthew-27.fn#Footnote 34.1 — wine|wine]] to drink, mingled with gall. And when He tasted it, He would [[Matthew-27.fn#Footnote 34.2 — not|not]] drink.
 
 ## v35
 
-And when they had crucified Him, they divided His garments among themselves, casting lots.
+And when they had crucified Him, they [[Matthew-27.fn#Footnote 35.1 — divided|divided]] His garments among themselves, casting lots.
 
 ## v36
 
@@ -151,7 +151,7 @@ And they set in writing over His head the charge against Him: THIS IS JESUS, THE
 
 ## v38
 
-At that time two robbers were crucified with Him, one on the right and one on the left.
+At that time two [[Matthew-27.fn#Footnote 38.1 — robbers|robbers]] were crucified with Him, one on the right and one on the left.
 
 ## v39
 
@@ -159,7 +159,7 @@ And those who were passing by blasphemed Him, wagging their heads
 
 ## v40
 
-And saying, You who destroy the temple and build it up in three days, save Yourself! If You are the Son of God, come down from the cross!
+And saying, You who destroy the temple and build it up in three days, save Yourself! [[Matthew-27.fn#Footnote 40.1 — If|If]] You are the Son of God, come down from the cross!
 
 ## v41
 
@@ -167,7 +167,7 @@ Likewise also the chief priests with the scribes and elders mocked Him and said,
 
 ## v42
 
-He saved others; Himself He cannot save. He is King of Israel; let Him come down now from the cross, and we will believe on Him.
+He saved others; Himself He [[Matthew-27.fn#Footnote 42.1 — cannot|cannot]] save. He is King of Israel; let Him come down now from the cross, and we will believe on Him.
 
 ## v43
 
@@ -179,11 +179,11 @@ And in the same way the robbers who were crucified with Him also reproached Him.
 
 ## v45
 
-Now from the sixth hour darkness fell over all the land until the ninth hour.
+Now from the [[Matthew-27.fn#Footnote 45.1 — sixth|sixth]] hour darkness fell over all the land until the [[Matthew-27.fn#Footnote 45.1 — sixth|ninth]] hour.
 
 ## v46
 
-And about the ninth hour Jesus cried out with a loud voice, saying, Eli, Eli, lama sabachthani? that is, My God, My God, why have You forsaken Me?
+And about the [[Matthew-27.fn#Footnote 45.1 — sixth|ninth]] hour Jesus cried out with a loud voice, saying, Eli, Eli, lama sabachthani? that is, My God, My God, [[Matthew-27.fn#Footnote 46.2 — why|why]] have You forsaken Me?
 
 ## v47
 
@@ -191,7 +191,7 @@ And some of those standing there, when they heard this, said, This man is callin
 
 ## v48
 
-And immediately one of them ran, and taking a sponge, he soaked it with vinegar and put it on a reed, and gave it to Him to drink.
+And immediately one of them ran, and taking a sponge, he soaked it with [[Matthew-27.fn#Footnote 48.1 — vinegar|vinegar]] and put it on a reed, and gave it to Him to drink.
 
 ## v49
 
@@ -199,19 +199,19 @@ But the rest said, Let Him be. Let us see if Elijah is coming to save Him.
 
 ## v50
 
-And Jesus cried out again with a loud voice and yielded up His spirit.
+And Jesus cried out again with a loud voice and [[Matthew-27.fn#Footnote 50.1 — yielded|yielded]] up His spirit.
 
 ## v51
 
-And behold, the veil of the temple was split in two from top to bottom, and the earth was shaken and the rocks were split,
+And behold, the [[Matthew-27.fn#Footnote 51.1 — veil|veil]] of the temple was split in two [[Matthew-27.fn#Footnote 51.2 — from|from]] top to bottom, and the [[Matthew-27.fn#Footnote 51.3 — earth|earth]] was shaken and the [[Matthew-27.fn#Footnote 51.4 — rocks|rocks]] were split,
 
 ## v52
 
-And the tombs were opened, and many bodies of the saints who had fallen asleep were raised.
+And the [[Matthew-27.fn#Footnote 52.1 — tombs|tombs]] were opened, and many [[Matthew-27.fn#Footnote 52.2 — bodies|bodies]] of the saints who had fallen asleep were raised.
 
 ## v53
 
-And they came out of the tombs after His resurrection and entered into the holy city and appeared to many.
+And they [[Matthew-27.fn#Footnote 53.1 — came|came]] out of the tombs after His resurrection and entered into the holy city and [[Matthew-27.fn#Footnote 53.2 — appeared|appeared]] to many.
 
 ## v54
 
@@ -223,11 +223,11 @@ And many women were there looking on from a distance, who had followed Jesus fro
 
 ## v56
 
-Among whom were Mary the Magdalene, and Mary the mother of James and Joseph, and the mother of the sons of Zebedee.
+Among whom were Mary the Magdalene, and [[Matthew-27.fn#Footnote 56.1 — Mary|Mary]] the mother of James and Joseph, and the mother of the sons of Zebedee.
 
 ## v57
 
-And when evening fell, there came a rich man from Arimathea, named Joseph, who himself had also become a disciple of Jesus.
+And when [[Matthew-27.fn#Footnote 57.1 — evening|evening]] fell, there came a rich man from Arimathea, named Joseph, who himself had also become a disciple of Jesus.
 
 ## v58
 
@@ -239,7 +239,7 @@ And Joseph took the body and wrapped it in a clean, fine linen cloth.
 
 ## v60
 
-And he laid it in his own new tomb, which he had hewn in the rock. And having rolled a great stone in front of the door of the tomb, he went away.
+And he [[Matthew-27.fn#Footnote 60.1 — laid|laid]] it in his own new tomb, which he had hewn in the rock. And having rolled a great stone in front of the door of the tomb, he went away.
 
 ## v61
 
@@ -247,7 +247,7 @@ And Mary the Magdalene was there, and the other Mary, sitting opposite the grave
 
 ## v62
 
-On the next day, which is the day after the preparation, the chief priests and the Pharisees gathered unto Pilate,
+On the next day, which is the day after the [[Matthew-27.fn#Footnote 62.1 — preparation|preparation]], the chief priests and the Pharisees gathered unto Pilate,
 
 ## v63
 
@@ -263,4 +263,4 @@ Pilate said to them, Take a guard. Go and make the tomb as secure as you know ho
 
 ## v66
 
-And they went and secured the grave, sealing the stone, with the guard being there.
+And they went and secured the grave, [[Matthew-27.fn#Footnote 66.1 — sealing|sealing]] the stone, with the guard being there.

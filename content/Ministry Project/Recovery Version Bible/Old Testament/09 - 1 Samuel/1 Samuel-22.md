@@ -64,7 +64,7 @@ But the king said, You shall surely die, Ahimelech, you and all your father’s 
 
 ## v17
 
-Then the king said to the runners who were standing around him, Turn, and kill the priests of Jehovah, because their hand is also with David, and because they knew that he was fleeing and they did not disclose it to me. But the king’s servants would not put forth their hand to attack the priests of Jehovah.
+Then the king said to the runners who were standing around him, Turn, and [[1 Samuel-22.fn#Footnote 17.1 — kill|kill]] the priests of Jehovah, because their hand is also with David, and because they knew that he was fleeing and they did not disclose it to me. But the king’s servants would not put forth their hand to attack the priests of Jehovah.
 
 ## v18
 

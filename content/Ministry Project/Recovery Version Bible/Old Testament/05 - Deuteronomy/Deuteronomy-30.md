@@ -1,6 +1,6 @@
 ## v1
 
-And when all these things come upon you, the blessing and the curse, which I have set before you; and you bring them to heart while among all the nations to whom Jehovah your God will drive you;
+And [[Deuteronomy-30.fn#Footnote 1.1 — when|when]] all these things come upon you, the blessing and the curse, which I have set before you; and you bring them to heart while among all the nations to whom Jehovah your God will drive you;
 
 ## v2
 
@@ -24,7 +24,7 @@ And Jehovah your God will circumcise your heart and the heart of your seed, so t
 
 ## v7
 
-And Jehovah your God will put all these oaths upon your enemies and upon them who hate you and who have persecuted you.
+And Jehovah your God will put all these [[Deuteronomy-30.fn#Footnote 7.1 — oaths|oaths]] upon your enemies and upon them who hate you and who have persecuted you.
 
 ## v8
 
@@ -40,15 +40,15 @@ If you listen to the voice of Jehovah your God, to keep His commandments and His
 
 ## v11
 
-For this commandment which I am commanding you today, it is not too difficult for you, nor is it distant.
+For this commandment which I am commanding you today, it is not too [[Deuteronomy-30.fn#Footnote 11.1 — difficult|difficult]] for you, nor is it distant.
 
 ## v12
 
-It is not in heaven that you should say, Who will ascend to heaven for us and bring it to us to make us hear it and do it?
+[[Deuteronomy-30.fn#Footnote 12.1 — It|It]] is not in heaven that you should say, Who will ascend to heaven for us and bring it to us to make us hear it and do it?
 
 ## v13
 
-Nor is it across the sea that you should say, Who will go across the sea for us and bring it to us to make us hear it and do it?
+Nor is it across the [[Deuteronomy-30.fn#Footnote 13.1 — sea|sea]] that you should say, Who will go across the sea for us and bring it to us to make us hear it and do it?
 
 ## v14
 
@@ -60,7 +60,7 @@ See, I have put before you today life and good, and death and evil.
 
 ## v16
 
-If you obey the commandments of Jehovah your God, which I am commanding you today, to love Jehovah your God and walk in His ways and keep His commandments and His statutes and His ordinances, then you will live and multiply, and Jehovah your God will bless you in the land which you are entering to possess.
+[[Deuteronomy-30.fn#Footnote 16.1 — If|If]] you obey the commandments of Jehovah your God, which I am commanding you today, to love Jehovah your God and walk in His ways and keep His commandments and His statutes and His ordinances, then you will live and multiply, and Jehovah your God will bless you in the land which you are entering to possess.
 
 ## v17
 
@@ -76,4 +76,4 @@ I call heaven and earth to witness against you today: I have set before you life
 
 ## v20
 
-In loving Jehovah your God by listening to His voice and holding fast to Him; for He is your life and the length of your days, that you may dwell upon the land which Jehovah swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them.
+In loving Jehovah your God by listening to His voice and holding fast to Him; for [[Deuteronomy-30.fn#Footnote 20.1 — He|He]] is your life and the length of your days, that you may dwell upon the land which Jehovah swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them.

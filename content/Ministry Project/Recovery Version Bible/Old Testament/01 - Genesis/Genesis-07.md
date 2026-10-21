@@ -8,11 +8,11 @@ Of every clean animal you shall take with you seven pairs, a male and its female
 
 ## v3
 
-Also of the birds of heaven, seven pairs, male and female; to preserve their offspring alive on the surface of all the earth.
+Also of the birds of heaven, seven pairs, male and female; to [[Genesis-07.fn#Footnote 3.1 — preserve|preserve]] their offspring alive on the surface of all the earth.
 
 ## v4
 
-For in seven more days I will cause it to rain on the earth forty days and forty nights, and every living being that I have made I will blot out from the surface of the ground.
+For in seven more days I will cause it to rain on the earth [[Genesis-07.fn#Footnote 4.1 — forty|forty]] days and forty nights, and every living being that I have made I will blot out from the surface of the ground.
 
 ## v5
 
@@ -20,7 +20,7 @@ And Noah did according to all that Jehovah commanded him.
 
 ## v6
 
-And Noah was six hundred years old when the flood of waters came upon the earth.
+And Noah was [[Genesis-07.fn#Footnote 6.1 — six|six]] hundred years old when the flood of waters came upon the earth.
 
 ## v7
 
@@ -60,11 +60,11 @@ And they went into the ark to Noah, two by two of all flesh in which was the bre
 
 ## v16
 
-And those who went in, male and female of all flesh, went in as God had commanded him; and Jehovah shut the door behind him.
+And those who went in, male and female of all flesh, went in as God had commanded him; and Jehovah [[Genesis-07.fn#Footnote 16.1 — shut|shut]] the door behind him.
 
 ## v17
 
-And the flood was on the earth forty days; and the waters increased and lifted up the ark, and it rose high above the earth.
+And the flood was on the earth forty days; and the [[Genesis-07.fn#Footnote 17.1 — waters|waters]] increased and lifted up the ark, and it rose high above the earth.
 
 ## v18
 

@@ -24,7 +24,7 @@ For Jehovah your God will bless you as He has promised you. And you will lend to
 
 ## v7
 
-If among you there is a needy one amidst your brothers within any of your gates in your land, which Jehovah your God is giving you, you shall not harden your heart and you shall not close up your hand from your needy brother;
+If among you there is a [[Deuteronomy-15.fn#Footnote 7.1 — needy|needy]] one amidst your brothers within any of your gates in your land, which Jehovah your God is giving you, you shall not harden your heart and you shall not close up your hand from your needy brother;
 
 ## v8
 
@@ -32,7 +32,7 @@ But you must open your hand to him, and you must lend enough for his need in wha
 
 ## v9
 
-Be careful that there is not within your heart a base thought like this: The seventh year, the year of release, is near; and your eye be evil against your needy brother and you do not give him anything, and he cry against you to Jehovah, and it become sin to you.
+Be careful that there is not within your heart a base thought [[Deuteronomy-15.fn#Footnote 9.1 — like|like]] this: The seventh year, the year of release, is near; and your eye be evil against your needy brother and you do not give him anything, and he cry against you to Jehovah, and it become sin to you.
 
 ## v10
 
@@ -44,7 +44,7 @@ For the needy will not cease being in the land; therefore I am commanding you, s
 
 ## v12
 
-If your brother, a Hebrew man or woman, is sold to you, he shall serve you six years; but in the seventh year you shall set him free.
+[[Deuteronomy-15.fn#Footnote 12.1 — If|If]] your brother, a Hebrew man or woman, is sold to you, he shall serve you six years; but in the seventh year you shall set him [[Deuteronomy-15.fn#Footnote 12.2 — free|free]].
 
 ## v13
 

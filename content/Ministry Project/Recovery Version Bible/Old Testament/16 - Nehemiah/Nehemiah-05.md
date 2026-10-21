@@ -52,7 +52,7 @@ I also shook out the lap of my garment and said, May God shake out in the same w
 
 ## v14
 
-Moreover from the time that the king appointed me to be governor in the land of Judah, from the twentieth year even to the thirty-second year of Artaxerxes the king, twelve years, I and my brothers did not eat the food appointed for the governor.
+Moreover from the time that the king appointed me to be governor in the land of Judah, from the twentieth year even to the thirty-second year of Artaxerxes the king, twelve years, I and my brothers did [[Nehemiah-05.fn#Footnote 14.1 — not|not]] eat the food appointed for the governor.
 
 ## v15
 

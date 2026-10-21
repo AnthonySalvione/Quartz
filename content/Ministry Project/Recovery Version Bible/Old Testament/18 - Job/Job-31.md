@@ -56,7 +56,7 @@ And it would be wickedness, to be punished by the judges.
 
 ## v12
 
-For it is a fire that devours to Abaddon  
+For it is a fire that devours to [[Job-31.fn#Footnote 12.1 — Abaddon|Abaddon]]  
 And would root up all my increase.
 
 ## v13
@@ -87,7 +87,7 @@ Without the orphan eating of it —
 ## v18
 
 Rather, from my youth he grew up with me as with a father,  
-And from my mother’s womb I guided the widow —
+And from my mother’s womb I guided [[Job-31.fn#Footnote 18.1 — the|the]] widow —
 
 ## v19
 
@@ -152,7 +152,7 @@ By asking for his life with a curse —
 ## v31
 
 If the men of my tent have not said,  
-Who can find one who has not been filled with our master’s meat? —
+Who can find one who has not been filled with [[Job-31.fn#Footnote 31.1 — our|our]] master’s meat? —
 
 ## v32
 
@@ -161,7 +161,7 @@ I have opened my doors to the highway —
 
 ## v33
 
-If I have covered my transgressions as Adam did  
+If I have covered my transgressions [[Job-31.fn#Footnote 33.1 — as|as]] Adam did  
 By hiding my iniquity in my bosom,
 
 ## v34
@@ -178,7 +178,7 @@ And let my accuser write up the charge.
 
 ## v36
 
-Surely I would carry it on my shoulder;  
+Surely I would carry [[Job-31.fn#Footnote 36.1 — it|it]] on my shoulder;  
 I would bind it onto me like a crown;
 
 ## v37
@@ -200,4 +200,4 @@ And have caused its owners to lose their life;
 
 May thorns come forth instead of wheat,  
 And pungent weeds instead of barley.  
-The words of Job are ended.
+The words of Job are [[Job-31.fn#Footnote 40.1 — ended|ended]].

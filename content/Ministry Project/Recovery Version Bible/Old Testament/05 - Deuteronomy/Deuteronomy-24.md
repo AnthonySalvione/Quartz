@@ -16,7 +16,7 @@ Then the former husband, who sent her away, may not return to take her again to 
 
 ## v5
 
-When a man takes a new wife, he shall not go out with the army, nor shall he be charged with any duty; he shall be free at home for one year, and he shall make his wife happy, whom he has taken.
+When a man takes a new [[Deuteronomy-24.fn#Footnote 5.1 — wife|wife]], he shall not go out with the army, nor shall he be charged with any duty; he shall be free at home for one year, and he shall make his wife happy, whom he has taken.
 
 ## v6
 
@@ -60,7 +60,7 @@ On the day he earns it, you shall give him his wages, and the sun shall not go d
 
 ## v16
 
-Fathers shall not be put to death because of their children, nor shall children be put to death because of their fathers; every man shall be put to death for his own sin.
+[[Deuteronomy-24.fn#Footnote 16.1 — Fathers|Fathers]] shall not be put to death because of their children, nor shall children be put to death because of their fathers; every man shall be put to death for his own sin.
 
 ## v17
 

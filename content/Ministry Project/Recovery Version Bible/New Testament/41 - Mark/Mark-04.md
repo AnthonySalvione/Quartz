@@ -3,7 +3,7 @@ Author: Mark
 ---
 ## v1
 
-And again He began to teach beside the sea, and a very great crowd was gathered unto Him, so that He stepped into a boat in the sea and sat down, and all the crowd was on the land, facing the sea.
+[[Mark-04.fn#Footnote 1.1 — And|And]] again He began to [[Mark-04.fn#Footnote 1.2 — teach|teach]] beside the sea, and a very great crowd was gathered unto Him, so that He stepped into a boat in the sea and sat down, and all the crowd was on the land, facing the sea.
 
 ## v2
 
@@ -11,7 +11,7 @@ And He taught them many things in parables and said to them in His teaching:
 
 ## v3
 
-Listen! Behold, the sower went out to sow.
+Listen! Behold, the [[Mark-04.fn#Footnote 3.1 — sower|sower]] went out to [[Mark-04.fn#Footnote 3.2 — sow|sow]].
 
 ## v4
 
@@ -43,7 +43,7 @@ And when He was alone, those around Him, with the twelve, asked Him about the pa
 
 ## v11
 
-And He said to them, To you it has been given to know the mystery of the kingdom of God, but to those outside, all things are in parables,
+And He said to them, To you it has been given to know the [[Mark-04.fn#Footnote 11.1 — mystery|mystery]] of the kingdom of God, but to those outside, all things [[Mark-04.fn#Footnote 11.2 — are|are]] in parables,
 
 ## v12
 
@@ -51,7 +51,7 @@ In order that seeing they may see and not perceive, and hearing they may hear an
 
 ## v13
 
-And He said to them, Do you not know this parable? And how will you know all the parables?
+And He said to them, Do you not [[Mark-04.fn#Footnote 13.1 — know|know]] this parable? And how will you [[Mark-04.fn#Footnote 13.1 — know|know]] all the parables?
 
 ## v14
 
@@ -83,7 +83,7 @@ And these are the ones sown on the good earth: those who hear the word and recei
 
 ## v21
 
-And He said to them, Does the lamp come so that it may be placed under the bushel or under the bed? Does it not come that it may be placed on the lampstand?
+And He said to them, Does the [[Mark-04.fn#Footnote 21.1 — lamp|lamp]] come so that it may be placed under the [[Mark-04.fn#Footnote 21.2 — bushel|bushel]] or under the bed? Does it not come that it may be placed on the [[Mark-04.fn#Footnote 21.3 — lampstand|lampstand]]?
 
 ## v22
 
@@ -95,31 +95,31 @@ If anyone has ears to hear, let him hear.
 
 ## v24
 
-And He said to them, Take heed what you hear. With what measure you measure, it shall be measured to you, and it shall be added to you.
+And He said to them, Take heed what you hear. [[Mark-04.fn#Footnote 24.1 — With|With]] what measure you measure, it shall be measured to you, and it shall be added to you.
 
 ## v25
 
-For he who has, it shall be given to him; and he who does not have, even what he has shall be taken away from him.
+For he who [[Mark-04.fn#Footnote 25.1 — has|has]], it shall be given to him; and he who does not have, even what he has shall be taken away from him.
 
 ## v26
 
-And He said, So is the kingdom of God: as if a man cast seed on the earth,
+And He said, So is the [[Mark-04.fn#Footnote 26.1 — kingdom|kingdom]] of God: as if a [[Mark-04.fn#Footnote 26.2 — man|man]] cast [[Mark-04.fn#Footnote 26.3 — seed|seed]] on the earth,
 
 ## v27
 
-And sleeps and rises night and day, and the seed sprouts and lengthens — how, he does not know.
+And [[Mark-04.fn#Footnote 27.1 — sleeps|sleeps]] and rises night and day, and the seed sprouts and [[Mark-04.fn#Footnote 27.2 — lengthens|lengthens]] — how, he does not know.
 
 ## v28
 
-The earth bears fruit by itself: first a blade, then an ear, then full grain in the ear.
+The [[Mark-04.fn#Footnote 28.1 — earth|earth]] bears fruit [[Mark-04.fn#Footnote 28.2 — by|by]] itself: first a blade, then an ear, then full grain in the ear.
 
 ## v29
 
-But when the fruit is ripe, immediately he sends forth the sickle, because the harvest has come.
+But when the fruit is ripe, immediately he sends forth the [[Mark-04.fn#Footnote 29.1 — sickle|sickle]], because the harvest has come.
 
 ## v30
 
-And He said, How shall we liken the kingdom of God, or in what parable shall we present it?
+[[Mark-04.fn#Footnote 30.1 — And|And]] He said, How shall we liken the kingdom of God, or in what parable shall we [[Mark-04.fn#Footnote 30.2 — present|present]] it?
 
 ## v31
 
@@ -127,11 +127,11 @@ It is like a mustard seed, which, when it is sown on the earth, is smaller than 
 
 ## v32
 
-And when it is sown, it comes up and becomes greater than all the herbs and produces great branches, so that the birds of heaven can roost under its shade.
+And when it is sown, it comes up and becomes [[Mark-04.fn#Footnote 32.1 — greater|greater]] than all the herbs and produces great branches, so that the [[Mark-04.fn#Footnote 32.1 — greater|birds]] of heaven can roost under its shade.
 
 ## v33
 
-And in many such parables He spoke the word to them as they were able to hear;
+And in many such [[Mark-04.fn#Footnote 33.1 — parables|parables]] He spoke the word to them as they were able to hear;
 
 ## v34
 
@@ -143,7 +143,7 @@ And He said to them on that day when evening had fallen, Let us go over to the o
 
 ## v36
 
-And leaving the crowd, they took Him along, just as He was, in the boat; and other boats were with Him.
+[[Mark-04.fn#Footnote 36.1 — And|And]] leaving the crowd, they took Him along, just as He was, in the boat; and other boats were with Him.
 
 ## v37
 
@@ -151,11 +151,11 @@ And there arose a great windstorm, and the waves beat into the boat, so that the
 
 ## v38
 
-And He was in the stern, sleeping on the cushion. And they woke Him and said to Him, Teacher, does it not matter to You that we are perishing?
+And He was in the stern, [[Mark-04.fn#Footnote 38.1 — sleeping|sleeping]] on the cushion. And they woke Him and said to Him, Teacher, does it not matter to You that we are perishing?
 
 ## v39
 
-And having awoken, He rebuked the wind and said to the sea, Be silent! Be still! And the wind ceased and there was a great calm.
+And having awoken, He [[Mark-04.fn#Footnote 39.1 — rebuked|rebuked]] the wind and said to the sea, Be silent! Be still! And the wind ceased and there was a great calm.
 
 ## v40
 
@@ -163,4 +163,4 @@ And He said to them, Why are you cowardly in this way? How is it that you do not
 
 ## v41
 
-And they became greatly frightened and said to one another, Who then is this, that even the wind and the sea obey Him?
+And they became greatly frightened and said to one another, Who then is this, that even the wind and the sea [[Mark-04.fn#Footnote 41.1 — obey|obey]] Him?

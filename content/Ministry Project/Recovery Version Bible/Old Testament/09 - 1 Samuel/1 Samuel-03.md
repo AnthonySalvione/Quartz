@@ -1,6 +1,6 @@
 ## v1
 
-And the boy Samuel ministered to Jehovah before Eli. Now the word of Jehovah was rare in those days; visions were not widespread.
+And the boy Samuel ministered to Jehovah before Eli. Now the word of Jehovah was [[1 Samuel-03.fn#Footnote 1.1 — rare|rare]] in those days; visions were not widespread.
 
 ## v2
 
@@ -40,7 +40,7 @@ Then Jehovah came and stood by and called as at the other times, Samuel! Samuel!
 
 ## v11
 
-And Jehovah said to Samuel, I am about to do something in Israel which will make both ears of anyone who hears of it tingle.
+And Jehovah said to Samuel, [[1 Samuel-03.fn#Footnote 11.1 — I|I]] am about to do something in Israel which will make both ears of anyone who hears of it tingle.
 
 ## v12
 
@@ -76,7 +76,7 @@ And Samuel grew, and Jehovah was with him and let none of his words fall to the 
 
 ## v20
 
-And all Israel, from Dan to Beer-sheba, knew that Samuel had been established as a prophet of Jehovah.
+And all Israel, from Dan to Beer-sheba, knew that Samuel had been established as a [[1 Samuel-03.fn#Footnote 20.1 — prophet|prophet]] of Jehovah.
 
 ## v21
 

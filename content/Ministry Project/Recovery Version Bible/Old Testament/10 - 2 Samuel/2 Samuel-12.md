@@ -12,7 +12,7 @@ But the poor man had nothing but one small ewe lamb, which he had bought. And he
 
 ## v4
 
-And there came a traveler to the rich man. But the rich man refused to take something from his own flock and herd to dress for the wayfarer who had come to him; but he took the poor man’s ewe lamb and dressed it for the man who had come to him.
+And there came a traveler to the rich man. But [[2 Samuel-12.fn#Footnote 4.1 — the|the]] rich man refused to take something from his own flock and herd to dress for the wayfarer who had come to him; but he took the poor man’s ewe lamb and dressed it for the man who had come to him.
 
 ## v5
 
@@ -36,7 +36,7 @@ Why have you despised the word of Jehovah by doing what is evil in His sight? Yo
 
 ## v10
 
-Now therefore the sword will not depart from your house forever because you have despised Me and have taken the wife of Uriah the Hittite to be your wife.
+Now therefore the [[2 Samuel-12.fn#Footnote 10.1 — sword|sword]] will not depart from your house forever because you have despised Me and have taken the wife of Uriah the Hittite to be your wife.
 
 ## v11
 
@@ -92,11 +92,11 @@ But now that he is dead, why should I fast? Can I bring him back again? I will g
 
 ## v24
 
-And David comforted Bath-sheba his wife and went in unto her and lay with her. And she bore a son, and he called his name Solomon. And Jehovah loved him;
+And David comforted Bath-sheba his wife and went in unto her and lay with her. And she bore a son, and he called his name [[2 Samuel-12.fn#Footnote 24.1 — Solomon|Solomon]]. And Jehovah loved him;
 
 ## v25
 
-And He sent word through Nathan the prophet and called his name Jedidiah for Jehovah’s sake.
+And He sent word through Nathan the prophet and called his name [[2 Samuel-12.fn#Footnote 25.1 — Jedidiah|Jedidiah]] for Jehovah’s sake.
 
 ## v26
 

@@ -3,15 +3,15 @@ Author: Luke
 ---
 ## v1
 
-And soon afterward He journeyed from city to city and village to village, preaching and announcing the gospel of the kingdom of God; and the twelve were with Him,
+And soon afterward He journeyed from city to city and village to village, [[Luke-08.fn#Footnote 1.1 — preaching|preaching]] and [[Luke-08.fn#Footnote 1.2 — announcing|announcing]] the gospel of the kingdom of God; and the twelve were with Him,
 
 ## v2
 
-As well as certain women who were healed of evil spirits and infirmities: Mary, who was called Magdalene, from whom seven demons had gone out,
+As well as certain [[Luke-08.fn#Footnote 2.1 — women|women]] who were healed of evil spirits and infirmities: Mary, who was called Magdalene, from whom seven demons had gone out,
 
 ## v3
 
-And Joanna, the wife of Chuza, Herod’s steward, and Susanna, and many other women, who ministered to them out of their possessions.
+And Joanna, the wife of Chuza, Herod’s steward, and Susanna, and many other women, who ministered to [[Luke-08.fn#Footnote 3.1 — them|them]] out of their possessions.
 
 ## v4
 
@@ -19,7 +19,7 @@ And while a great crowd was coming together and those from city to city were jou
 
 ## v5
 
-The sower went out to sow his seed. And as he sowed, some seed fell beside the way, and it was trampled underfoot, and the birds of heaven devoured it.
+The [[Luke-08.fn#Footnote 5.1 — sower|sower]] went out to sow his seed. And as he sowed, some seed fell beside the way, and it was trampled underfoot, and the birds of heaven devoured it.
 
 ## v6
 
@@ -39,7 +39,7 @@ And His disciples questioned Him as to what this parable might be.
 
 ## v10
 
-And He said, To you it has been given to know the mysteries of the kingdom of God, but to the rest they are in parables, in order that seeing they may not see, and hearing they may not understand.
+And He said, To you it has been given to know the mysteries of the [[Luke-08.fn#Footnote 10.1 — kingdom|kingdom]] of God, but to the rest they are in parables, in order that seeing they may not see, and hearing they may not understand.
 
 ## v11
 
@@ -55,7 +55,7 @@ And those on the rock are those who, when they hear, receive the word with joy; 
 
 ## v14
 
-And that which fell into the thorns, these are those who heard and, going away, are utterly choked by anxieties and riches and pleasures of this life, and do not bring any fruit to maturity.
+And that which fell into the thorns, these are those who heard and, going away, are utterly choked by anxieties and riches and pleasures of this [[Luke-08.fn#Footnote 14.1 — life|life]], and do not bring any fruit to maturity.
 
 ## v15
 
@@ -63,7 +63,7 @@ But that which is in the good earth, these are those who in a noble and good hea
 
 ## v16
 
-Now no one who has lit a lamp covers it with a vessel or puts it underneath a bed, but he puts it on a lampstand in order that those who come in may see the light.
+Now no one who has lit a [[Luke-08.fn#Footnote 16.1 — lamp|lamp]] covers it with a vessel or puts it underneath a bed, but he puts it on a lampstand in order that those who come in may see the light.
 
 ## v17
 
@@ -75,7 +75,7 @@ Take heed therefore how you hear, for whoever has, it shall be given to him, and
 
 ## v19
 
-And His mother and brothers came up to Him and were not able to get to Him because of the crowd.
+And His [[Luke-08.fn#Footnote 19.1 — mother|mother]] and brothers came up to Him and were not able to get to Him because of the crowd.
 
 ## v20
 
@@ -87,7 +87,7 @@ But He answered and said to them, My mother and My brothers are these who hear t
 
 ## v22
 
-And on one of the days He and His disciples got into a boat. And He said to them, Let us go over to the other side of the lake. And they launched out.
+And on one of the days He and His disciples [[Luke-08.fn#Footnote 22.1 — got|got]] into a boat. And He said to them, Let us go over to the other side of the lake. And they launched out.
 
 ## v23
 
@@ -95,7 +95,7 @@ And while they were sailing, He fell asleep. And a windstorm came down upon the 
 
 ## v24
 
-And they came to Him and woke Him, saying, Master, Master, we are perishing! And being awakened, He rebuked the wind and the surging of the water, and they ceased, and there was a calm.
+And they came to Him and woke Him, saying, [[Luke-08.fn#Footnote 24.1 — Master|Master]], Master, we are perishing! And being awakened, He rebuked the wind and the surging of the water, and they ceased, and there was a calm.
 
 ## v25
 
@@ -103,7 +103,7 @@ And He said to them, Where is your faith? And they became frightened and marvele
 
 ## v26
 
-And they sailed down to the region of the Gerasenes, which is across from Galilee.
+And they [[Luke-08.fn#Footnote 26.1 — sailed|sailed]] down to the region of the Gerasenes, which is across from Galilee.
 
 ## v27
 
@@ -143,7 +143,7 @@ And the people went out to see what had happened. And they came to Jesus and fou
 
 ## v36
 
-And those who had seen it reported to them how the demon-possessed man had been healed.
+And those who had seen it reported to them how the demon-possessed man had been [[Luke-08.fn#Footnote 36.1 — healed|healed]].
 
 ## v37
 
@@ -159,19 +159,19 @@ Return to your house, and relate what great things God has done for you. And he 
 
 ## v40
 
-Now as Jesus was returning, the crowd welcomed Him, for they were all waiting for Him.
+Now as Jesus was [[Luke-08.fn#Footnote 40.1 — returning|returning]], the crowd welcomed Him, for they were all waiting for Him.
 
 ## v41
 
-And behold, a man came whose name was Jairus, and this man was a ruler of the synagogue. And he fell at Jesus’ feet and entreated Him to enter into his house,
+And behold, a [[Luke-08.fn#Footnote 41.1 — man|man]] came whose name was Jairus, and this man was a ruler of the synagogue. And he fell at Jesus’ feet and entreated Him to enter into his house,
 
 ## v42
 
-Because he had an only daughter, about twelve years old, and she was dying. And as He went, the crowds pressed against Him.
+Because he had an only daughter, about twelve years old, and she was dying. And as He went, the crowds [[Luke-08.fn#Footnote 42.1 — pressed|pressed]] against Him.
 
 ## v43
 
-And a woman who had a flow of blood for twelve years and who had spent all her livelihood on physicians and yet could not be healed by anyone,
+And a woman who had a flow of blood for twelve years and who [[Luke-08.fn#Footnote 43.1 — had|had]] spent all her livelihood on physicians and yet could not be healed by anyone,
 
 ## v44
 
@@ -179,7 +179,7 @@ Approached Him from behind and touched the fringe of His garment, and instantly 
 
 ## v45
 
-And Jesus said, Who is the one who touched Me? And when all denied it, Peter said, Master, the crowds are pressing and crushing You.
+And Jesus said, Who is the one who touched Me? And when all denied it, [[Luke-08.fn#Footnote 45.1 — Peter|Peter]] said, Master, the crowds are pressing and crushing You.
 
 ## v46
 
@@ -191,7 +191,7 @@ And when the woman saw that she had not escaped notice, she came trembling and f
 
 ## v48
 
-And He said to her, Daughter, your faith has healed you. Go in peace.
+And He said to her, Daughter, your faith has [[Luke-08.fn#Footnote 48.1 — healed|healed]] you. Go [[Luke-08.fn#Footnote 48.2 — in|in]] peace.
 
 ## v49
 
@@ -203,7 +203,7 @@ But Jesus, hearing it, answered him, Do not be afraid — only believe, and she 
 
 ## v51
 
-And He came to the house and did not allow anyone to enter with Him, except Peter and John and James and the father of the child and the mother.
+And He came to the house and did not allow anyone to enter with Him, except Peter and [[Luke-08.fn#Footnote 51.1 — John|John]] and James and the father of the child and the mother.
 
 ## v52
 

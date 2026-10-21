@@ -20,7 +20,7 @@ Let us know among ourselves what is good.
 ## v5
 
 For Job has said, I am righteous,  
-And God has taken away my right;
+And God has [[Job-34.fn#Footnote 5.1 — taken|taken]] away my right;
 
 ## v6
 
@@ -183,6 +183,6 @@ Because of his answering like evil men.
 
 ## v37
 
-For he adds rebellion to his sin;  
-Among us he claps his hands  
+For he adds [[Job-34.fn#Footnote 37.1 — rebellion|rebellion]] to his sin;  
+Among us he [[Job-34.fn#Footnote 37.2 — claps|claps]] his hands  
 And multiplies his words against God.

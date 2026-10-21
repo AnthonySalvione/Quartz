@@ -1,6 +1,6 @@
 ## v1
 
-These are the journeys of the children of Israel, when they went forth out of the land of Egypt by their companies under the direction of Moses and Aaron.
+These are the [[Numbers-33.fn#Footnote 1.1 — journeys|journeys]] of the children of Israel, when they went forth out of the land of Egypt by their companies under the direction of Moses and Aaron.
 
 ## v2
 
@@ -8,7 +8,7 @@ And Moses wrote down the places that they went out from for their journeys accor
 
 ## v3
 
-Now they journeyed from Rameses in the first month, on the fifteenth day of the first month. On the day after the passover the children of Israel went out boldly in the sight of all the Egyptians,
+Now they journeyed from Rameses in the first month, on the fifteenth day of the first month. On the day after the passover the children of Israel went out [[Numbers-33.fn#Footnote 3.1 — boldly|boldly]] in the sight of all the Egyptians,
 
 ## v4
 
@@ -28,7 +28,7 @@ And they journeyed from Etham and turned back to Pi-hahiroth, which faces Baal-z
 
 ## v8
 
-And they journeyed from Pi-hahiroth and passed through the midst of the sea into the wilderness, and they went three days’ journey in the wilderness of Etham and encamped at Marah.
+And they journeyed from [[Numbers-33.fn#Footnote 8.1 — Pi-hahiroth|Pi-hahiroth]] and passed through the midst of the sea into the wilderness, and they went three days’ journey in the wilderness of Etham and encamped at Marah.
 
 ## v9
 
@@ -204,7 +204,7 @@ Speak to the children of Israel, and say to them, When you pass over the Jordan 
 
 ## v52
 
-You shall drive out all the inhabitants of the land from before you, and you shall destroy all their figured stones and destroy all their molten images and demolish all their high places;
+You shall [[Numbers-33.fn#Footnote 52.1 — drive|drive]] out all the inhabitants of the land from before you, and you shall destroy all their figured stones and destroy all their molten images and demolish all their high places;
 
 ## v53
 
@@ -212,7 +212,7 @@ And you shall take possession of the land and dwell in it, for to you I have giv
 
 ## v54
 
-And you shall inherit the land by lot according to your families; to the larger you shall give a larger inheritance, and to the smaller you shall give a smaller inheritance. Wherever the lot falls to anyone, that shall be his. You shall inherit according to the tribes of your fathers.
+And you shall inherit the land by [[Numbers-33.fn#Footnote 54.1 — lot|lot]] according to your families; to the larger you shall give a larger inheritance, and to the smaller you shall give a smaller inheritance. Wherever the lot falls to anyone, that shall be his. You shall inherit according to the [[Numbers-33.fn#Footnote 54.1 — lot|tribes]] of your fathers.
 
 ## v55
 

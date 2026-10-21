@@ -16,7 +16,7 @@ Thus says Jehovah, You shall not go up and wage war with your brothers. Every ma
 
 ## v5
 
-And Rehoboam dwelt in Jerusalem and built cities for defense in Judah.
+[[2 Chronicles-11.fn#Footnote 5.1 — And|And]] Rehoboam dwelt in Jerusalem and built cities for defense in Judah.
 
 ## v6
 
@@ -48,7 +48,7 @@ And in every city, shields and spears; and he made them exceedingly strong. And 
 
 ## v13
 
-And the priests and the Levites who had been throughout all Israel presented themselves to him out of all their territory;
+And the [[2 Chronicles-11.fn#Footnote 13.1 — priests|priests]] and the Levites who had been throughout all Israel presented themselves to him out of all their territory;
 
 ## v14
 
@@ -56,7 +56,7 @@ For the Levites abandoned their pasture lands and their property and went to Jud
 
 ## v15
 
-And he appointed priests for himself for the high places and for the goats and the calves that he had made.
+And he appointed priests for himself for the high places and for the [[2 Chronicles-11.fn#Footnote 15.1 — goats|goats]] and the calves that he had made.
 
 ## v16
 
@@ -80,11 +80,11 @@ And after her he took Maacah the daughter of Absalom; and she bore him Abijah an
 
 ## v21
 
-And Rehoboam loved Maacah the daughter of Absalom above all his wives and his concubines. (For he had taken eighteen wives and sixty concubines and begot twenty-eight sons and sixty daughters.)
+And Rehoboam loved Maacah the daughter of Absalom above all his wives and his concubines. (For he had taken [[2 Chronicles-11.fn#Footnote 21.1 — eighteen|eighteen]] wives and sixty concubines and begot twenty-eight sons and sixty daughters.)
 
 ## v22
 
-And Rehoboam appointed Abijah the son of Maacah to be chief prince, the leader among his brothers; for he intended to make him king.
+And Rehoboam [[2 Chronicles-11.fn#Footnote 22.1 — appointed|appointed]] Abijah the son of Maacah to be chief prince, the leader among his brothers; for he intended to make him king.
 
 ## v23
 

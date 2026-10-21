@@ -1,6 +1,6 @@
 ## v1
 
-And Jehovah said to Moses, See, I have made you God to Pharaoh; and Aaron your brother will be your prophet.
+And Jehovah said to Moses, See, I have made you God to Pharaoh; and Aaron your brother will be your [[Exodus-07.fn#Footnote 1.1 — prophet|prophet]].
 
 ## v2
 
@@ -32,7 +32,7 @@ And Jehovah spoke to Moses and to Aaron, saying,
 
 ## v9
 
-When Pharaoh speaks to you, saying, Perform a wonder; then you shall say to Aaron, Take your staff, and throw it down before Pharaoh, so that it becomes a serpent.
+When Pharaoh speaks to you, saying, Perform a wonder; then you shall say to Aaron, Take your staff, and throw it down before Pharaoh, so that it becomes a [[Exodus-07.fn#Footnote 9.1 — serpent|serpent]].
 
 ## v10
 
@@ -40,7 +40,7 @@ And Moses and Aaron came to Pharaoh, and they did just as Jehovah had commanded;
 
 ## v11
 
-Then Pharaoh also called for the wise men and the sorcerers. And they also, the magicians of Egypt, did the same with their secret spells;
+Then Pharaoh also called for the wise men and the sorcerers. And they also, the [[Exodus-07.fn#Footnote 11.1 — magicians|magicians]] of Egypt, did the same with their secret spells;
 
 ## v12
 
@@ -56,7 +56,7 @@ Then Jehovah said to Moses, Pharaoh’s heart is stubborn; he refuses to let the
 
 ## v15
 
-Go to Pharaoh in the morning as he is going out to the water, and stand on the bank of the River to meet him. And you shall take in your hand the staff which was turned into a serpent.
+Go to [[Exodus-07.fn#Footnote 15.1 — Pharaoh|Pharaoh]] in the morning as he is going out to the water, and stand on the bank of the River to meet him. And you shall take in your hand the staff which was turned into a serpent.
 
 ## v16
 
@@ -64,7 +64,7 @@ And you shall say to him, Jehovah, the God of the Hebrews, sent me to you, sayin
 
 ## v17
 
-Thus says Jehovah, By this you will know that I am Jehovah. I am now going to strike the water which is in the River with the staff that is in my hand, and it will be turned to blood.
+Thus says Jehovah, By this you will know that I am Jehovah. I am now going to strike the water which is in the River with the staff that is in my hand, and it will be turned to [[Exodus-07.fn#Footnote 17.1 — blood|blood]].
 
 ## v18
 

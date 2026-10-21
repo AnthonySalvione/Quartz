@@ -1,22 +1,22 @@
 ## v1
 
-And the man knew Eve his wife, and she conceived and gave birth to Cain and said, I have acquired a man, Jehovah.
+And the man knew Eve his wife, and she conceived and gave birth to [[Genesis-04.fn#Footnote 1.1 — Cain|Cain]] and said, I have acquired a man, [[Genesis-04.fn#Footnote 1.2 — Jehovah|Jehovah]].
 
 ## v2
 
-And again she gave birth, to his brother Abel. And Abel was a tender of sheep, but Cain was a tiller of the ground.
+And again she gave birth, to his brother [[Genesis-04.fn#Footnote 2.1 — Abel|Abel]]. And Abel was a [[Genesis-04.fn#Footnote 2.2 — tender|tender]] of sheep, but Cain was a [[Genesis-04.fn#Footnote 2.3 — tiller|tiller]] of the ground.
 
 ## v3
 
-And in the course of time Cain brought an offering to Jehovah from the fruit of the ground.
+And in the course of time Cain brought an [[Genesis-04.fn#Footnote 3.1 — offering|offering]] to Jehovah from the fruit of the ground.
 
 ## v4
 
-And Abel also brought an offering, from the firstlings of his flock, that is, from their fat portions. And Jehovah had regard for Abel and for his offering.
+And Abel also brought an [[Genesis-04.fn#Footnote 4.1 — offering|offering]], from the firstlings of his flock, that is, from their fat portions. And Jehovah had regard for Abel and for his offering.
 
 ## v5
 
-But for Cain and for his offering He had no regard. And Cain became very angry, and his countenance fell.
+But for Cain and for his offering He had [[Genesis-04.fn#Footnote 5.1 — no|no]] regard. And Cain became very angry, and his countenance fell.
 
 ## v6
 
@@ -24,19 +24,19 @@ And Jehovah said to Cain, Why are you angry, and why has your countenance fallen
 
 ## v7
 
-If you do well, will not your countenance be lifted up? And if you do not do well, sin is crouching at the door; and his desire is for you, but you must rule over him.
+If you do well, will not your countenance be lifted up? And if you do not do well, [[Genesis-04.fn#Footnote 7.1 — sin|sin]] is crouching at the door; and his desire is for you, but you must rule over him.
 
 ## v8
 
-And Cain said to Abel his brother, Let us go into the field. And when they were in the field, Cain rose up against Abel his brother and slew him.
+And Cain said to Abel his brother, [[Genesis-04.fn#Footnote 8.1 — Let|Let]] us go into the field. And when they were in the field, Cain rose up against Abel his brother and [[Genesis-04.fn#Footnote 8.2 — slew|slew]] him.
 
 ## v9
 
-Then Jehovah said to Cain, Where is Abel your brother? And he said, I do not know. Am I my brother’s keeper?
+Then Jehovah said to Cain, Where is Abel your brother? And he said, [[Genesis-04.fn#Footnote 9.1 — I|I]] do not know. Am I my brother’s keeper?
 
 ## v10
 
-And He said, What have you done? The voice of your brother’s blood is crying out to Me from the ground.
+And He said, What have you done? The voice of your brother’s [[Genesis-04.fn#Footnote 10.1 — blood|blood]] is crying out to Me from the ground.
 
 ## v11
 
@@ -60,11 +60,11 @@ And Jehovah said to him, Therefore whoever kills Cain, vengeance will be taken o
 
 ## v16
 
-And Cain went forth from the presence of Jehovah and dwelt in the land of Nod, east of Eden.
+And Cain went forth from the presence of Jehovah and dwelt in the land of [[Genesis-04.fn#Footnote 16.1 — Nod|Nod]], east of Eden.
 
 ## v17
 
-And Cain knew his wife, and she conceived and gave birth to Enoch; and he built a city and called the name of the city after the name of his son Enoch.
+And Cain knew his wife, and she conceived and gave birth to [[Genesis-04.fn#Footnote 17.1 — Enoch|Enoch]]; and he built a [[Genesis-04.fn#Footnote 17.2 — city|city]] and called the name of the city after the name of his son Enoch.
 
 ## v18
 
@@ -101,8 +101,8 @@ Then Lamech seventy-sevenfold.
 
 ## v25
 
-And Adam knew his wife again. And she gave birth to a son and called his name Seth, for, she said, God has appointed me another seed instead of Abel, because Cain slew him.
+And Adam knew his wife again. And she gave birth to a son and called his name [[Genesis-04.fn#Footnote 25.1 — Seth|Seth]], for, she said, God has appointed me another seed instead of Abel, because Cain slew him.
 
 ## v26
 
-And to Seth also a son was born, and he called his name Enosh. At that time men began to call upon the name of Jehovah.
+And to Seth also a son was born, and he called his name [[Genesis-04.fn#Footnote 26.1 — Enosh|Enosh]]. At that time men began to [[Genesis-04.fn#Footnote 26.2 — call|call]] upon the name of Jehovah.

@@ -16,7 +16,7 @@ And the Levite, the husband of the woman who had been murdered, answered and sai
 
 ## v5
 
-And the men of Gibeah rose up against me and surrounded the house at night to get me. It was me that they intended to slay, but they humbled my concubine until she died.
+And the [[Judges-20.fn#Footnote 5.1 — men|men]] of Gibeah rose up against me and surrounded the house at night to get me. It was me that they intended to slay, but they humbled my concubine until she died.
 
 ## v6
 
@@ -44,11 +44,11 @@ So all the men of Israel, knit together as one man, were gathered against the ci
 
 ## v12
 
-And the tribes of Israel sent men throughout the tribe of Benjamin, saying, What is this evil thing that has happened among you?
+And the tribes of Israel sent men throughout the [[Judges-20.fn#Footnote 12.1 — tribe|tribe]] of Benjamin, saying, What is this evil thing that has happened among you?
 
 ## v13
 
-Now therefore deliver up the worthless men who are in Gibeah, and we will kill them and put away evil from Israel. But the Benjaminites would not listen to the voice of their brothers, the children of Israel.
+Now therefore deliver up the worthless men who are in Gibeah, and we will kill them and put away evil from Israel. But the [[Judges-20.fn#Footnote 13.1 — Benjaminites|Benjaminites]] would not listen to the voice of their brothers, the children of Israel.
 
 ## v14
 
@@ -132,7 +132,7 @@ Then all the men of Israel rose up from their places and set themselves in array
 
 ## v34
 
-And ten thousand chosen men out of all Israel came against Gibeah. And the battle was fierce, but the children of Benjamin did not know that disaster was very near to them.
+And ten thousand chosen men out of all Israel came against Gibeah. And the battle was fierce, but [[Judges-20.fn#Footnote 34.1 — the|the]] children of Benjamin did not know that disaster was very near to them.
 
 ## v35
 

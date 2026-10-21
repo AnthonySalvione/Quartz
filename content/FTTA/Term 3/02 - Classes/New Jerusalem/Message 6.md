@@ -1,0 +1,23 @@
+---
+speaker:
+hymn:
+  - "[[Hymn-482]]"
+reading:
+  - "[[FTTA/Term 3/06 - Reading Assignments/New Jerusalem/Week 7 Reading|Week 7 Reading]]"
+---
+The last couple of weeks we've been on the matter of the materials of the building. We all know - the three materiasl are Gold, pearls and precious stones, which all represent the three of the divine trintiy, and how the three of the DT work together to build up God's eternal dwelling place, His eternal expression. I would like to start with the lesson of Gamalial... I hope that looking at him then ourselvers, we would realize we are the most blessed people on the planet. We are not today's Gamaliels. We are not in a seminary! We are in the FTT! Anyways, Gamalial was a Godly man who feared God, but he did not kmnow anything about God's economy - yet, no participation in God's economy. When I thought about Gamaliel, I wrote here - similar to Job. Job was the smae... he was upright, full of virtues, and he was content to be what he was... he was happy, he had no idea that he was far away from what God intended man to be - so God had to do something rather drastic to gain his attention. Fortunately, Job was turned at the end away from his self-made righteousness... God never intended man to have a self-made rightouesness. It's a fallen desire that man has to exalt himself by keepnig the law... that he may have a self-made righteousness...
+
+This was never God's intention for man. Adam was the first man... but Adam, I still don't understand why he didnt eat the tree of life today... why he chose the tree of knowledge... when man chooses the tree of knowlege, he makes a choice to exalt himself, by knowing good and evil to choose good and refuse evil. Self-made rightouensess. God wants man to be righteous, but not self-made... he wants man's righteousness to be God produced by eating of the tree of life. The best thing man can do is to have a selfmade righteousness. God rejects that. Even if Adam had remained ap erfect man, and not fallen, he still would not have been pleasing to God. He would have been "good." GOd didnt give anything evil to Adam before he fell, yet God would not accept or approve him... that is rather remarkable isnt it? The best we can do will still be disapproved by God... so we must take the way of GE... the way of GE is the way of divine dispensing! God wants to dispense Himself into man, mingle Himself with man, so that His divine attributes can be expressed in mans virtues. ne of the main attributes is RIGHTEOUSNESS - the way to be right is to be mingled with God, and to have God mingled with us.
+
+Anyways, Job was ignorant of this... and Gamalial was also ignorant of this, but Gamalial was long after Job... Job lived before Moses did... so you can see where mankind was in the time of Job... altogether in the realm of morali8ty and deadness... then the law came... man used the law to form a religion. Gamalial was a product of this relgiion - He was in darkness. Brother Lee said this. Today we don't need to be in darkness... we are here in the Training to get out of darkness and to get into light and walk in the light. Brother Lee uses this again and again - traditional theology, which is not wrong, but short of the knowledge of God's NT economy. Seminaries produce Gamalials.... Godmans produce GODMEN. We do not teach here the traditional theology - but Gods NT ECONOMY - that is what we teach here. So, by coming here, you've come to the place where you can receive a clear and proper konwledge.. you are being taught. Gamalial was in darkness... didnt know that God's desire was to dispense Himself into Gamalial to produce a corporate vessel which expresses God. This corporate vessel is ttoday the church, the Body of CHrist ,and will consummate in the NJ. We are all becoming the NJ, as a result of our knowing and participating in GE.
+
+We don't quite appreciate that we have the divine nature, we have in our very being gold. We are not just godly men, we are gold men. We have the divine nature, the nature of God, the life of God, and we expreeince this divine nature... Every nature has a TASTE FOR SOMETHING. Every nature tends in a certain direction... that is just how it works.
+
+Dispensing life is part of the Lord's redemptive work.
+
+Footnote 1 - SOS
+
+1:13
+
+
+All stones that are worth purchasing have been formed through a process, there aren't any that just come to be from creation.

@@ -1,10 +1,10 @@
 ## v1
 
-And when anyone presents an offering of a meal offering to Jehovah, his offering shall be of fine flour; and he shall pour oil on it and put frankincense on it.
+And when anyone presents an offering of a [[Leviticus-02.fn#Footnote 1.1 — meal|meal]] offering to Jehovah, his offering shall be of [[Leviticus-02.fn#Footnote 1.2 — fine|fine]] flour; and he shall pour [[Leviticus-02.fn#Footnote 1.3 — oil|oil]] on it and put [[Leviticus-02.fn#Footnote 1.4 — frankincense|frankincense]] on it.
 
 ## v2
 
-Then he shall bring it to Aaron’s sons the priests, and he shall take from it his handful of its fine flour and of its oil with all its frankincense. And the priest shall burn it as its memorial portion on the altar, an offering by fire, a satisfying fragrance to Jehovah.
+Then he shall bring it to Aaron’s sons the priests, and he shall take from it his handful of its fine flour and of its oil with all its frankincense. And the priest shall burn it as its [[Leviticus-02.fn#Footnote 2.1 — memorial|memorial]] portion on the altar, an offering by [[Leviticus-02.fn#Footnote 2.2 — fire|fire]], a satisfying fragrance to Jehovah.
 
 ## v3
 
@@ -12,15 +12,15 @@ And what is left of the meal offering shall be Aaron’s and his sons’; it is 
 
 ## v4
 
-And when you present an offering of a meal offering baked in the oven, it shall be of fine flour, unleavened cakes mingled with oil or unleavened wafers anointed with oil.
+And when you present an offering of a meal offering baked in the [[Leviticus-02.fn#Footnote 4.1 — oven|oven]], it shall be of fine flour, unleavened [[Leviticus-02.fn#Footnote 4.2 — cakes|cakes]] [[Leviticus-02.fn#Footnote 4.3 — mingled|mingled]] with oil or unleavened [[Leviticus-02.fn#Footnote 4.4 — wafers|wafers]] anointed with oil.
 
 ## v5
 
-And if your offering is a meal offering baked on a flat plate, it shall be of fine flour mingled with oil, unleavened.
+And if your offering is a meal offering baked on a flat plate, it shall be of [[Leviticus-02.fn#Footnote 5.1 — fine|fine]] flour mingled with oil, unleavened.
 
 ## v6
 
-You shall break it in pieces and pour oil on it; it is a meal offering.
+You shall [[Leviticus-02.fn#Footnote 6.1 — break|break]] it in pieces and pour oil on it; it is a meal offering.
 
 ## v7
 
@@ -40,7 +40,7 @@ And that which is left of the meal offering shall be Aaron’s and his sons’; 
 
 ## v11
 
-No meal offering that you present to Jehovah shall be made with leaven, for you shall not burn any leaven or any honey as an offering by fire to Jehovah.
+No meal offering that you present to Jehovah shall be made with [[Leviticus-02.fn#Footnote 11.1 — leaven|leaven]], for you shall not burn any leaven or any [[Leviticus-02.fn#Footnote 11.2 — honey|honey]] as an offering by fire to Jehovah.
 
 ## v12
 
@@ -48,11 +48,11 @@ You may present them to Jehovah, as an offering of firstfruits, but they shall n
 
 ## v13
 
-And every offering of your meal offering you shall season with salt, and you shall not omit the salt of the covenant of your God from your meal offering; with all your offerings you shall present salt.
+And every offering of your meal offering you shall season with [[Leviticus-02.fn#Footnote 13.1 — salt|salt]], and you shall not omit the salt of the [[Leviticus-02.fn#Footnote 13.2 — covenant|covenant]] of your God from your meal offering; with all your offerings you shall present salt.
 
 ## v14
 
-And if you present a meal offering of firstfruits to Jehovah, you shall present for the meal offering of your firstfruits new grain roasted with fire, crushed grain of the fresh ear.
+And if you present a meal offering of firstfruits to Jehovah, you shall present for the meal offering of your [[Leviticus-02.fn#Footnote 14.1 — firstfruits|firstfruits]] new grain roasted with fire, crushed grain of the fresh ear.
 
 ## v15
 

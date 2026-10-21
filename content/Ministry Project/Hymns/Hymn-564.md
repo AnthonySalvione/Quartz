@@ -1,0 +1,58 @@
+---
+Category:
+  - Experience of Christ
+Subcategory:
+  - Abiding in Him
+Lyricist:
+  - Albert Benjamin Simpson
+Melody:
+  - James H. Burke
+---
+# I have learned the wondrous secret
+## Stanza 1
+I have learned the wondrous secret
+Of abiding in the Lord;
+I have tasted life's pure fountain,
+I am drinking of His word;
+I have found the strength and sweetness
+Of abiding 'neath the blood;
+I have lost myself in Jesus,
+I am sinking into God.
+
+## Chorus
+	I'm abiding in the Lord
+	And confiding in His word;
+	I am hiding in the bosom of His love.
+	Yes, abiding in the Lord
+	And confiding in His word,
+	I am hiding in the bosom of His love.
+
+## Stanza 2
+I am crucified with Jesus,
+And He lives and dwells with me;
+I have ceased from all my struggling,
+'Tis no longer I, but He.
+All my will is yielding to Him,
+And His Spirit reigns within;
+And His precious blood each moment
+Keeps me cleansed and free from sin.
+
+## Stanza 3
+All my sicknesses I bring Him,
+And He bears them all away;
+All my fears and griefs I tell Him,
+All my cares from day to day,
+All my strength I draw from Jesus,
+By His breath I live and move;
+E'en His very mind He gives me,
+And His faith, and life, and love.
+
+## Stanza 4
+For my words I take His wisdom,
+For my works His Spirit's power;
+For my ways His ceaseless presence
+Guards and guides me every hour.
+Of my heart, He is the portion,
+Of my joy the boundless spring;
+Savior, Sanctifier, Healer,
+Glorious Lord, and coming King.

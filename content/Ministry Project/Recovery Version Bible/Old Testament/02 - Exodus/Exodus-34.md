@@ -1,6 +1,6 @@
 ## v1
 
-Then Jehovah said to Moses, Cut two tablets of stone like the first ones, and I will write upon the tablets the words which were on the first tablets, which you shattered.
+Then Jehovah said to Moses, Cut two [[Exodus-34.fn#Footnote 1.1 — tablets|tablets]] of stone like the first ones, and I will write upon the tablets the words which were on the first tablets, which you shattered.
 
 ## v2
 
@@ -12,11 +12,11 @@ And no one shall come up with you, nor let anyone be seen anywhere on the mounta
 
 ## v4
 
-So Moses cut two tablets of stone like the first ones. Then Moses rose up early in the morning and went up to Mount Sinai, just as Jehovah had commanded him; and he took two tablets of stone in his hand.
+So [[Exodus-34.fn#Footnote 4.1 — Moses|Moses]] cut two tablets of stone like the first ones. Then Moses [[Exodus-34.fn#Footnote 4.2 — rose|rose]] up early in the morning and went up to Mount Sinai, just as Jehovah had commanded him; and he took two tablets of stone in his hand.
 
 ## v5
 
-And Jehovah descended in the cloud and took His place there with him and proclaimed the name of Jehovah.
+And Jehovah descended in the cloud and took His place there with him and [[Exodus-34.fn#Footnote 5.1 — proclaimed|proclaimed]] the name of Jehovah.
 
 ## v6
 
@@ -36,7 +36,7 @@ And he said, If now I have found favor in Your sight, O Lord, let the Lord pleas
 
 ## v10
 
-And He said, Now I hereby make a covenant: Before all your people I will perform wonders such as have not been produced in all the earth, nor among any of the nations; and all the people among whom you are shall see the work of Jehovah, for it is an awesome thing that I will do with you.
+And He said, Now I hereby make a covenant: Before all your people I will perform [[Exodus-34.fn#Footnote 10.1 — wonders|wonders]] such as have not been produced in all the earth, nor among any of the nations; and all the people among whom you are shall see the work of Jehovah, for it is an awesome thing that I will do with you.
 
 ## v11
 
@@ -48,11 +48,11 @@ Be careful that you do not make any covenant with the inhabitants of the land ag
 
 ## v13
 
-But their altars you shall tear down, and their pillars you shall shatter, and their Asherahs you shall cut down
+But their altars you shall tear down, and their pillars you shall shatter, and their [[Exodus-34.fn#Footnote 13.1 — Asherahs|Asherahs]] you shall cut down
 
 ## v14
 
-(For you shall not worship any other god; for Jehovah, whose name is Jealous, is a jealous God),
+(For you shall not worship any other [[Exodus-34.fn#Footnote 14.1 — god|god]]; for Jehovah, whose name is Jealous, is a jealous God),
 
 ## v15
 
@@ -68,7 +68,7 @@ You shall not make for yourself any molten gods.
 
 ## v18
 
-You shall keep the Feast of Unleavened Bread. Seven days you shall eat unleavened bread, as I commanded you, at the appointed time in the month of Abib, for in the month of Abib you came out from Egypt.
+You shall [[Exodus-34.fn#Footnote 18.1 — keep|keep]] the Feast of Unleavened Bread. Seven days you shall eat unleavened bread, as I commanded you, at the appointed time in the month of Abib, for in the month of Abib you came out from Egypt.
 
 ## v19
 
@@ -76,11 +76,11 @@ All that opens the womb is Mine, even the first male produced by all your livest
 
 ## v20
 
-And the first offspring of a donkey you shall redeem with a lamb; but if you do not redeem it, then you shall break its neck. All the firstborn of your sons you shall redeem, and they shall not appear before Me empty.
+And the first offspring of a [[Exodus-34.fn#Footnote 20.1 — donkey|donkey]] you shall redeem with a lamb; but if you do not redeem it, then you shall break its neck. All the firstborn of your sons you shall redeem, and they shall not appear before Me empty.
 
 ## v21
 
-Six days you shall work, but on the seventh day you shall cease from labor. Even in plowing time and in harvest time you shall cease from labor.
+Six days you shall work, but on the [[Exodus-34.fn#Footnote 21.1 — seventh|seventh]] day you shall cease from labor. Even in plowing time and in harvest time you shall cease from labor.
 
 ## v22
 
@@ -88,31 +88,31 @@ And you shall keep the Feast of Weeks, that is, of the firstfruits of the wheat 
 
 ## v23
 
-Three times a year all your males shall appear before the Lord Jehovah, the God of Israel.
+[[Exodus-34.fn#Footnote 23.1 — Three|Three]] times a year all your males shall appear before the Lord Jehovah, the God of Israel.
 
 ## v24
 
-For I will drive out nations before you and enlarge your borders, and no one shall covet your land when you go up to appear before Jehovah your God three times in the year.
+[[Exodus-34.fn#Footnote 24.1 — For|For]] I will [[Exodus-34.fn#Footnote 24.2 — drive|drive]] out nations before you and [[Exodus-34.fn#Footnote 24.2 — drive|enlarge]] your borders, and no one shall [[Exodus-34.fn#Footnote 24.2 — drive|covet]] your land when you go up to appear before Jehovah your God three times in the year.
 
 ## v25
 
-You shall not slaughter the blood of My sacrifice with anything leavened, nor shall the sacrifice of the Feast of the Passover remain all night until the morning.
+You shall not slaughter the blood of My sacrifice with anything [[Exodus-34.fn#Footnote 25.1 — leavened|leavened]], nor shall the sacrifice of the Feast of the Passover remain all night until the [[Exodus-34.fn#Footnote 25.2 — morning|morning]].
 
 ## v26
 
-The first of the firstfruits of your ground you shall bring to the house of Jehovah your God. You shall not boil a kid in its mother’s milk.
+The [[Exodus-34.fn#Footnote 26.1 — first|first]] of the firstfruits of your ground you shall bring to the house of Jehovah your God. You shall not [[Exodus-34.fn#Footnote 26.2 — boil|boil]] a kid in its mother’s milk.
 
 ## v27
 
-And Jehovah said to Moses, Write these words, for according to the speaking of these words I have made a covenant with you and with Israel.
+And Jehovah said to Moses, Write these words, for according to the [[Exodus-34.fn#Footnote 27.1 — speaking|speaking]] of these words I have made a covenant with you and with Israel.
 
 ## v28
 
-And he was there with Jehovah forty days and forty nights; he did not eat bread, and he did not drink water. And He wrote upon the tablets the words of the covenant, the Ten Commandments.
+And he was there with Jehovah forty days and forty nights; he did not eat bread, and he did not drink water. And He wrote upon the tablets the words of the covenant, the Ten [[Exodus-34.fn#Footnote 28.1 — Commandments|Commandments]].
 
 ## v29
 
-And when Moses came down from Mount Sinai — and the two tablets of the Testimony were in Moses’ hand when he came down from the mountain — Moses did not know that the skin of his face shone by reason of His speaking with him.
+And when Moses came down from Mount Sinai — and the two tablets of the Testimony were in Moses’ hand when he came down from the mountain — Moses did not know that the skin of his face shone by reason of [[Exodus-34.fn#Footnote 29.1 — His|His]] speaking with him.
 
 ## v30
 
@@ -128,11 +128,11 @@ And afterward all the children of Israel came near, and he gave them in commandm
 
 ## v33
 
-And when Moses had finished speaking with them, he put a veil over his face.
+And when Moses had finished speaking with them, he put a [[Exodus-34.fn#Footnote 33.1 — veil|veil]] over his face.
 
 ## v34
 
-But whenever Moses went in before Jehovah to speak with Him, he would remove the veil until he came out; and when he came out and spoke to the children of Israel what he had been commanded,
+But whenever Moses went in before Jehovah to speak with Him, he would remove the [[Exodus-34.fn#Footnote 34.1 — veil|veil]] until he came out; and when he came out and spoke to the children of Israel what he had been commanded,
 
 ## v35
 

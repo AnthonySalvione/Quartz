@@ -12,7 +12,7 @@ And my eye lingers on their provocation.
 ## v3
 
 Lay down now a pledge for me with Yourself;  
-Who is he who will strike hands with me?
+Who is he who will [[Job-17.fn#Footnote 3.1 — strike|strike]] hands with me?
 
 ## v4
 

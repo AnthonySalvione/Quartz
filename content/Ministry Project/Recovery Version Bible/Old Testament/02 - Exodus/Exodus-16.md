@@ -4,15 +4,15 @@ And they journeyed from Elim, and all the assembly of the children of Israel cam
 
 ## v2
 
-And the whole assembly of the children of Israel murmured against Moses and against Aaron in the wilderness.
+And the whole assembly of the children of Israel [[Exodus-16.fn#Footnote 2.1 — murmured|murmured]] against Moses and against Aaron in the wilderness.
 
 ## v3
 
-And the children of Israel said to them, If only we had died by the hand of Jehovah in the land of Egypt, when we sat by the fleshpots, when we ate bread to the full; for you have brought us out into this wilderness to kill this whole congregation with hunger.
+And the children of Israel said to them, If only we had died by the hand of Jehovah in the land of Egypt, when we sat by the [[Exodus-16.fn#Footnote 3.1 — fleshpots|fleshpots]], when we ate bread to the full; for you have brought us out into this wilderness to kill this whole congregation with hunger.
 
 ## v4
 
-Then Jehovah said to Moses, I will now rain bread from heaven for you; and the people shall go out and gather a day’s portion every day, that I may test them, whether or not they will walk in My law.
+Then Jehovah said to Moses, I will now rain [[Exodus-16.fn#Footnote 4.1 — bread|bread]] from heaven for you; and the people shall go out and gather a day’s portion every day, that I may test them, whether or not they will walk [[Exodus-16.fn#Footnote 4.2 — in|in]] My law.
 
 ## v5
 
@@ -36,7 +36,7 @@ And Moses said to Aaron, Say to all the assembly of the children of Israel, Come
 
 ## v10
 
-And as Aaron spoke to the whole assembly of the children of Israel, they looked toward the wilderness, and there the glory of Jehovah appeared in the cloud.
+And as Aaron spoke to the whole assembly of the children of Israel, they looked toward the wilderness, and there the [[Exodus-16.fn#Footnote 10.1 — glory|glory]] of Jehovah appeared in the cloud.
 
 ## v11
 
@@ -48,7 +48,7 @@ I have heard the murmurings of the children of Israel. Speak to them, saying, At
 
 ## v13
 
-And at evening quails came up and covered the camp, and in the morning there was a layer of dew around the camp.
+And at evening [[Exodus-16.fn#Footnote 13.1 — quails|quails]] came up and covered the camp, and in the morning there was a layer of [[Exodus-16.fn#Footnote 13.2 — dew|dew]] around the camp.
 
 ## v14
 
@@ -56,7 +56,7 @@ And when the layer of dew lifted, there upon the surface of the wilderness were 
 
 ## v15
 
-And when the children of Israel saw it, they said to one another, What is it? For they did not know what it was. And Moses said to them, It is the bread which Jehovah has given you to eat.
+And when the children of Israel saw it, they said to one another, [[Exodus-16.fn#Footnote 15.1 — What|What]] is it? For they did not know what it was. And Moses said to them, It is the bread which Jehovah has given you to eat.
 
 ## v16
 
@@ -72,11 +72,11 @@ And when they measured it with an omer, he who gathered much had no excess, and 
 
 ## v19
 
-And Moses said to them, Let no man leave any of it until the morning.
+And Moses said to them, Let no man [[Exodus-16.fn#Footnote 19.1 — leave|leave]] any of it until the morning.
 
 ## v20
 
-But they did not listen to Moses, and some men left part of it until the morning; and it bred worms and stank. And Moses was indignant with them.
+But they did not listen to Moses, and some men left part of it until the morning; and it bred [[Exodus-16.fn#Footnote 20.1 — worms|worms]] and stank. And Moses was indignant with them.
 
 ## v21
 
@@ -88,7 +88,7 @@ And on the sixth day they gathered twice as much bread, two omers for each one; 
 
 ## v23
 
-And he said to them, This is what Jehovah has spoken, Tomorrow is a Sabbath of complete rest, a holy Sabbath to Jehovah. Bake what you will bake, and boil what you will boil, and all that is left over put aside for yourselves to be kept until the morning.
+And he said to them, This is what Jehovah has spoken, Tomorrow is a [[Exodus-16.fn#Footnote 23.1 — Sabbath|Sabbath]] of complete rest, a holy Sabbath to Jehovah. Bake what you will bake, and boil what you will boil, and all that is left over put aside for yourselves to be kept until the morning.
 
 ## v24
 
@@ -108,7 +108,7 @@ And on the seventh day some of the people went out to gather, and they found non
 
 ## v28
 
-And Jehovah said to Moses, How long do you refuse to keep My commandments and My laws?
+And Jehovah said to Moses, How long do you refuse to keep My commandments and My [[Exodus-16.fn#Footnote 28.1 — laws|laws]]?
 
 ## v29
 
@@ -120,23 +120,23 @@ So the people rested on the seventh day.
 
 ## v31
 
-And the house of Israel called its name manna, and it was like coriander seed, white; and its taste was like wafers made with honey.
+And the house of Israel called its name manna, and it was like [[Exodus-16.fn#Footnote 31.1 — coriander|coriander]] seed, white; and its taste was like wafers made with honey.
 
 ## v32
 
-And Moses said, This is what Jehovah has commanded, Let an omerful of it be kept throughout your generations, that they may see the bread which I fed you in the wilderness, when I brought you out from the land of Egypt.
+And Moses said, This is what Jehovah has commanded, Let an [[Exodus-16.fn#Footnote 32.1 — omerful|omerful]] of it be kept throughout your generations, that they may see the bread which I fed you in the wilderness, when I brought you out from the land of Egypt.
 
 ## v33
 
-And Moses said to Aaron, Take a pot, and put an omerful of manna in it, and place it before Jehovah, to be kept throughout your generations.
+And Moses said to Aaron, Take a [[Exodus-16.fn#Footnote 33.1 — pot|pot]], and put an omerful of manna in it, and place it before Jehovah, to be kept throughout your generations.
 
 ## v34
 
-As Jehovah commanded Moses, so Aaron placed it before the Testimony to be kept.
+As Jehovah commanded Moses, so Aaron placed it before the [[Exodus-16.fn#Footnote 34.1 — Testimony|Testimony]] to be kept.
 
 ## v35
 
-And the children of Israel ate the manna forty years, until they came to inhabitable land; they ate the manna until they came to the border of the land of Canaan.
+And the children of Israel [[Exodus-16.fn#Footnote 35.1 — ate|ate]] the manna forty years, until they came to inhabitable land; they ate the manna until they came to the border of the land of Canaan.
 
 ## v36
 

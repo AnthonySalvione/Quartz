@@ -164,4 +164,4 @@ And when the boy went, David rose up from his hiding place toward the south and 
 
 ## v42
 
-And Jonathan said to David, Go in peace, because both of us have sworn in the name of Jehovah, saying, May Jehovah be between me and you and between my seed and your seed forever. Then David rose up and left, and Jonathan went into the city.
+And Jonathan said to David, Go in peace, because both of us have sworn in the name of Jehovah, saying, May Jehovah be between me and you and between my seed and your seed forever. Then [[1 Samuel-20.fn#Footnote 42.1 — David|David]] rose up and left, and Jonathan went into the city.

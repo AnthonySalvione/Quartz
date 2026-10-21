@@ -3,11 +3,11 @@ Author: Mark
 ---
 ## v1
 
-And when they drew near to Jerusalem, at Bethphage and Bethany, at the Mount of Olives, He sent two of His disciples,
+[[Mark-11.fn#Footnote 1.1 — And|And]] when they drew near to Jerusalem, at Bethphage and Bethany, at the Mount of Olives, He sent two of His disciples,
 
 ## v2
 
-And said to them, Go into the village opposite you, and immediately upon entering into it, you will find a colt tied, on which no man has yet sat; untie it and bring it.
+And said to them, Go into the village opposite you, and immediately upon entering into it, you will [[Mark-11.fn#Footnote 2.1 — find|find]] a colt tied, on which no man has yet sat; untie it and bring it.
 
 ## v3
 
@@ -27,11 +27,11 @@ And they spoke to them even as Jesus had said. And they let them do it.
 
 ## v7
 
-And they brought the colt to Jesus and threw their garments on it, and He sat on it.
+And they brought the [[Mark-11.fn#Footnote 7.1 — colt|colt]] to Jesus and threw their [[Mark-11.fn#Footnote 7.2 — garments|garments]] on it, and He sat on it.
 
 ## v8
 
-And many spread their garments in the road, and others spread layers of branches full of tender leaves, having cut them out of the fields.
+And many spread their garments in the road, and others spread [[Mark-11.fn#Footnote 8.1 — layers|layers]] of [[Mark-11.fn#Footnote 8.2 — branches|branches]] full of [[Mark-11.fn#Footnote 8.3 — tender|tender]] leaves, having cut them out of the fields.
 
 ## v9
 
@@ -47,7 +47,7 @@ And He entered into Jerusalem, into the temple; and when He had looked around at
 
 ## v12
 
-And on the next day, when they had gone out from Bethany, He became hungry.
+[[Mark-11.fn#Footnote 12.1 — And|And]] on the next day, when they had gone out from Bethany, He became hungry.
 
 ## v13
 
@@ -55,11 +55,11 @@ And seeing at a distance a fig tree having leaves, He came to see if perhaps He 
 
 ## v14
 
-And He answered and said to it, May no one eat fruit from you forever! And His disciples heard it.
+And He answered and said to it, May [[Mark-11.fn#Footnote 14.1 — no|no]] one eat fruit from you [[Mark-11.fn#Footnote 14.2 — forever|forever]]! And His disciples heard it.
 
 ## v15
 
-And they came to Jerusalem. And He entered into the temple and began to cast out those who were selling and those who were buying in the temple, and He overturned the tables of the money changers and the seats of those who were selling the doves;
+And they came to Jerusalem. And He entered into the temple and began to [[Mark-11.fn#Footnote 15.1 — cast|cast]] out those who were selling and those who were buying in the temple, and He overturned the tables of the money changers and the seats of those who were selling the doves;
 
 ## v16
 
@@ -67,11 +67,11 @@ And He would not let anyone carry a vessel through the temple.
 
 ## v17
 
-And He taught and said to them, Is it not written, “My house shall be called a house of prayer for all the nations”? But you have made it a den of robbers.
+And He [[Mark-11.fn#Footnote 17.1 — taught|taught]] and said to them, Is it not written, “My house shall be called a house of prayer for all the nations”? But you have made it a den of robbers.
 
 ## v18
 
-And the chief priests and the scribes heard this, and they sought how they might destroy Him, for they feared Him, for all the crowd was astounded at His teaching.
+And the chief priests and the [[Mark-11.fn#Footnote 18.1 — scribes|scribes]] heard this, and they sought how they might destroy Him, for they feared Him, for all the crowd was astounded at His teaching.
 
 ## v19
 
@@ -99,11 +99,11 @@ For this reason I say to you, All things that you pray and ask, believe that you
 
 ## v25
 
-And when you stand praying, forgive, if you have anything against anyone, so that your Father who is in the heavens may also forgive you your offenses.
+And when you stand praying, [[Mark-11.fn#Footnote 25.1 — forgive|forgive]], if you have [[Mark-11.fn#Footnote 25.2 — anything|anything]] against anyone, so that your Father who is in the heavens may also forgive you your offenses.
 
 ## v26
 
-But if you do not forgive, neither will your Father who is in the heavens forgive your offenses.
+[[Mark-11.fn#Footnote 26.1 — But|But]] if you do not forgive, neither will your Father who is in the heavens forgive your offenses.
 
 ## v27
 
@@ -131,4 +131,4 @@ But should we say, From men? — they feared the crowd, for all held that John w
 
 ## v33
 
-And they answered Jesus and said, We do not know. And Jesus said to them, Neither do I tell you by what authority I do these things.
+And they answered Jesus and said, We do [[Mark-11.fn#Footnote 33.1 — not|not]] know. And Jesus said to them, [[Mark-11.fn#Footnote 33.2 — Neither|Neither]] do I tell you by what authority I do these things.

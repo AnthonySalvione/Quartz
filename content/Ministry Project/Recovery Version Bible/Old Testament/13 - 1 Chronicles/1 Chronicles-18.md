@@ -24,7 +24,7 @@ And David put garrisons among the Syrians of Damascus, and the Syrians became se
 
 ## v7
 
-And David took the shields of gold that were on the servants of Hadadezer and brought them to Jerusalem.
+And David took the [[1 Chronicles-18.fn#Footnote 7.1 — shields|shields]] of gold that were on the servants of Hadadezer and brought them to Jerusalem.
 
 ## v8
 

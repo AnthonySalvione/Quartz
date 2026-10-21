@@ -24,7 +24,7 @@ And he brought the Asherah from the house of Jehovah out of Jerusalem to the bro
 
 ## v7
 
-He also broke down the houses of the male cult prostitutes which were in the house of Jehovah, where the women were weaving hangings for the Asherah.
+He also broke down the houses of the male cult prostitutes which were in the house of Jehovah, where the women were weaving [[2 Kings-23.fn#Footnote 7.1 — hangings|hangings]] for the Asherah.
 
 ## v8
 
@@ -36,7 +36,7 @@ However the priests of the high places did not come up to the altar of Jehovah i
 
 ## v10
 
-And he defiled Topheth, which is in the valley of the sons of Hinnom, so that no one could make his son or his daughter pass through fire to Molech.
+And he defiled Topheth, which is in the [[2 Kings-23.fn#Footnote 10.1 — valley|valley]] of the sons of Hinnom, so that no one could make his son or his daughter pass through fire to Molech.
 
 ## v11
 
@@ -56,7 +56,7 @@ And he broke in pieces the pillars and cut down the Asherahs and filled their pl
 
 ## v15
 
-And furthermore the altar which was at Bethel, the high place which Jeroboam the son of Nebat, who caused Israel to sin, had made, even that altar and high place he broke down. And he burned the high place and beat it into dust and burned the Asherah.
+And furthermore the [[2 Kings-23.fn#Footnote 15.1 — altar|altar]] which was at Bethel, the high place which Jeroboam the son of Nebat, who caused Israel to sin, had made, even that altar and high place he broke down. And he burned the high place and beat it into dust and burned the Asherah.
 
 ## v16
 
@@ -100,7 +100,7 @@ And before him there was no king like him who turned to Jehovah with all his hea
 
 ## v26
 
-However Jehovah did not turn from His great burning anger with which His anger burned against Judah, because of all the provocations by which Manasseh provoked Him.
+However [[2 Kings-23.fn#Footnote 26.1 — Jehovah|Jehovah]] did not turn from His great burning anger with which His anger burned against Judah, because of all the provocations by which Manasseh provoked Him.
 
 ## v27
 
@@ -112,7 +112,7 @@ And the rest of the acts of Josiah and all that he did, are they not written in 
 
 ## v29
 
-In his days Pharaoh Neco, the king of Egypt, went up against the king of Assyria to the river Euphrates. And King Josiah went out to meet him; and when Pharaoh Neco saw him at Megiddo, he killed him.
+In his days Pharaoh Neco, the king of Egypt, went up against the king of Assyria to the river Euphrates. And King Josiah went out to meet him; and when [[2 Kings-23.fn#Footnote 29.1 — Pharaoh|Pharaoh]] Neco saw him at Megiddo, he killed him.
 
 ## v30
 

@@ -156,4 +156,4 @@ And at the end of two months she returned to her father, and he did with her acc
 
 ## v40
 
-That each year the daughters of Israel would go to lament the daughter of Jephthah the Gileadite, four days in the year.
+That each year the daughters of Israel would go to [[Judges-11.fn#Footnote 40.1 — lament|lament]] the daughter of Jephthah the Gileadite, four days in the year.

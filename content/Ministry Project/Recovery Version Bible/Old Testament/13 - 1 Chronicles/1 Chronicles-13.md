@@ -16,7 +16,7 @@ And all the congregation said that they would do so, for the matter was right in
 
 ## v5
 
-And David gathered all Israel together from the Shihor of Egypt even to the entrance of Hamath to bring the Ark of God from Kiriath-jearim.
+And David gathered all Israel together from the [[1 Chronicles-13.fn#Footnote 5.1 — Shihor|Shihor]] of Egypt even to the entrance of Hamath to bring the Ark of God from Kiriath-jearim.
 
 ## v6
 

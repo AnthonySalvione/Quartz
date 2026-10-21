@@ -1,0 +1,34 @@
+---
+Category:
+  - Worship of the Father
+Subcategory:
+  - His Praise from Many Sons
+Lyricist:
+  - Robert Allen
+Melody:
+  - Frederick Cook Atkinson
+---
+# Father, Thy Son beloved leads our praise
+## Stanza 1
+Father, Thy Son beloved leads our praise
+After the banquet feast is had and done;
+How dear, how sweet to Thee the praise He leads,
+And in His praises joining we are one.
+
+## Stanza 2
+Father, we need no goodness more than Thee,
+Nor do we seek a love that’s less than Thine;
+How we adore Thee now that here we know
+Thy searchless, uncreated life divine.
+
+## Stanza 3
+Father, within Thy love our love to Thee
+Grows, far transcending all our earthly ties;
+Thine own dear love in power leads our hearts
+Where Thine own presence deeply satisfies.
+
+## Stanza 4
+Father, by joining with Thy Son beloved,
+We all with gladness praise Thee now again;
+Joyfully feasting on Thy holy love,
+Tasting, as sons, the sweetness of Thy name.

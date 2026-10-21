@@ -1,8 +1,8 @@
 ## v1
 
-And when Abram was ninety-nine years old, Jehovah appeared to Abram and said to him,  
-I am the All-sufficient God; /  
-Walk before Me, and be perfect.
+And when Abram was [[Genesis-17.fn#Footnote 1.1 — ninety-nine|ninety-nine]] years old, Jehovah appeared to Abram and said to him,  
+I am the [[Genesis-17.fn#Footnote 1.2 — All-sufficient|All-sufficient]] God; /  
+[[Genesis-17.fn#Footnote 1.3 — Walk|Walk]] before Me, and be [[Genesis-17.fn#Footnote 1.3 — Walk|perfect]].
 
 ## v2
 
@@ -16,12 +16,12 @@ And Abram fell on his face, and God talked with him, saying,
 ## v4
 
 As for Me, this is My covenant with you, /  
-And you shall become the father of a multitude of nations.
+And you shall become the father of a multitude of [[Genesis-17.fn#Footnote 4.1 — nations|nations]].
 
 ## v5
 
-Your name shall no longer be called Abram, /  
-But your name shall be Abraham; /  
+Your name shall no longer be called [[Genesis-17.fn#Footnote 5.1 — Abram|Abram]], /  
+But your name shall be [[Genesis-17.fn#Footnote 5.2 — Abraham|Abraham]]; /  
 For I have made you the father of a multitude of nations.
 
 ## v6
@@ -42,15 +42,15 @@ And God said to Abraham, And as for you, you shall keep My covenant, you and you
 
 ## v10
 
-This is My covenant, which you shall keep, between Me and you and your seed after you: Every male among you shall be circumcised.
+This is My covenant, which you shall keep, between Me and you and your seed after you: Every male among you shall be [[Genesis-17.fn#Footnote 10.1 — circumcised|circumcised]].
 
 ## v11
 
-And you shall be circumcised in the flesh of your foreskin, and it shall be a sign of a covenant between Me and you.
+And you shall be circumcised in the flesh of your foreskin, and it shall be a [[Genesis-17.fn#Footnote 11.1 — sign|sign]] of a covenant between Me and you.
 
 ## v12
 
-And he who is eight days old shall be circumcised among you, every male throughout your generations, he who is born in the house or bought with money from any foreigner who is not of your seed.
+And he who is [[Genesis-17.fn#Footnote 12.1 — eight|eight]] days old shall be circumcised among you, every male throughout your generations, he who is born in the house or bought with money from any foreigner who is not of your seed.
 
 ## v13
 
@@ -58,15 +58,15 @@ He who is born in your house and he who is bought with your money must be circum
 
 ## v14
 
-But as for the uncircumcised male who is not circumcised in the flesh of his foreskin, that person shall be cut off from his people; he has broken My covenant.
+But as for the uncircumcised male who is not circumcised in the flesh of his foreskin, that person shall be [[Genesis-17.fn#Footnote 14.1 — cut|cut]] off from his people; he has broken My covenant.
 
 ## v15
 
-And God said to Abraham, As for Sarai your wife, you shall not call her name Sarai, but her name shall be Sarah.
+And God said to Abraham, As for Sarai your wife, you shall not call her name [[Genesis-17.fn#Footnote 15.1 — Sarai|Sarai]], but her name shall be [[Genesis-17.fn#Footnote 15.2 — Sarah|Sarah]].
 
 ## v16
 
-And I will bless her, and I will also give you a son by her. Indeed, I will bless her, and she will be a mother of nations; kings of peoples will come forth from her.
+And I will bless her, and I will also give you a son [[Genesis-17.fn#Footnote 16.1 — by|by]] her. Indeed, I will bless her, and she will be a mother of nations; kings of peoples will come forth from her.
 
 ## v17
 
@@ -78,7 +78,7 @@ And Abraham said to God, Oh that Ishmael might live before You!
 
 ## v19
 
-But God said, No, but Sarah your wife will bear you a son, and you shall call his name Isaac; and I will establish My covenant with him for an everlasting covenant for his seed after him.
+But God said, No, but Sarah your wife will bear you a son, and you shall call his name [[Genesis-17.fn#Footnote 19.1 — Isaac|Isaac]]; and I will [[Genesis-17.fn#Footnote 19.2 — establish|establish]] My covenant with him for an everlasting covenant for his seed after him.
 
 ## v20
 
@@ -86,7 +86,7 @@ And as for Ishmael, I have heard you; indeed, I have blessed him and will make h
 
 ## v21
 
-But My covenant I will establish with Isaac, whom Sarah will bear to you at this appointed time next year.
+But My covenant I will establish with Isaac, whom Sarah will bear to you at this [[Genesis-17.fn#Footnote 21.1 — appointed|appointed]] time next year.
 
 ## v22
 

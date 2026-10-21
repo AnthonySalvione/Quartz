@@ -1,6 +1,6 @@
 ## v1
 
-Now on the twenty-fourth day of this month the children of Israel were assembled with fasting and in sackcloth, with earth on their heads.
+Now on the twenty-fourth day of this month the children of Israel were assembled with fasting and in sackcloth, with earth [[Nehemiah-09.fn#Footnote 1.1 — on|on]] their heads.
 
 ## v2
 

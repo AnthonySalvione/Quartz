@@ -96,7 +96,7 @@ And all the men of Israel, when they saw the man, fled from before him; and they
 
 ## v25
 
-And the men of Israel said, Have you seen this man who has come up? Surely he comes up to defy Israel. But as for the man who strikes him down, the king will make him rich with great riches; and he will give him his daughter and make the house of his father free in Israel.
+And the men of Israel said, Have you seen this man who has come up? Surely he comes up to defy Israel. But as for the man who strikes him down, the king will make him rich with great riches; and he will give him his daughter and make the house of his father [[1 Samuel-17.fn#Footnote 25.1 — free|free]] in Israel.
 
 ## v26
 
@@ -200,7 +200,7 @@ Thus David prevailed over the Philistine with a sling and a stone, and struck th
 
 ## v51
 
-Then David ran and stood beside the Philistine, and he took the Philistine’s sword and drew it out of its sheath and made certain he was dead by striking off his head with it. And when the Philistines saw that their mighty man was dead, they fled.
+Then David ran and stood beside the Philistine, and he took [[1 Samuel-17.fn#Footnote 51.1 — the|the]] Philistine’s sword and drew it out of its sheath and made certain he was dead by striking off his head with it. And when the Philistines saw that their mighty man was dead, they fled.
 
 ## v52
 

@@ -1,6 +1,6 @@
 ## v1
 
-Then Joshua the son of Nun secretly sent out from Shittim two men as spies, saying, Go, view the land, especially Jericho. And they went and entered the house of a woman who was a harlot, whose name was Rahab; and they lay down there.
+Then Joshua the son of Nun secretly sent out from Shittim two men as spies, saying, Go, view the land, especially Jericho. And they went and entered the house of a woman who was a harlot, whose name was [[Joshua-02.fn#Footnote 1.1 — Rahab|Rahab]]; and they lay down there.
 
 ## v2
 
@@ -28,7 +28,7 @@ So the men pursued after them on the way toward the Jordan as far as the fords. 
 
 ## v8
 
-And before the spies lay down, she went up to them on the roof;
+And before [[Joshua-02.fn#Footnote 8.1 — the|the]] spies lay down, she went up to them on the roof;
 
 ## v9
 
@@ -36,11 +36,11 @@ And she said to the men, I know that Jehovah has given you the land, and that th
 
 ## v10
 
-For we have heard how Jehovah dried up the water of the Red Sea before you when you came out of Egypt, and what you did to the two kings of the Amorites who were beyond the Jordan, to Sihon and to Og, whom you utterly destroyed.
+For we have heard how Jehovah dried up the water of the Red Sea before you when you came out of Egypt, and what you did to the two kings of the Amorites who were beyond the Jordan, to Sihon and to Og, whom you [[Joshua-02.fn#Footnote 10.1 — utterly|utterly]] destroyed.
 
 ## v11
 
-When we heard, our hearts melted; and there no longer remained any spirit in any man because of you; for Jehovah your God, He is God in heaven above and upon earth beneath.
+When we heard, our hearts melted; and there no longer remained any spirit in any man because of you; for Jehovah your God, [[Joshua-02.fn#Footnote 11.1 — He|He]] is God in heaven above and upon earth beneath.
 
 ## v12
 
@@ -52,7 +52,7 @@ That you will preserve my father and my mother and my brothers and my sisters an
 
 ## v14
 
-And the men said to her, Our life for yours! If you do not utter anything of this matter concerning us, then when Jehovah gives the land to us, we will deal kindly and faithfully with you.
+And the men said to her, Our life [[Joshua-02.fn#Footnote 14.1 — for|for]] yours! If you do not utter anything of this matter concerning us, then when Jehovah gives the land to us, we will deal kindly and faithfully with you.
 
 ## v15
 
@@ -68,7 +68,7 @@ And the men said to her, We will be released from this oath to you that you made
 
 ## v18
 
-Unless, when we enter the land, you tie this line of scarlet thread in the window through which you let us down, and gather your father and your mother and your brothers and all your father’s house to you in your house.
+Unless, when we enter the land, you tie this line of [[Joshua-02.fn#Footnote 18.1 — scarlet|scarlet]] thread in the window through which you let us down, and gather your father and your mother and your brothers and all your father’s house to you in your house.
 
 ## v19
 
@@ -92,4 +92,4 @@ Then the two men returned and came down from the mountain, and they crossed over
 
 ## v24
 
-And they said to Joshua, Jehovah has indeed given all the land into our hand; moreover, all the inhabitants of the land melt before us.
+And they said to Joshua, [[Joshua-02.fn#Footnote 24.1 — Jehovah|Jehovah]] has indeed given all the land into our hand; moreover, all the inhabitants of the land melt before us.

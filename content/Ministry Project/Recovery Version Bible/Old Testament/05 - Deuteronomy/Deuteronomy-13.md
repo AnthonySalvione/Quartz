@@ -4,7 +4,7 @@ If a prophet or a dreamer of dreams stands up in your midst and gives you a sign
 
 ## v2
 
-And the sign or the wonder occurs, about which he spoke to you, saying, Let us go after other gods whom you have not known, and let us serve them;
+And the sign or the wonder occurs, about which he spoke to you, saying, [[Deuteronomy-13.fn#Footnote 2.1 — Let|Let]] us go after other gods whom you have not known, and let us serve them;
 
 ## v3
 
@@ -16,7 +16,7 @@ You shall follow Jehovah your God; and you shall fear Him, keep His commandments
 
 ## v5
 
-But that prophet or that dreamer of dreams shall be put to death, because he has advocated apostasy from Jehovah your God, who brought you out of the land of Egypt and ransomed you from the slave house, in order to force you out of the way in which Jehovah your God has commanded you to walk. Thus you shall utterly remove the evil from your midst.
+But that prophet or that dreamer of dreams shall be put to death, because he has advocated apostasy from Jehovah your God, who brought you out of the land of Egypt and ransomed you from the slave house, in order to force you out of the way in which Jehovah your God has commanded you to walk. Thus you shall [[Deuteronomy-13.fn#Footnote 5.1 — utterly|utterly]] remove the evil from your midst.
 
 ## v6
 

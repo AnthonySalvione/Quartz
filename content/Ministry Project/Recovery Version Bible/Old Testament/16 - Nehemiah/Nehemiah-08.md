@@ -1,10 +1,10 @@
 ## v1
 
-And all the people gathered as one man in the open area that was before the Water Gate. And they told Ezra the scribe to bring the book of the law of Moses, which Jehovah had commanded to Israel.
+And all the people gathered as one man in the open area that was before the Water Gate. And they told Ezra the scribe to bring the book of the [[Nehemiah-08.fn#Footnote 1.1 — law|law]] of Moses, which Jehovah had commanded to Israel.
 
 ## v2
 
-And Ezra the priest brought the law before the assembly, both men and women, and all who could hear with understanding, on the first day of the seventh month.
+And [[Nehemiah-08.fn#Footnote 2.1 — Ezra|Ezra]] the priest brought the law before the assembly, both men and women, and all who could hear with understanding, on the first day of the seventh month.
 
 ## v3
 
@@ -20,7 +20,7 @@ And Ezra opened the book in the sight of all the people (for he was above all th
 
 ## v6
 
-And Ezra blessed Jehovah the great God; and all the people answered, Amen, Amen, lifting up their hands. And they bowed their heads and worshipped Jehovah with their faces to the ground.
+And Ezra blessed Jehovah the great God; and all the people answered, [[Nehemiah-08.fn#Footnote 6.1 — Amen|Amen]], Amen, lifting up their hands. And they bowed their heads and worshipped Jehovah with their faces to the ground.
 
 ## v7
 
@@ -48,11 +48,11 @@ And all the people went their way to eat and to drink and to send portions and t
 
 ## v13
 
-And on the second day the heads of fathers’ houses of all the people, the priests, and the Levites were gathered to Ezra the scribe, that is, in order to gain insight into the words of the law.
+And on the second day the heads of fathers’ houses of all the people, the priests, and the Levites were gathered to Ezra the scribe, that is, in order to gain [[Nehemiah-08.fn#Footnote 13.1 — insight|insight]] into the words of the law.
 
 ## v14
 
-And they found it written in the law that Jehovah had commanded through Moses that the children of Israel dwell in booths during the feast in the seventh month,
+And they found it written in the law that Jehovah had commanded through Moses that the children of Israel dwell in [[Nehemiah-08.fn#Footnote 14.1 — booths|booths]] during the feast in the seventh month,
 
 ## v15
 
@@ -68,4 +68,4 @@ And all the assembly of those who returned from the captivity made booths and dw
 
 ## v18
 
-And day by day, from the first day to the last day, he read in the book of the law of God. And they held the feast seven days, and on the eighth day there was a solemn assembly, according to the ordinance.
+And day by day, from the first day to the last day, he read in the book of the law of God. And they held the feast seven days, and on the eighth day there was a solemn assembly, according to the [[Nehemiah-08.fn#Footnote 18.1 — ordinance|ordinance]].

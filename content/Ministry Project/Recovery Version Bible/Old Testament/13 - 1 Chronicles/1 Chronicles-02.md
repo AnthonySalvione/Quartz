@@ -1,6 +1,6 @@
 ## v1
 
-These are the sons of Israel: Reuben, Simeon, Levi and Judah, Issachar and Zebulun,
+These are the [[1 Chronicles-02.fn#Footnote 1.1 — sons|sons]] of Israel: Reuben, Simeon, Levi and Judah, Issachar and Zebulun,
 
 ## v2
 
@@ -8,11 +8,11 @@ Dan, Joseph and Benjamin, Naphtali, Gad and Asher.
 
 ## v3
 
-The sons of Judah: Er and Onan and Shelah, which three were born to him by Bath-shua the Canaanitess. And Er, Judah’s firstborn, was wicked in the sight of Jehovah; and He slew him.
+The sons of [[1 Chronicles-02.fn#Footnote 3.1 — Judah|Judah]]: Er and Onan and Shelah, which three were born to him by [[1 Chronicles-02.fn#Footnote 3.2 — Bath-shua|Bath-shua]] the Canaanitess. And Er, Judah’s firstborn, was wicked in the sight of Jehovah; and He slew him.
 
 ## v4
 
-And Tamar his daughter-in-law bore him Perez and Zerah. The sons of Judah were five in all.
+And [[1 Chronicles-02.fn#Footnote 4.1 — Tamar|Tamar]] his daughter-in-law bore him [[1 Chronicles-02.fn#Footnote 4.1 — Tamar|Perez]] and Zerah. The sons of Judah were five in all.
 
 ## v5
 
@@ -24,7 +24,7 @@ And the sons of Zerah: Zimri and Ethan and Heman and Calcol and Dara; five of th
 
 ## v7
 
-And the son of Carmi: Achar, the troubler of Israel, who acted unfaithfully in that which was devoted to destruction.
+And the [[1 Chronicles-02.fn#Footnote 7.1 — son|son]] of Carmi: Achar, the troubler of Israel, who acted unfaithfully in that which was devoted to destruction.
 
 ## v8
 
@@ -40,7 +40,7 @@ And Ram begot Amminadab, and Amminadab begot Nahshon, the prince of the children
 
 ## v11
 
-And Nahshon begot Salma, and Salma begot Boaz,
+And Nahshon begot Salma, and Salma begot [[1 Chronicles-02.fn#Footnote 11.1 — Boaz|Boaz]],
 
 ## v12
 
@@ -120,7 +120,7 @@ And the sons of Nadab: Seled and Appaim; and Seled died without sons.
 
 ## v31
 
-And the son of Appaim: Ishi; and the son of Ishi: Sheshan; and the son of Sheshan: Ahlai.
+And the [[1 Chronicles-02.fn#Footnote 31.1 — son|son]] of Appaim: Ishi; and the [[1 Chronicles-02.fn#Footnote 31.1 — son|son]] of Ishi: Sheshan; and the [[1 Chronicles-02.fn#Footnote 31.1 — son|son]] of Sheshan: Ahlai.
 
 ## v32
 
@@ -196,7 +196,7 @@ And she bore Shaaph the father of Madmannah, Sheva the father of Machbena and th
 
 ## v50
 
-These are the sons of Caleb. The sons of Hur, the firstborn of Ephrathah: Shobal the father of Kiriath-jearim,
+These are the [[1 Chronicles-02.fn#Footnote 50.1 — sons|sons]] of Caleb. The sons of Hur, the firstborn of Ephrathah: Shobal the father of Kiriath-jearim,
 
 ## v51
 

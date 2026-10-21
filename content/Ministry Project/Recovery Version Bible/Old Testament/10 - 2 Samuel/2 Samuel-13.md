@@ -44,7 +44,7 @@ And when she brought them near to him to eat, he took hold of her and said to he
 
 ## v12
 
-And she said to him, No, my brother. Do not force me, for such a thing should not be done in Israel. Do not commit this folly.
+And she said to him, No, my brother. Do not [[2 Samuel-13.fn#Footnote 12.1 — force|force]] me, for such a thing should not be done in Israel. Do not commit this folly.
 
 ## v13
 
@@ -124,7 +124,7 @@ And the king rose up and rent his garments and lay on the ground, and all his se
 
 ## v32
 
-Then Jonadab the son of Shimeah, David’s brother, answered and said, Let not my lord think that all the young men, the sons of the king, have been killed, for Amnon alone is dead. For this has been determined by Absalom since the day Amnon forced Tamar his sister.
+Then Jonadab the son of Shimeah, David’s brother, answered and said, Let not my lord think that all the young men, the sons of the king, have been killed, for Amnon alone is dead. For this has been determined by Absalom since the day [[2 Samuel-13.fn#Footnote 32.1 — Amnon|Amnon]] forced Tamar his sister.
 
 ## v33
 

@@ -4,11 +4,11 @@ Then Jerubbaal (that is, Gideon) and all the people who were with him rose early
 
 ## v2
 
-And Jehovah said to Gideon, The people with you are too many for Me to deliver Midian into their hand; Israel might vaunt himself against Me, saying, My own hand has saved me.
+And Jehovah said to Gideon, The people with you are [[Judges-07.fn#Footnote 2.1 — too|too]] many for Me to deliver Midian into their hand; Israel might vaunt himself against Me, saying, My own hand has saved me.
 
 ## v3
 
-Now then proclaim in the hearing of the people, saying, Whoever is afraid and trembling should return and depart from here. And twenty-two thousand of the people returned, and ten thousand remained.
+Now then proclaim in the hearing of the people, saying, Whoever is afraid and trembling should return and depart from [[Judges-07.fn#Footnote 3.1 — here|here]]. And twenty-two thousand of the people returned, and ten thousand remained.
 
 ## v4
 
@@ -16,7 +16,7 @@ Then Jehovah said to Gideon, The people are still too many. Bring them down to t
 
 ## v5
 
-So he brought the people down to the water. And Jehovah said to Gideon, Everyone who laps from the water with his tongue, as a dog laps, you shall set apart; likewise everyone who bows down on his knees to drink.
+So he brought the people down to the water. And Jehovah said to Gideon, Everyone who [[Judges-07.fn#Footnote 5.1 — laps|laps]] from the water with his tongue, as a dog laps, you shall set apart; likewise everyone who bows down on his knees to drink.
 
 ## v6
 

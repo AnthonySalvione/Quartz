@@ -1,6 +1,6 @@
 ## v1
 
-After this Job opened his mouth and cursed the day of his birth.
+After this Job opened his mouth and [[Job-03.fn#Footnote 1.1 — cursed|cursed]] the day of his birth.
 
 ## v2
 
@@ -52,7 +52,7 @@ Nor did it hide trouble from my eyes.
 
 ## v11
 
-Why did I not die at birth,  
+Why did I not [[Job-03.fn#Footnote 11.1 — die|die]] at birth,  
 Come forth from the womb and expire?
 
 ## v12

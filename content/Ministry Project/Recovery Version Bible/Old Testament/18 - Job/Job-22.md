@@ -80,12 +80,12 @@ Whose foundation was poured forth like a stream;
 ## v17
 
 Who said to God, Depart from us;  
-And, What can the Almighty accomplish for us?
+And, What can the Almighty accomplish for [[Job-22.fn#Footnote 17.1 — us|us]]?
 
 ## v18
 
 Yet He fills their houses with good things.  
-But the counsel of the wicked is far from Him.
+But the counsel of the wicked is far from [[Job-22.fn#Footnote 18.1 — Him|Him]].
 
 ## v19
 
@@ -99,7 +99,7 @@ And the remnant of them the fire has devoured.
 
 ## v21
 
-Be well disposed to Him and at peace with Him;  
+[[Job-22.fn#Footnote 21.1 — Be|Be]] well disposed to Him and at peace with Him;  
 By such, good will come upon you.
 
 ## v22
@@ -145,4 +145,4 @@ And the lowly person He will save.
 ## v30
 
 He will deliver him who is not innocent;  
-Yes, you will be delivered through the cleanness of your hands.
+Yes, [[Job-22.fn#Footnote 30.1 — you|you]] will be delivered through the cleanness of your hands.

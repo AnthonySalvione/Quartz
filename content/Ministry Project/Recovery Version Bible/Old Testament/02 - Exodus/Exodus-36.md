@@ -4,7 +4,7 @@ And Bezalel and Oholiab and every man who is wise in heart, in whom Jehovah has 
 
 ## v2
 
-And Moses called Bezalel and Oholiab and every man who was wise in heart, in whose heart Jehovah had put wisdom, even everyone whose heart lifted him up to come to the work to do it.
+And Moses called Bezalel and Oholiab and every man who was wise in heart, in whose heart Jehovah had put wisdom, even everyone whose heart [[Exodus-36.fn#Footnote 2.1 — lifted|lifted]] him up to come to the work to do it.
 
 ## v3
 
@@ -28,7 +28,7 @@ For the material they had was sufficient and more than enough for all the work, 
 
 ## v8
 
-And all the wise in heart among those who did the work made the tabernacle with ten curtains, of fine twined linen and blue and purple and scarlet strands, with cherubim, the work of a skillful workman. Bezalel made them.
+And all the wise in heart among those who did the work [[Exodus-36.fn#Footnote 8.1 — made|made]] the tabernacle with ten [[Exodus-36.fn#Footnote 8.2 — curtains|curtains]], of fine twined linen and blue and purple and scarlet strands, with cherubim, the work of a skillful workman. [[Exodus-36.fn#Footnote 8.3 — Bezalel|Bezalel]] made them.
 
 ## v9
 
@@ -76,7 +76,7 @@ And he made a covering for the tent, of rams’ skins dyed red, and a covering o
 
 ## v20
 
-And he made the boards for the tabernacle of acacia wood, standing up.
+And he made the [[Exodus-36.fn#Footnote 20.1 — boards|boards]] for the tabernacle of acacia wood, standing up.
 
 ## v21
 
@@ -136,7 +136,7 @@ And he overlaid the boards with gold and made their rings of gold as holders for
 
 ## v35
 
-And he made the veil of blue and purple and scarlet strands and fine twined linen; he made it with cherubim, the work of a skillful workman.
+And he made the [[Exodus-36.fn#Footnote 35.1 — veil|veil]] of blue and purple and scarlet strands and fine twined linen; he made it with cherubim, the work of a skillful workman.
 
 ## v36
 
@@ -144,7 +144,7 @@ And he made for it four pillars of acacia and overlaid them with gold; their hoo
 
 ## v37
 
-And he made a screen for the entrance of the tent, of blue and purple and scarlet strands and fine twined linen, the work of an embroiderer,
+And he made a [[Exodus-36.fn#Footnote 37.1 — screen|screen]] for the entrance of the tent, of blue and purple and scarlet strands and fine twined linen, the work of an embroiderer,
 
 ## v38
 

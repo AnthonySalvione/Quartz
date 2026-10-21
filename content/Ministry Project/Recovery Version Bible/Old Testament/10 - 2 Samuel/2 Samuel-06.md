@@ -4,7 +4,7 @@ And David again gathered all the chosen men of Israel, thirty thousand.
 
 ## v2
 
-And David rose up and went with all the people who were with him from Baale-judah to bring up from there the Ark of God, which is called by the Name, the name of Jehovah of hosts, who is enthroned between the cherubim.
+And David rose up and went with all the people who were with him from Baale-judah to bring up from there the [[2 Samuel-06.fn#Footnote 2.1 — Ark|Ark]] of God, which is called by the Name, the name of Jehovah of hosts, who is enthroned between the cherubim.
 
 ## v3
 
@@ -24,11 +24,11 @@ And when they came to Nachon’s threshing floor, Uzzah reached out for the Ark 
 
 ## v7
 
-And the anger of Jehovah was kindled against Uzzah, and God struck him there for his error; and he died there by the Ark of God.
+And the anger of Jehovah was kindled against Uzzah, and God struck him there for his [[2 Samuel-06.fn#Footnote 7.1 — error|error]]; and he [[2 Samuel-06.fn#Footnote 7.2 — died|died]] there by the Ark of God.
 
 ## v8
 
-And David was angry because Jehovah had broken forth with an outburst upon Uzzah; and that place has been called Perez-uzzah to this day.
+And David was angry because Jehovah had broken forth with an outburst upon Uzzah; and that place has been called [[2 Samuel-06.fn#Footnote 8.1 — Perez-uzzah|Perez-uzzah]] to this day.
 
 ## v9
 
@@ -36,7 +36,7 @@ And David was afraid of Jehovah that day; and he said, How shall the Ark of Jeho
 
 ## v10
 
-So David did not want to remove the Ark of Jehovah to himself in the city of David. But David carried it aside to the house of Obed-edom the Gittite.
+So David did not want to remove the Ark of Jehovah to himself in the [[2 Samuel-06.fn#Footnote 10.1 — city|city]] of David. But David carried it aside to the house of Obed-edom the Gittite.
 
 ## v11
 
@@ -52,7 +52,7 @@ And when those who bore the Ark of Jehovah had gone six paces, he sacrificed an 
 
 ## v14
 
-And David danced with all his might before Jehovah; and David was girded with a linen ephod.
+And David danced with all his might before Jehovah; and David was girded with a linen [[2 Samuel-06.fn#Footnote 14.1 — ephod|ephod]].
 
 ## v15
 
@@ -72,7 +72,7 @@ And when David finished offering up the burnt offerings and the peace offerings,
 
 ## v19
 
-And he apportioned to all the people, to the whole multitude of Israel, to both men and women, to each one, a cake of bread and a portion of meat and a cake of raisins. And all the people went away, each to his own house.
+And he apportioned to all the people, to the whole multitude of Israel, to both men and women, to each one, a cake of bread and a [[2 Samuel-06.fn#Footnote 19.1 — portion|portion]] of meat and a cake of raisins. And all the people went away, each to his own house.
 
 ## v20
 

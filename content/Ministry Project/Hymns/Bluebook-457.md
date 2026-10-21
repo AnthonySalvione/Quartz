@@ -1,3 +1,14 @@
+---
+Category:
+  - Experience of Christ
+Subcategory:
+  - As Life
+Lyricist:
+  - Witness Lee
+  - Anonymous
+Melody:
+  - Thomas Campbell
+---
 ## Stanza 1
 What miracle! What mystery!
 That God and man should blended be!

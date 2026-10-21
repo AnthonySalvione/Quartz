@@ -3,7 +3,7 @@ Author: John
 ---
 ## v1
 
-And the fifth angel trumpeted, and I saw a star out of heaven fallen to the earth, and to him was given the key of the pit of the abyss.
+And the fifth angel trumpeted, and I saw a [[Revelation-09.fn#Footnote 1.1 — star|star]] out of heaven fallen to the earth, and to him was given the key of the pit of the [[Revelation-09.fn#Footnote 1.2 — abyss|abyss]].
 
 ## v2
 
@@ -11,11 +11,11 @@ And he opened the pit of the abyss, and smoke went up out of the pit like the sm
 
 ## v3
 
-And out of the smoke came forth locusts to the earth, and to them power was given, as the scorpions of the earth have power.
+And out of the smoke came forth [[Revelation-09.fn#Footnote 3.1 — locusts|locusts]] to the earth, and to them [[Revelation-09.fn#Footnote 3.2 — power|power]] was given, as the scorpions of the earth have [[Revelation-09.fn#Footnote 3.2 — power|power]].
 
 ## v4
 
-And it was said to them that they should not harm the grass of the earth or any green thing or any tree, but men who do not have the seal of God on their foreheads.
+And it was said to them that they should not harm the grass of the earth or any green thing or any tree, but [[Revelation-09.fn#Footnote 4.1 — men|men]] who do not have the seal of God on their foreheads.
 
 ## v5
 
@@ -27,7 +27,7 @@ And in those days men will seek death and shall by no means find it; and they wi
 
 ## v7
 
-And the locusts were like horses prepared for war, and on their heads there were as it were crowns like gold, and their faces were like faces of men.
+And [[Revelation-09.fn#Footnote 7.1 — the|the]] [[Revelation-09.fn#Footnote 7.2 — locusts|locusts]] were like horses prepared for war, and on their heads there were as it were crowns like gold, and their faces were like faces of men.
 
 ## v8
 
@@ -43,15 +43,15 @@ And they have tails like scorpions, and stings; and in their tails is their powe
 
 ## v11
 
-They have a king over them, the angel of the abyss; his name in Hebrew is Abaddon; and in Greek he has the name Apollyon.
+They have a king over them, the [[Revelation-09.fn#Footnote 11.1 — angel|angel]] of the abyss; his name in Hebrew is [[Revelation-09.fn#Footnote 11.2 — Abaddon|Abaddon]]; and in Greek he has the name [[Revelation-09.fn#Footnote 11.3 — Apollyon|Apollyon]].
 
 ## v12
 
-The first woe has passed; behold, two woes are yet coming after these things.
+The [[Revelation-09.fn#Footnote 12.1 — first|first]] woe has passed; behold, [[Revelation-09.fn#Footnote 12.2 — two|two]] woes are yet coming after these things.
 
 ## v13
 
-And the sixth angel trumpeted, and I heard a voice out of the four horns of the golden altar which is before God
+And the sixth angel trumpeted, and I heard a voice out of the four horns of the [[Revelation-09.fn#Footnote 13.1 — golden|golden]] altar which is before God
 
 ## v14
 
@@ -59,11 +59,11 @@ Saying to the sixth angel who had the trumpet, Release the four angels who are b
 
 ## v15
 
-And the four angels were released, who had been prepared for the hour and day and month and year that they might kill the third part of men.
+And the four angels were released, who had been prepared [[Revelation-09.fn#Footnote 15.1 — for|for]] the hour and day and month and year that they might kill the third part of men.
 
 ## v16
 
-And the number of the armies of horsemen was two hundred million; I heard their number.
+And the number of the armies of [[Revelation-09.fn#Footnote 16.1 — horsemen|horsemen]] was two hundred million; I heard their number.
 
 ## v17
 
@@ -75,11 +75,11 @@ By these three plagues the third part of the men were killed, by the fire and th
 
 ## v19
 
-For the power of the horses is in their mouth and in their tails; for their tails are like serpents and have heads, and with them they harm men.
+For the power of the horses is in their mouth and in their tails; for their tails are like [[Revelation-09.fn#Footnote 19.1 — serpents|serpents]] and have heads, and with them they harm men.
 
 ## v20
 
-And the rest of the men, who were not killed by these plagues, still did not repent of the works of their hands, so as not to worship the demons and the idols of gold and silver and brass and stone and wood, which can neither see nor hear nor walk;
+And the rest of the men, who were not killed by these plagues, still did not [[Revelation-09.fn#Footnote 20.1 — repent|repent]] of the works of their hands, so as not to worship the demons and the idols of gold and silver and brass and stone and wood, which can [[Revelation-09.fn#Footnote 20.2 — neither|neither]] see nor hear nor walk;
 
 ## v21
 

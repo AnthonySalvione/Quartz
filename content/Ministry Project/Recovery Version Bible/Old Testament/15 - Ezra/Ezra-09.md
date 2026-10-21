@@ -4,7 +4,7 @@ Now when these things had been completed, the officials approached me, saying, T
 
 ## v2
 
-For they have taken some of their daughters for themselves and for their sons, so that the holy seed have mingled themselves with the peoples of the lands; indeed, the hand of the leaders and rulers has been foremost in this unfaithfulness.
+For they have taken some of their [[Ezra-09.fn#Footnote 2.1 — daughters|daughters]] for themselves and for their sons, so that the holy seed have mingled themselves with the peoples of the lands; indeed, the hand of the leaders and rulers has been foremost in this unfaithfulness.
 
 ## v3
 

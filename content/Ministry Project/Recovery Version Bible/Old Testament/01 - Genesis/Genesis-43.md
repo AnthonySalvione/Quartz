@@ -52,7 +52,7 @@ Take your brother also, and rise up; return to the man.
 
 ## v14
 
-And may the All-sufficient God grant you mercy before the man, that he may release to you your other brother and Benjamin. And as for me, if I am to be bereaved of my children, I shall be bereaved.
+And may the [[Genesis-43.fn#Footnote 14.1 — All-sufficient|All-sufficient]] God grant you [[Genesis-43.fn#Footnote 14.2 — mercy|mercy]] before the man, that he may release to you your other brother and Benjamin. And as for me, if I am to be bereaved of my children, I shall be bereaved.
 
 ## v15
 
@@ -60,7 +60,7 @@ So the men took this present, and they took double the silver in their hand and 
 
 ## v16
 
-And when Joseph saw Benjamin with them, he said to him who was over his house, Bring the men into the house, and slaughter an animal, and prepare it; for the men will eat with me at noon.
+And when Joseph saw Benjamin with them, he said to him who was over his house, Bring the men into the house, and slaughter an [[Genesis-43.fn#Footnote 16.1 — animal|animal]], and prepare it; for the men will eat with me at noon.
 
 ## v17
 

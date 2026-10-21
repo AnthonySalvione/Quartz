@@ -4,15 +4,15 @@ And Abraham was old and advanced in age. And Jehovah had blessed Abraham in all 
 
 ## v2
 
-And Abraham said to his servant, the oldest of his house, who ruled over all that he had, Put your hand under my thigh;
+[[Genesis-24.fn#Footnote 2.1 — And|And]] Abraham said to his [[Genesis-24.fn#Footnote 2.2 — servant|servant]], the oldest of his house, who ruled over all that he had, Put your hand under my thigh;
 
 ## v3
 
-And I will make you swear by Jehovah, the God of heaven and the God of earth, that you will not take a wife for my son from the daughters of the Canaanites, among whom I am dwelling.
+And I will make you swear by Jehovah, the God of heaven and the God of earth, that you will [[Genesis-24.fn#Footnote 3.1 — not|not]] take a wife for my son from the daughters of the Canaanites, among whom I am dwelling.
 
 ## v4
 
-But you shall go to my country and to my relatives, and take a wife for my son Isaac.
+But you shall go to my country and to my [[Genesis-24.fn#Footnote 4.1 — relatives|relatives]], and take a wife for my son Isaac.
 
 ## v5
 
@@ -20,7 +20,7 @@ And the servant said to him, Perhaps the woman will not be willing to follow me 
 
 ## v6
 
-And Abraham said to him, Be certain not to take my son back there.
+And Abraham said to him, [[Genesis-24.fn#Footnote 6.1 — Be|Be]] certain not to take my son back there.
 
 ## v7
 
@@ -36,7 +36,7 @@ So the servant put his hand under the thigh of Abraham his master and swore to h
 
 ## v10
 
-And the servant took ten camels from the camels of his master and departed, having all kinds of his master’s good things in his hand. And he rose up and went to Aram-naharaim, to the city of Nahor.
+And the servant took ten camels from the camels of his master and departed, having all kinds of his master’s good things in his hand. And he rose up and went to [[Genesis-24.fn#Footnote 10.1 — Aramnaharaim|Aram-naharaim]], to the city of Nahor.
 
 ## v11
 
@@ -44,7 +44,7 @@ And he made the camels kneel down outside the city by the well of water at the t
 
 ## v12
 
-And he said, O Jehovah, the God of my master Abraham, please grant me success today, and show lovingkindness to my master Abraham.
+And he said, O Jehovah, the God of my master Abraham, [[Genesis-24.fn#Footnote 12.1 — please|please]] grant me success today, and show lovingkindness to my master Abraham.
 
 ## v13
 
@@ -60,7 +60,7 @@ But before he had finished speaking, there was Rebekah, who was born to Bethuel 
 
 ## v16
 
-And the girl was very beautiful in appearance, a virgin, and no man had known her. And she went down to the spring and filled her pitcher and came up.
+And the girl was very beautiful in appearance, a [[Genesis-24.fn#Footnote 16.1 — virgin|virgin]], and no man had known her. And she went down to the spring and filled her pitcher and came up.
 
 ## v17
 
@@ -84,7 +84,7 @@ And the man gazed fixedly upon her in silence to know whether Jehovah had made h
 
 ## v22
 
-And when the camels had finished drinking, the man took a golden nose-ring weighing half a shekel and two bracelets for her hands weighing ten gold shekels,
+And when the camels had finished drinking, the man took a golden [[Genesis-24.fn#Footnote 22.1 — nose-ring|nose-ring]] weighing [[Genesis-24.fn#Footnote 22.2 — half|half]] a shekel and two [[Genesis-24.fn#Footnote 22.1 — nose-ring|bracelets]] for her hands weighing [[Genesis-24.fn#Footnote 22.2 — half|ten]] gold shekels,
 
 ## v23
 
@@ -124,7 +124,7 @@ And he said, Come in, O blessed of Jehovah! Why do you stand outside when I have
 
 ## v32
 
-And the man came into the house, and Laban unloaded the camels. And he gave straw and fodder to the camels and water to wash his feet and the feet of the men who were with him.
+And the man came into the house, and [[Genesis-24.fn#Footnote 32.1 — Laban|Laban]] unloaded the camels. And he gave straw and fodder to the camels and water to wash his feet and the feet of the men who were with him.
 
 ## v33
 
@@ -208,7 +208,7 @@ And when Abraham’s servant heard their words, he bowed down to the earth to Je
 
 ## v53
 
-And the servant brought forth silver jewelry and gold jewelry and clothing and gave them to Rebekah. He also gave precious things to her brother and to her mother.
+And the servant brought forth [[Genesis-24.fn#Footnote 53.1 — silver|silver]] jewelry and gold jewelry and clothing and gave them to Rebekah. He also gave precious things to her brother and to her mother.
 
 ## v54
 
@@ -224,7 +224,7 @@ And he said to them, Do not delay me, since Jehovah has made my journey prospero
 
 ## v57
 
-And they said, Let us call the girl and ask her.
+And they said, Let us call the girl and ask [[Genesis-24.fn#Footnote 57.1 — her|her]].
 
 ## v58
 
@@ -240,7 +240,7 @@ And they blessed Rebekah and said to her,
 May you, our sister, become /  
 Thousands of ten thousands, /  
 And may your seed possess /  
-The gate of those who hate them.
+The gate of those who hate [[Genesis-24.fn#Footnote 60.1 — them|them]].
 
 ## v61
 
@@ -248,7 +248,7 @@ And Rebekah arose with her maids, and they rode on the camels and followed the m
 
 ## v62
 
-Now Isaac had come from going to Beer-lahai-roi, for he was dwelling in the region of the Negev.
+Now Isaac had come from going to [[Genesis-24.fn#Footnote 62.1 — Beer-lahai-roi|Beer-lahai-roi]], for he was dwelling in the region of the Negev.
 
 ## v63
 
@@ -268,4 +268,4 @@ And the servant told Isaac all the things that he had done.
 
 ## v67
 
-And Isaac brought her into the tent of Sarah his mother. And he took Rebekah, and she became his wife, and he loved her. And Isaac was comforted after the death of his mother.
+And Isaac [[Genesis-24.fn#Footnote 67.1 — brought|brought]] her into the tent of Sarah his mother. And he took Rebekah, and she became his wife, and he loved her. And Isaac was comforted after the death of his mother.

@@ -3,31 +3,31 @@ Author: Paul
 ---
 ## v1
 
-Therefore let us also, having so great a cloud of witnesses surrounding us, put away every encumbrance and the sin which so easily entangles us and run with endurance the race which is set before us,
+Therefore let us also, having so great a [[Hebrews-12.fn#Footnote 1.1 — cloud|cloud]] of [[Hebrews-12.fn#Footnote 1.2 — witnesses|witnesses]] surrounding us, put away every [[Hebrews-12.fn#Footnote 1.3 — encumbrance|encumbrance]] and the [[Hebrews-12.fn#Footnote 1.4 — sin|sin]] which so easily entangles us and run with endurance the [[Hebrews-12.fn#Footnote 1.5 — race|race]] which is set before us,
 
 ## v2
 
-Looking away unto Jesus, the Author and Perfecter of our faith, who for the joy set before Him endured the cross, despising the shame, and has sat down on the right hand of the throne of God.
+[[Hebrews-12.fn#Footnote 2.1 — Looking|Looking]] away unto [[Hebrews-12.fn#Footnote 2.2 — Jesus|Jesus]], the [[Hebrews-12.fn#Footnote 2.3 — Author|Author]] and [[Hebrews-12.fn#Footnote 2.4 — Perfecter|Perfecter]] of our faith, who for the joy set before Him endured the cross, despising the shame, and has [[Hebrews-12.fn#Footnote 2.5 — sat|sat]] down on the right hand of the throne of God.
 
 ## v3
 
-For compare Him who has endured such contradiction by sinners against Himself, so that you may not grow weary, fainting in your souls.
+For compare Him who has endured such contradiction by sinners against Himself, so that you may not grow weary, [[Hebrews-12.fn#Footnote 3.1 — fainting|fainting]] in your souls.
 
 ## v4
 
-You have not yet resisted unto blood, struggling against sin,
+You have not yet resisted unto blood, struggling against [[Hebrews-12.fn#Footnote 4.1 — sin|sin]],
 
 ## v5
 
-And you have completely forgotten the exhortation which reasons with you as with sons, “My son, do not regard lightly the discipline of the Lord, nor faint when reproved by Him;
+And you have completely forgotten the exhortation which reasons with you as with sons, “My son, do not regard lightly the [[Hebrews-12.fn#Footnote 5.1 — discipline|discipline]] of the Lord, nor faint when reproved by Him;
 
 ## v6
 
-For whom the Lord loves He disciplines, and He scourges every son whom He receives.”
+For whom the Lord loves He [[Hebrews-12.fn#Footnote 6.1 — disciplines|disciplines]], and He scourges every son whom He receives.”
 
 ## v7
 
-It is for discipline that you endure; God deals with you as with sons. For what son is there whom the father does not discipline?
+It is for [[Hebrews-12.fn#Footnote 7.1 — discipline|discipline]] that you endure; God deals with you as with sons. For what son is there whom the father does not discipline?
 
 ## v8
 
@@ -35,43 +35,43 @@ But if you are without discipline, of which all sons have become partakers, then
 
 ## v9
 
-Furthermore we have had the fathers of our flesh as discipliners and we respected them; shall we not much more be in subjection to the Father of spirits and live?
+Furthermore we have had the fathers of our flesh as [[Hebrews-12.fn#Footnote 9.1 — discipliners|discipliners]] and we respected them; shall we not much more be in subjection to the [[Hebrews-12.fn#Footnote 9.2 — Father|Father]] of spirits and live?
 
 ## v10
 
-For they disciplined for a few days as it seemed good to them; but He, for what is profitable that we might partake of His holiness.
+For they disciplined for a few days as it seemed good to them; but He, for what is profitable that we might partake of His [[Hebrews-12.fn#Footnote 10.1 — holiness|holiness]].
 
 ## v11
 
-Now no discipline at the present time seems to be a matter of joy, but of grief; but afterward it yields the peaceable fruit of righteousness to those who have been exercised by it.
+Now no discipline at the present time seems to be a matter of joy, but of grief; but afterward it yields the [[Hebrews-12.fn#Footnote 11.1 — peaceable|peaceable]] fruit of righteousness to those who have been exercised by it.
 
 ## v12
 
-Therefore set straight the hands which hang down and the paralyzed knees,
+Therefore [[Hebrews-12.fn#Footnote 12.1 — set|set]] straight the hands which hang down and the paralyzed knees,
 
 ## v13
 
-And make straight paths for your feet, that what is lame may not be put out of joint but rather may be healed.
+And make straight [[Hebrews-12.fn#Footnote 13.1 — paths|paths]] for your feet, that what is lame may not be [[Hebrews-12.fn#Footnote 13.2 — put|put]] out of joint but rather may be healed.
 
 ## v14
 
-Pursue peace with all men and sanctification, without which no one will see the Lord;
+Pursue peace with all men and [[Hebrews-12.fn#Footnote 14.1 — sanctification|sanctification]], without which no one will see the Lord;
 
 ## v15
 
-Looking carefully lest anyone fall away from the grace of God; lest any root of bitterness springing up trouble you, and through this many be defiled;
+Looking carefully lest anyone [[Hebrews-12.fn#Footnote 15.1 — fall|fall]] away from the grace of God; lest any [[Hebrews-12.fn#Footnote 15.2 — root|root]] of bitterness springing up trouble you, and through this many be defiled;
 
 ## v16
 
-Lest there be any fornicator or profane person like Esau, who for one meal gave up his own birthright.
+Lest there be any fornicator or profane person like Esau, who for one meal gave up his own [[Hebrews-12.fn#Footnote 16.1 — birthright|birthright]].
 
 ## v17
 
-For you know that also afterward, when he desired to inherit the blessing, he was rejected; for he found no place for repentance, even though he sought it with tears.
+For you know that also afterward, when he desired to inherit the blessing, he was rejected; for he found [[Hebrews-12.fn#Footnote 17.1 — no|no]] place for repentance, even though he sought it with tears.
 
 ## v18
 
-For you have not come forward to a mountain which could be touched and which was set on fire, and to darkness and gloom and whirlwind,
+For you have not come forward to a [[Hebrews-12.fn#Footnote 18.1 — mountain|mountain]] which could be touched and which was set on fire, and to darkness and gloom and whirlwind,
 
 ## v19
 
@@ -87,15 +87,15 @@ And so fearful was the sight, Moses said, “I am full of fear and trembling.”
 
 ## v22
 
-But you have come forward to Mount Zion and to the city of the living God, the heavenly Jerusalem; and to myriads of angels, to the universal gathering;
+But you have come forward to [[Hebrews-12.fn#Footnote 22.1 — Mount|Mount]] Zion and to the [[Hebrews-12.fn#Footnote 22.2 — city|city]] of the living God, the heavenly Jerusalem; and to myriads of angels, to the [[Hebrews-12.fn#Footnote 22.3 — universal|universal]] gathering;
 
 ## v23
 
-And to the church of the firstborn, who have been enrolled in the heavens; and to God, the Judge of all; and to the spirits of righteous men who have been made perfect;
+And to the church of the [[Hebrews-12.fn#Footnote 23.1 — firstborn|firstborn]], who have been [[Hebrews-12.fn#Footnote 23.2 — enrolled|enrolled]] in the heavens; and to God, the Judge of all; and to the spirits of righteous men who have been made perfect;
 
 ## v24
 
-And to Jesus, the Mediator of a new covenant; and to the blood of sprinkling, which speaks something better than that of Abel.
+And to Jesus, the Mediator of a [[Hebrews-12.fn#Footnote 24.1 — new|new]] covenant; and to the [[Hebrews-12.fn#Footnote 24.2 — blood|blood]] of sprinkling, which [[Hebrews-12.fn#Footnote 24.3 — speaks|speaks]] something better than that of Abel.
 
 ## v25
 
@@ -111,8 +111,8 @@ And this word, “Yet once more,” shows clearly the removal of the things bein
 
 ## v28
 
-Therefore receiving an unshakable kingdom, let us have grace, through which we may serve God well-pleasingly with piety and fear;
+Therefore receiving an unshakable [[Hebrews-12.fn#Footnote 28.1 — kingdom|kingdom]], let us [[Hebrews-12.fn#Footnote 28.2 — have|have]] grace, through which we may serve God well-pleasingly with piety and fear;
 
 ## v29
 
-For our God is also a consuming fire.
+For our God is also a [[Hebrews-12.fn#Footnote 29.1 — consuming|consuming]] fire.

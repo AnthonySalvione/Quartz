@@ -4,11 +4,11 @@ Now after the plague Jehovah spoke to Moses and to Eleazar the son of Aaron the 
 
 ## v2
 
-Take the sum of the whole assembly of the children of Israel, from twenty years old and upward, by their fathers’ households, all who are able to go forth for military service in Israel.
+Take the [[Numbers-26.fn#Footnote 2.1 — sum|sum]] of the whole assembly of the children of Israel, from [[Numbers-26.fn#Footnote 2.2 — twenty|twenty]] years old and upward, by their [[Numbers-26.fn#Footnote 2.2 — twenty|fathers’]] households, all who are able to go forth for military service in Israel.
 
 ## v3
 
-So Moses and Eleazar the priest spoke with them in the plains of Moab by the Jordan at Jericho, saying,
+So [[Numbers-26.fn#Footnote 3.1 — Moses|Moses]] and Eleazar the priest spoke with them in the plains of Moab by the Jordan at Jericho, saying,
 
 ## v4
 
@@ -40,7 +40,7 @@ And the earth opened its mouth and swallowed them up together with Korah, when t
 
 ## v11
 
-But the sons of Korah did not die.
+But the sons of Korah did [[Numbers-26.fn#Footnote 11.1 — not|not]] die.
 
 ## v12
 
@@ -128,7 +128,7 @@ And of Shemida, the family of the Shemidaites; and of Hepher, the family of the 
 
 ## v33
 
-Now Zelophehad the son of Hepher had no sons, but daughters, and the names of the daughters of Zelophehad were Mahlah and Noah, Hoglah, Milcah, and Tirzah.
+Now Zelophehad the son of Hepher had no sons, but [[Numbers-26.fn#Footnote 33.1 — daughters|daughters]], and the names of the daughters of Zelophehad were Mahlah and Noah, Hoglah, Milcah, and Tirzah.
 
 ## v34
 
@@ -216,7 +216,7 @@ You shall increase the larger group’s inheritance, and you shall reduce the sm
 
 ## v55
 
-But the land shall be apportioned by lot; they shall inherit it according to the names of the tribes of their fathers.
+But the land shall be apportioned by [[Numbers-26.fn#Footnote 55.1 — lot|lot]]; they shall inherit it according to the names of the tribes of their fathers.
 
 ## v56
 
@@ -240,11 +240,11 @@ And to Aaron were born Nadab and Abihu, Eleazar and Ithamar.
 
 ## v61
 
-And Nadab and Abihu died when they offered strange fire before Jehovah.
+And [[Numbers-26.fn#Footnote 61.1 — Nadab|Nadab]] and Abihu died when they offered strange fire before Jehovah.
 
 ## v62
 
-And those who were numbered of them were twenty-three thousand, every male from a month old and upward, for they were not numbered among the children of Israel, because no inheritance was given to them among the children of Israel.
+And those who were numbered of them were twenty-three thousand, every male from a month old and upward, for they were not numbered among the children of Israel, because [[Numbers-26.fn#Footnote 62.1 — no|no]] inheritance was given to them among the children of Israel.
 
 ## v63
 
@@ -252,7 +252,7 @@ These are those who were numbered by Moses and Eleazar the priest, who numbered 
 
 ## v64
 
-But among these there was not one of those numbered by Moses and Aaron the priest, who had numbered the children of Israel in the wilderness of Sinai.
+But among these there was [[Numbers-26.fn#Footnote 64.1 — not|not]] one of those numbered by Moses and Aaron the priest, who had numbered the children of Israel in the wilderness of Sinai.
 
 ## v65
 

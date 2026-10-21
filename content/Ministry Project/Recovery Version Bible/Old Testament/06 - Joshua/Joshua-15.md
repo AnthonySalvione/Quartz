@@ -28,7 +28,7 @@ And the border went up to Debir from the Valley of Achor, and turned northward t
 
 ## v8
 
-Then the border went up by the Valley of Ben-hinnom to the south of the Jebusite slope (this is Jerusalem); and the border went to the top of the mountain that is before the Valley of Hinnom on the west, which is the northern end of the Valley of Rephaim;
+Then the border went up by the [[Joshua-15.fn#Footnote 8.1 — Valley|Valley]] of Ben-hinnom to the south of the Jebusite slope (this is Jerusalem); and the border went to the top of the mountain that is before the Valley of Hinnom on the west, which is the northern end of the Valley of Rephaim;
 
 ## v9
 
@@ -48,7 +48,7 @@ And the western border was the Great Sea and its coast. This is the border of th
 
 ## v13
 
-And to Caleb the son of Jephunneh he gave a portion in the midst of the children of Judah according to the commandment of Jehovah to Joshua, that is, Kiriath-arba (Arba was the father of Anak); this is Hebron.
+And to Caleb the son of Jephunneh he gave a portion in the midst of the children of Judah according to the commandment of Jehovah to Joshua, that is, Kiriath-arba (Arba was the father of [[Joshua-15.fn#Footnote 13.1 — Anak|Anak]]); this is Hebron.
 
 ## v14
 
@@ -176,7 +176,7 @@ And Keilah and Achzib and Mareshah: nine cities with their villages.
 
 ## v45
 
-Ekron, with its towns and its villages;
+Ekron, with its [[Joshua-15.fn#Footnote 45.1 — towns|towns]] and its villages;
 
 ## v46
 

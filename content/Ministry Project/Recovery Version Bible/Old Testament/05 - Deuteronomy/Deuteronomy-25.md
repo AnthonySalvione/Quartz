@@ -8,7 +8,7 @@ And if the wicked man is worthy of beating, the judge shall make him lie down an
 
 ## v3
 
-Forty blows he may give him; he shall not exceed, lest, in exceeding, he beat him beyond these with many blows and your brother be degraded before your eyes.
+Forty blows he may give him; he shall not exceed, lest, in exceeding, he beat him beyond these with many blows and your brother be [[Deuteronomy-25.fn#Footnote 3.1 — degraded|degraded]] before your eyes.
 
 ## v4
 
@@ -20,7 +20,7 @@ If brothers dwell together, and one of them dies, and he has no son, the wife of
 
 ## v6
 
-And the firstborn whom she bears shall assume the name of his deceased brother, so that his name is not blotted out of Israel.
+And the firstborn whom she bears shall [[Deuteronomy-25.fn#Footnote 6.1 — assume|assume]] the name of his deceased brother, so that his name is not blotted out of Israel.
 
 ## v7
 
@@ -48,7 +48,7 @@ Then you shall cut off her hand; your eye shall not pity her.
 
 ## v13
 
-You shall not have in your bag differing weights, one heavy and one light.
+You shall not have in your bag [[Deuteronomy-25.fn#Footnote 13.1 — differing|differing]] weights, one heavy and one light.
 
 ## v14
 

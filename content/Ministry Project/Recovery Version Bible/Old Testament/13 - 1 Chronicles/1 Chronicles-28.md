@@ -20,7 +20,7 @@ And out of all my sons — for Jehovah has given me many sons — He has chosen 
 
 ## v6
 
-And He said to me, Solomon your son, he shall build My house and My courts; for I have chosen him to be My son, and I will be his Father.
+And He said to me, [[1 Chronicles-28.fn#Footnote 6.1 — Solomon|Solomon]] your son, he shall build My house and My courts; for I have chosen him to be My son, and I will be his Father.
 
 ## v7
 
@@ -40,7 +40,7 @@ See now that Jehovah has chosen you to build a house for the sanctuary — be st
 
 ## v11
 
-Then David gave Solomon his son the pattern of the portico of the temple and its buildings and its storehouses and its upper rooms and its inner rooms and the building for the expiation cover;
+Then David gave Solomon his son the [[1 Chronicles-28.fn#Footnote 11.1 — pattern|pattern]] of the portico of the temple and its buildings and its storehouses and its upper rooms and its inner rooms and the building for the expiation cover;
 
 ## v12
 
@@ -52,7 +52,7 @@ And for the divisions of the priests and the Levites, and for all the work of th
 
 ## v14
 
-And for the gold, by weight of the gold for all the vessels of each kind of service; for all the vessels of silver, by weight for all the vessels for each kind of service;
+And for the gold, by [[1 Chronicles-28.fn#Footnote 14.1 — weight|weight]] of the gold for all the vessels of each kind of service; for all the vessels of silver, by weight for all the vessels for each kind of service;
 
 ## v15
 

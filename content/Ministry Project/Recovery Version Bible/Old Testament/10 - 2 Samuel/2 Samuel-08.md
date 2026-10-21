@@ -1,6 +1,6 @@
 ## v1
 
-And after this David struck the Philistines and subdued them. And David took control of the chief city out of the hand of the Philistines.
+And after this David struck the Philistines and subdued them. And David took [[2 Samuel-08.fn#Footnote 1.1 — control|control]] of the chief city out of the hand of the Philistines.
 
 ## v2
 
@@ -8,7 +8,7 @@ And he struck Moab. And making them lie down on the ground, he measured them wit
 
 ## v3
 
-Then David struck Hadadezer the son of Rehob, the king of Zobah, when he went to recover his power at the River.
+Then David struck Hadadezer the son of Rehob, the king of Zobah, when he went to recover his power at the [[2 Samuel-08.fn#Footnote 3.1 — River|River]].
 
 ## v4
 
@@ -16,7 +16,7 @@ And David took from him a thousand seven hundred horsemen and twenty thousand fo
 
 ## v5
 
-And when the Syrians of Damascus came to help Hadadezer the king of Zobah, David struck twenty-two thousand men among the Syrians.
+And when the [[2 Samuel-08.fn#Footnote 5.1 — Syrians|Syrians]] of Damascus came to help Hadadezer the king of Zobah, David struck twenty-two thousand men among the Syrians.
 
 ## v6
 
@@ -36,7 +36,7 @@ Then when Toi the king of Hamath heard that David had struck down all the army o
 
 ## v10
 
-Toi sent Joram his son to King David to greet him and congratulate him for fighting against Hadadezer and striking him down, for Hadadezer had been at war with Toi. And in Joram’s hand were articles of silver and of gold and of bronze.
+Toi sent Joram his son to King David to greet him and congratulate him for fighting against Hadadezer and striking him down, for Hadadezer had been at war with Toi. And in [[2 Samuel-08.fn#Footnote 10.1 — Joram’s|Joram’s]] hand were articles of silver and of gold and of bronze.
 
 ## v11
 
@@ -44,7 +44,7 @@ King David consecrated these also to Jehovah along with the silver and gold that
 
 ## v12
 
-From the Syrians and from the Moabites and from the children of Ammon and from the Philistines and from the Amalekites and from the spoil of Hadadezer the son of Rehob, the king of Zobah.
+From the [[2 Samuel-08.fn#Footnote 12.1 — Syrians|Syrians]] and from the Moabites and from the children of Ammon and from the Philistines and from the Amalekites and from the spoil of Hadadezer the son of Rehob, the king of Zobah.
 
 ## v13
 
@@ -68,4 +68,4 @@ And Zadok the son of Ahitub and Ahimelech the son of Abiathar were priests, and 
 
 ## v18
 
-And Benaiah the son of Jehoiada was over the Cherethites and the Pelethites, and David’s sons were his chief ministers.
+And Benaiah the son of Jehoiada [[2 Samuel-08.fn#Footnote 18.1 — was|was]] over the [[2 Samuel-08.fn#Footnote 18.2 — Cherethites|Cherethites]] and the Pelethites, and David’s sons were his [[2 Samuel-08.fn#Footnote 18.3 — chief|chief]] ministers.

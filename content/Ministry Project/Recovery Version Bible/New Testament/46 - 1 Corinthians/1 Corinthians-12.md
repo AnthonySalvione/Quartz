@@ -3,43 +3,43 @@ Author: Paul
 ---
 ## v1
 
-Now concerning spiritual gifts, brothers, I do not want you to be ignorant.
+Now concerning [[1 Corinthians-12.fn#Footnote 1.1 — spiritual|spiritual]] gifts, brothers, I do not want you to be ignorant.
 
 ## v2
 
-You know that when you were Gentiles, you were always being led away to dumb idols, whenever and however you were led.
+You know that when you were Gentiles, you were always being led away to dumb idols, whenever and however you were [[1 Corinthians-12.fn#Footnote 2.1 — led|led]].
 
 ## v3
 
-Therefore I make known to you that no one speaking in the Spirit of God says, Jesus is accursed; and no one can say, Jesus is Lord! except in the Holy Spirit.
+Therefore I make known to you that no one [[1 Corinthians-12.fn#Footnote 3.1 — speaking|speaking]] in the Spirit of God says, Jesus is [[1 Corinthians-12.fn#Footnote 3.2 — accursed|accursed]]; and [[1 Corinthians-12.fn#Footnote 3.3 — no|no]] one can say, Jesus is Lord! except in the Holy Spirit.
 
 ## v4
 
-But there are distinctions of gifts, but the same Spirit;
+[[1 Corinthians-12.fn#Footnote 4.1 — But|But]] there are [[1 Corinthians-12.fn#Footnote 4.2 — distinctions|distinctions]] of [[1 Corinthians-12.fn#Footnote 4.3 — gifts|gifts]], but the same Spirit;
 
 ## v5
 
-And there are distinctions of ministries, yet the same Lord;
+And there are distinctions of [[1 Corinthians-12.fn#Footnote 5.1 — ministries|ministries]], yet the same Lord;
 
 ## v6
 
-And there are distinctions of operations, but the same God, who operates all things in all.
+And there are distinctions of [[1 Corinthians-12.fn#Footnote 6.1 — operations|operations]], but the same [[1 Corinthians-12.fn#Footnote 6.2 — God|God]], who operates all things in all.
 
 ## v7
 
-But to each one is given the manifestation of the Spirit for what is profitable.
+But to each one is given the [[1 Corinthians-12.fn#Footnote 7.1 — manifestation|manifestation]] of the Spirit [[1 Corinthians-12.fn#Footnote 7.2 — for|for]] what is profitable.
 
 ## v8
 
-For to one through the Spirit a word of wisdom is given, and to another a word of knowledge, according to the same Spirit;
+For to one through the Spirit a [[1 Corinthians-12.fn#Footnote 8.1 — word|word]] of wisdom is given, and to another a [[1 Corinthians-12.fn#Footnote 8.1 — word|word]] of knowledge, according to the same Spirit;
 
 ## v9
 
-To a different one faith in the same Spirit, and to another gifts of healing in the one Spirit,
+To a different one [[1 Corinthians-12.fn#Footnote 9.1 — faith|faith]] in the same Spirit, and to another [[1 Corinthians-12.fn#Footnote 9.2 — gifts|gifts]] of healing in the one Spirit,
 
 ## v10
 
-And to another operations of works of power, and to another prophecy, and to another discerning of spirits; to a different one various kinds of tongues, and to another interpretation of tongues.
+And to another operations of [[1 Corinthians-12.fn#Footnote 10.1 — works|works]] of power, and to another [[1 Corinthians-12.fn#Footnote 10.2 — prophecy|prophecy]], and to another [[1 Corinthians-12.fn#Footnote 10.3 — discerning|discerning]] of spirits; to a different one various kinds of [[1 Corinthians-12.fn#Footnote 10.4 — tongues|tongues]], and to another [[1 Corinthians-12.fn#Footnote 10.5 — interpretation|interpretation]] of tongues.
 
 ## v11
 
@@ -47,11 +47,11 @@ But the one and the same Spirit operates all these things, distributing to each 
 
 ## v12
 
-For even as the body is one and has many members, yet all the members of the body, being many, are one body, so also is the Christ.
+[[1 Corinthians-12.fn#Footnote 12.1 — For|For]] even as the body is one and has many members, yet all the members of the body, being many, are one body, so also is [[1 Corinthians-12.fn#Footnote 12.2 — the|the]] Christ.
 
 ## v13
 
-For also in one Spirit we were all baptized into one Body, whether Jews or Greeks, whether slaves or free, and were all given to drink one Spirit.
+For also in [[1 Corinthians-12.fn#Footnote 13.1 — one|one]] Spirit we were all baptized into [[1 Corinthians-12.fn#Footnote 13.2 — one|one]] Body, whether [[1 Corinthians-12.fn#Footnote 13.3 — Jews|Jews]] or Greeks, whether [[1 Corinthians-12.fn#Footnote 13.4 — slaves|slaves]] or free, and were all given to [[1 Corinthians-12.fn#Footnote 13.5 — drink|drink]] one Spirit.
 
 ## v14
 
@@ -95,11 +95,11 @@ And those members of the body which we consider to be less honorable, these we c
 
 ## v24
 
-But our comely members have no need. But God has blended the body together, giving more abundant honor to the member that lacked,
+But our comely members have no need. But God has [[1 Corinthians-12.fn#Footnote 24.1 — blended|blended]] the body together, giving more abundant honor to the member that lacked,
 
 ## v25
 
-That there would be no division in the body, but that the members would have the same care for one another.
+That there would be no division in the body, but that the members would have the [[1 Corinthians-12.fn#Footnote 25.1 — same|same]] care for one another.
 
 ## v26
 
@@ -111,7 +111,7 @@ Now you are the Body of Christ, and members individually.
 
 ## v28
 
-And God has placed some in the church: first apostles, second prophets, third teachers; then works of power, then gifts of healing, helps, administrations, various kinds of tongues.
+And God has placed some in the [[1 Corinthians-12.fn#Footnote 28.1 — church|church]]: first [[1 Corinthians-12.fn#Footnote 28.2 — apostles|apostles]], second [[1 Corinthians-12.fn#Footnote 28.3 — prophets|prophets]], third [[1 Corinthians-12.fn#Footnote 28.4 — teachers|teachers]]; then [[1 Corinthians-12.fn#Footnote 28.5 — works|works]] of power, then [[1 Corinthians-12.fn#Footnote 28.6 — gifts|gifts]] of healing, [[1 Corinthians-12.fn#Footnote 28.7 — helps|helps]], [[1 Corinthians-12.fn#Footnote 28.8 — administrations|administrations]], various kinds of [[1 Corinthians-12.fn#Footnote 28.9 — tongues|tongues]].
 
 ## v29
 
@@ -119,8 +119,8 @@ Are all apostles? Are all prophets? Are all teachers? Do all have works of power
 
 ## v30
 
-Do all have gifts of healing? Do all speak in tongues? Do all interpret tongues?
+Do all have gifts of healing? Do all [[1 Corinthians-12.fn#Footnote 30.1 — speak|speak]] in tongues? [[1 Corinthians-12.fn#Footnote 30.2 — Do|Do]] all [[1 Corinthians-12.fn#Footnote 30.1 — speak|interpret]] tongues?
 
 ## v31
 
-But earnestly desire the greater gifts. And moreover I show to you a most excellent way.
+But [[1 Corinthians-12.fn#Footnote 31.1 — earnestly|earnestly]] desire the [[1 Corinthians-12.fn#Footnote 31.2 — greater|greater]] gifts. And moreover I show to you a [[1 Corinthians-12.fn#Footnote 31.3 — most|most]] excellent way.

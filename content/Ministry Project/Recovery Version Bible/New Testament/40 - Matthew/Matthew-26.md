@@ -7,7 +7,7 @@ And when Jesus finished all these words, He said to His disciples,
 
 ## v2
 
-You know that after two days the Passover takes place, and the Son of Man is being delivered up to be crucified.
+You know that after two days the [[Matthew-26.fn#Footnote 2.1 — Passover|Passover]] takes place, and the Son of Man is being delivered up to be crucified.
 
 ## v3
 
@@ -19,11 +19,11 @@ And they took counsel together to seize Jesus by craftiness and kill Him.
 
 ## v5
 
-But they said, Not at the feast, lest there be an uproar among the people.
+But they said, [[Matthew-26.fn#Footnote 5.1 — Not|Not]] at the feast, lest there be an uproar among the people.
 
 ## v6
 
-Now when Jesus was in Bethany, in the house of Simon the leper,
+Now when Jesus was in Bethany, in the house of Simon the [[Matthew-26.fn#Footnote 6.1 — leper|leper]],
 
 ## v7
 
@@ -31,7 +31,7 @@ A woman came to Him, having an alabaster flask of ointment of great value, and s
 
 ## v8
 
-But when the disciples saw it, they were indignant, saying, Why this waste?
+But when the disciples saw it, they were indignant, saying, Why this [[Matthew-26.fn#Footnote 8.1 — waste|waste]]?
 
 ## v9
 
@@ -43,23 +43,23 @@ But Jesus, knowing it, said to them, Why do you trouble the woman? She has done 
 
 ## v11
 
-For the poor you have with you always, but you do not always have Me.
+For the poor you have with you always, [[Matthew-26.fn#Footnote 11.1 — but|but]] you do not always have Me.
 
 ## v12
 
-For in pouring out this ointment on My body, she has done it for My burial.
+For in pouring out this ointment on My body, she has done it [[Matthew-26.fn#Footnote 12.1 — for|for]] My burial.
 
 ## v13
 
-Truly I say to you, Wherever this gospel is proclaimed in the whole world, what this woman has done shall also be told as a memorial of her.
+Truly I say to you, Wherever [[Matthew-26.fn#Footnote 13.1 — this|this]] gospel is proclaimed in the whole world, [[Matthew-26.fn#Footnote 13.2 — what|what]] this woman has done shall also be told as a memorial of her.
 
 ## v14
 
-At that time one of the twelve, the one called Judas Iscariot, went to the chief priests
+[[Matthew-26.fn#Footnote 14.1 — At|At]] that time one of the twelve, the one called Judas Iscariot, went to the chief priests
 
 ## v15
 
-And said, What are you willing to give me, and I will deliver Him to you? And they weighed out to him thirty pieces of silver.
+And said, What are you willing to give me, and I will deliver Him to you? And they weighed out to him [[Matthew-26.fn#Footnote 15.1 — thirty|thirty]] pieces of silver.
 
 ## v16
 
@@ -67,7 +67,7 @@ And from then on he sought opportunity to deliver Him up.
 
 ## v17
 
-Now on the first day of the Feast of Unleavened Bread, the disciples came to Jesus, saying, Where do You want us to prepare for You to eat the passover?
+Now on the first day of the [[Matthew-26.fn#Footnote 17.1 — Feast|Feast]] of Unleavened Bread, the disciples came to Jesus, saying, Where do You want us to prepare for You to eat the passover?
 
 ## v18
 
@@ -99,27 +99,27 @@ The Son of Man is going away, even as it is written concerning Him, but woe to t
 
 ## v25
 
-And Judas, who was betraying Him, answered and said, I am not the one, am I, Rabbi? He said to him, You have said it yourself.
+And Judas, who was betraying Him, answered and said, I am not the one, am I, Rabbi? He said to him, [[Matthew-26.fn#Footnote 25.1 — You|You]] have said it yourself.
 
 ## v26
 
-And as they were eating, Jesus took bread and blessed it, and He broke it and gave it to the disciples and said, Take, eat; this is My body.
+And as they were [[Matthew-26.fn#Footnote 26.1 — eating|eating]], Jesus took [[Matthew-26.fn#Footnote 26.2 — bread|bread]] and blessed it, and He broke it and gave it to the disciples and said, Take, eat; this is My body.
 
 ## v27
 
-And He took a cup and gave thanks, and He gave it to them, saying, Drink of it, all of you,
+And He took a [[Matthew-26.fn#Footnote 27.1 — cup|cup]] and gave thanks, and He gave it to them, saying, Drink of it, all of you,
 
 ## v28
 
-For this is My blood of the covenant, which is being poured out for many for forgiveness of sins.
+For this is My [[Matthew-26.fn#Footnote 28.1 — blood|blood]] of the [[Matthew-26.fn#Footnote 28.2 — covenant|covenant]], which is being poured out for many for forgiveness of sins.
 
 ## v29
 
-But I say to you, I shall by no means drink of this product of the vine from now on until that day when I drink it new with you in the kingdom of My Father.
+But I say to you, I shall by no means drink of this [[Matthew-26.fn#Footnote 29.1 — product|product]] of the vine from now on until that day when I drink it new with you in the [[Matthew-26.fn#Footnote 29.2 — kingdom|kingdom]] of My Father.
 
 ## v30
 
-And after singing a hymn, they went out to the Mount of Olives.
+And after [[Matthew-26.fn#Footnote 30.1 — singing|singing]] a hymn, they went out to the Mount of Olives.
 
 ## v31
 
@@ -143,7 +143,7 @@ Peter said to Him, Even if I must die with You, I will by no means deny You. And
 
 ## v36
 
-Then Jesus came with them to a place called Gethsemane, and He said to the disciples, Sit here while I go over there and pray.
+Then Jesus came with them to a place called [[Matthew-26.fn#Footnote 36.1 — Gethsemane|Gethsemane]], and He said to the disciples, Sit here while I go over there and pray.
 
 ## v37
 
@@ -155,7 +155,7 @@ Then He said to them, My soul is exceedingly sorrowful, even to death. Remain he
 
 ## v39
 
-And going forward a little, He fell on His face and prayed, saying, My Father, if it is possible, let this cup pass from Me; yet not as I will, but as You will.
+And going forward a little, He fell on His face and prayed, saying, My Father, if it is possible, let this [[Matthew-26.fn#Footnote 39.1 — cup|cup]] pass from Me; yet not as I will, but as You will.
 
 ## v40
 
@@ -163,7 +163,7 @@ And He came to the disciples and found them sleeping. And He said to Peter, So w
 
 ## v41
 
-Watch and pray that you may not enter into temptation. The spirit is willing, but the flesh is weak.
+Watch and pray that you may not enter into temptation. The [[Matthew-26.fn#Footnote 41.1 — spirit|spirit]] is willing, but the flesh is weak.
 
 ## v42
 
@@ -195,15 +195,15 @@ Now the one who was betraying Him had given them a sign, saying, Whomever I kiss
 
 ## v49
 
-And immediately he came to Jesus and said, Rejoice, Rabbi, and kissed Him affectionately.
+And immediately he came to Jesus and said, [[Matthew-26.fn#Footnote 49.1 — Rejoice|Rejoice]], Rabbi, and kissed Him affectionately.
 
 ## v50
 
-But Jesus said to him, Friend, what are you here for? Then they came and laid hands on Jesus and seized Him.
+But Jesus said to him, Friend, [[Matthew-26.fn#Footnote 50.1 — what|what]] are you here for? Then they came and laid hands on Jesus and seized Him.
 
 ## v51
 
-And behold, one of those with Jesus stretched out his hand and drew his sword, and struck the slave of the high priest and took off his ear.
+And behold, [[Matthew-26.fn#Footnote 51.1 — one|one]] of those with Jesus stretched out his hand and drew his sword, and struck the slave of the high priest and took off his ear.
 
 ## v52
 
@@ -211,11 +211,11 @@ Then Jesus said to him, Return your sword to its place, for all those who take u
 
 ## v53
 
-Or do you think that I cannot beseech My Father, and He will provide Me at once with more than twelve legions of angels?
+Or do you think that I cannot [[Matthew-26.fn#Footnote 53.1 — beseech|beseech]] My Father, and He will [[Matthew-26.fn#Footnote 53.1 — beseech|provide]] Me at once with more than twelve [[Matthew-26.fn#Footnote 53.1 — beseech|legions]] of angels?
 
 ## v54
 
-How then shall the Scriptures be fulfilled which say that it must happen this way?
+How then shall the Scriptures be fulfilled which say that it must happen [[Matthew-26.fn#Footnote 54.1 — this|this]] way?
 
 ## v55
 
@@ -243,19 +243,19 @@ And they did not find it, though many false witnesses came forward. But later tw
 
 ## v61
 
-And said, This man said, I am able to destroy the temple of God and build it up in three days.
+And said, This man said, [[Matthew-26.fn#Footnote 61.1 — I|I]] am able to destroy the temple of God and build it up in three days.
 
 ## v62
 
-And the high priest stood up and said to Him, Do You answer nothing? What is it that these testify against You?
+And the high priest stood up and said to Him, Do You answer [[Matthew-26.fn#Footnote 62.1 — nothing|nothing]]? What is it that these testify against You?
 
 ## v63
 
-But Jesus remained silent. And the high priest said to Him, I charge You to swear by the living God to tell us if You are the Christ, the Son of God.
+But Jesus remained [[Matthew-26.fn#Footnote 62.1 — nothing|silent]]. And the high priest said to Him, I charge You to swear by the living God to tell us [[Matthew-26.fn#Footnote 63.1 — if|if]] You are the Christ, the Son of God.
 
 ## v64
 
-Jesus said to him, You have said rightly. Nevertheless I say to you, From now on you will see the Son of Man sitting at the right hand of Power and coming on the clouds of heaven.
+Jesus said to him, You have said rightly. Nevertheless I say to you, From now on you will see the [[Matthew-26.fn#Footnote 64.1 — Son|Son]] of Man sitting at the right hand of Power and coming on the clouds of heaven.
 
 ## v65
 
@@ -271,11 +271,11 @@ Then they spat in His face and beat Him with their fists, and others slapped Him
 
 ## v68
 
-Saying, Prophesy to us, Christ! Who is the one who hit You?
+Saying, [[Matthew-26.fn#Footnote 68.1 — Prophesy|Prophesy]] to us, Christ! Who is the one who hit You?
 
 ## v69
 
-Now Peter was sitting outside in the courtyard, and a servant girl came to him and said, You also were with Jesus the Galilean.
+Now Peter was sitting outside in the courtyard, and a [[Matthew-26.fn#Footnote 69.1 — servant|servant]] girl came to him and said, You also were with Jesus the Galilean.
 
 ## v70
 
@@ -291,11 +291,11 @@ And again he denied with an oath, I do not know the man!
 
 ## v73
 
-And after a little while those who were standing there came to Peter and said, Surely you also are one of them, for your speech also makes it clear that you are.
+And after a little while [[Matthew-26.fn#Footnote 73.1 — those|those]] who were standing there came to Peter and said, Surely you also are one of them, for your speech also makes it clear that you are.
 
 ## v74
 
-Then he began to curse and to swear: I do not know the man! And immediately a rooster crowed.
+Then he began to [[Matthew-26.fn#Footnote 74.1 — curse|curse]] and to swear: I do not know the man! And immediately a rooster crowed.
 
 ## v75
 

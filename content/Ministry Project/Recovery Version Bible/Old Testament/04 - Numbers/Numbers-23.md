@@ -4,7 +4,7 @@ Then Balaam said to Balak, Build me seven altars here, and have seven bulls and 
 
 ## v2
 
-And Balak did just as Balaam had spoken. And Balak and Balaam offered up a bull and a ram on each altar.
+And Balak did just as Balaam had spoken. And Balak and Balaam [[Numbers-23.fn#Footnote 2.1 — offered|offered]] up a bull and a ram on each altar.
 
 ## v3
 
@@ -24,7 +24,7 @@ When he returned to him, there he was, standing beside his burnt offering, he an
 
 ## v7
 
-And he took up his parable and said,  
+And he took up his [[Numbers-23.fn#Footnote 7.1 — parable|parable]] and said,  
 From Aram Balak brought me, /  
 The king of Moab from the mountains of the East. /  
 Come, curse Jacob for me; /  
@@ -39,14 +39,14 @@ And how can I denounce whom Jehovah has not denounced?
 
 For from the top of the rocks I see him, /  
 And from the hills I behold him. /  
-Here is a people who live alone /  
+Here is a people who live [[Numbers-23.fn#Footnote 9.1 — alone|alone]] /  
 And do not reckon themselves among the nations.
 
 ## v10
 
-Who can count the dust of Jacob, /  
+Who can count the [[Numbers-23.fn#Footnote 10.1 — dust|dust]] of Jacob, /  
 Or number the fourth part of Israel? /  
-Let me die the death of the upright, /  
+Let [[Numbers-23.fn#Footnote 10.2 — me|me]] die the death of the upright, /  
 And let my latter end be like theirs!
 
 ## v11
@@ -85,7 +85,7 @@ Listen to me, O son of Zippor:
 
 ## v19
 
-God is not a man, that He should lie, /  
+God is not a man, that He should [[Numbers-23.fn#Footnote 19.1 — lie|lie]], /  
 Nor a son of man, that He should repent. /  
 Has He said, and will He not do it? /  
 Or has He spoken, and will He not establish it?
@@ -97,15 +97,15 @@ Since He has blessed, then I cannot reverse it.
 
 ## v21
 
-He has not beheld iniquity in Jacob, /  
+He has not beheld [[Numbers-23.fn#Footnote 21.1 — iniquity|iniquity]] in Jacob, /  
 Nor has He seen trouble in Israel; /  
 Jehovah their God is with them, /  
-And the shout of a king is among them.
+And the shout of a [[Numbers-23.fn#Footnote 21.2 — king|king]] is among them.
 
 ## v22
 
 God is the One who brought them forth out of Egypt; /  
-He has as it were the horns of the wild ox.
+[[Numbers-23.fn#Footnote 22.1 — He|He]] has as it were the [[Numbers-23.fn#Footnote 22.2 — horns|horns]] of the wild ox.
 
 ## v23
 

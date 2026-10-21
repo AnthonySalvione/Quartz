@@ -1,6 +1,6 @@
 ## v1
 
-Moreover David and the leaders of the army set apart for the service some of the sons of Asaph and Heman and Jeduthun to prophesy with lyres, harps, and cymbals. And the list of those who did the work according to their service was:
+Moreover David and the leaders of the army set apart for the service some of the sons of Asaph and [[1 Chronicles-25.fn#Footnote 1.1 — Heman|Heman]] and Jeduthun to prophesy with lyres, harps, and cymbals. And the list of those who did the work according to their service was:
 
 ## v2
 
@@ -8,7 +8,7 @@ Of the sons of Asaph: Zaccur and Joseph and Nethaniah and Asharelah, the sons of
 
 ## v3
 
-Of Jeduthun: the sons of Jeduthun: Gedaliah and Zeri and Jeshaiah and Shimei and Hashabiah and Mattithiah, six, under the direction of their father Jeduthun with the lyre, who prophesied in giving thanks and praising Jehovah.
+Of Jeduthun: the sons of Jeduthun: Gedaliah and Zeri and Jeshaiah [[1 Chronicles-25.fn#Footnote 3.1 — and|and]] Shimei and Hashabiah and Mattithiah, six, under the direction of their father Jeduthun with the lyre, who prophesied in giving thanks and praising Jehovah.
 
 ## v4
 
@@ -16,7 +16,7 @@ Of Heman: the sons of Heman: Bukkiah, Mattaniah, Uzziel, Shebuel and Jerimoth, H
 
 ## v5
 
-All these were the sons of Heman the king’s seer, for exalting His power with the words of God; and God gave Heman fourteen sons and three daughters.
+All these were the sons of Heman the king’s seer, for [[1 Chronicles-25.fn#Footnote 5.1 — exalting|exalting]] His power with the words of God; and God gave Heman fourteen sons and three daughters.
 
 ## v6
 

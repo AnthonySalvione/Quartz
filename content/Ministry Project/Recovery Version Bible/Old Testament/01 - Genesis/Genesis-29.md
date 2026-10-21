@@ -1,6 +1,6 @@
 ## v1
 
-Then Jacob went on his journey and came to the land of the children of the east.
+Then Jacob [[Genesis-29.fn#Footnote 1.1 — went|went]] on his journey and came to the land of the children of the east.
 
 ## v2
 
@@ -44,11 +44,11 @@ Then Jacob kissed Rachel and lifted up his voice and wept.
 
 ## v12
 
-And Jacob told Rachel that he was her father’s relative and that he was Rebekah’s son. And she ran and told her father.
+And Jacob told Rachel that he was her father’s [[Genesis-29.fn#Footnote 12.1 — relative|relative]] and that he was Rebekah’s son. And she ran and told her father.
 
 ## v13
 
-And when Laban heard the news of Jacob his sister’s son, he ran to meet him. And he embraced him and kissed him and brought him to his house. Then Jacob related to Laban all these things.
+And when Laban heard the news of Jacob his sister’s son, he ran to meet him. And he embraced him and kissed him and brought him to his house. Then [[Genesis-29.fn#Footnote 13.1 — Jacob|Jacob]] related to Laban all these things.
 
 ## v14
 
@@ -64,7 +64,7 @@ Now Laban had two daughters; the name of the older was Leah, and the name of the
 
 ## v17
 
-And Leah’s eyes were dull, but Rachel was beautiful in form and beautiful in appearance.
+And Leah’s eyes were [[Genesis-29.fn#Footnote 17.1 — dull|dull]], but Rachel was beautiful in form and beautiful in appearance.
 
 ## v18
 
@@ -96,7 +96,7 @@ And Laban gave Zilpah his female servant to his daughter Leah to be her female s
 
 ## v25
 
-And in the morning there she was, Leah! And he said to Laban, What is this you have done to me? Did I not serve with you for Rachel? Why then have you deceived me?
+And in the morning there she was, [[Genesis-29.fn#Footnote 25.1 — Leah|Leah]]! And he said to Laban, What is this you have done to me? Did I not serve with you for Rachel? Why then have you deceived me?
 
 ## v26
 
@@ -116,7 +116,7 @@ And Laban gave to Rachel his daughter Bilhah his female servant to be her female
 
 ## v30
 
-And he went in also to Rachel, and he also loved Rachel, more than Leah. And he served with Laban for another seven years.
+And he went in also to Rachel, and he also loved Rachel, more than Leah. And he served with [[Genesis-29.fn#Footnote 30.1 — Laban|Laban]] for another seven years.
 
 ## v31
 
@@ -124,16 +124,16 @@ Now when Jehovah saw that Leah was hated, He opened her womb; but Rachel was bar
 
 ## v32
 
-And Leah conceived and bore a son, and she called his name Reuben, for she said, Because Jehovah has looked upon my affliction, surely now my husband will love me.
+And Leah conceived and bore a son, and she called his name [[Genesis-29.fn#Footnote 32.1 — Reuben|Reuben]], for she said, Because Jehovah has looked upon my affliction, surely now my husband will love me.
 
 ## v33
 
-And she conceived again and bore a son and said, Because Jehovah has heard that I am hated, He has therefore given me this son also; so she called his name Simeon.
+And she conceived again and bore a son and said, Because Jehovah has heard that I am hated, He has therefore given me this son also; so she called his name [[Genesis-29.fn#Footnote 33.1 — Simeon|Simeon]].
 
 ## v34
 
-And she conceived again and bore a son and said, Now this time my husband will be joined to me, because I have borne him three sons. Therefore his name was called Levi.
+And she conceived again and bore a son and said, Now this time my husband will be joined to me, because I have borne him three sons. Therefore his name was called [[Genesis-29.fn#Footnote 34.1 — Levi|Levi]].
 
 ## v35
 
-And she conceived again and bore a son and said, This time I will praise Jehovah. Therefore she called his name Judah. Then she ceased bearing.
+And she conceived again and bore a son and said, This time I will praise Jehovah. Therefore she called his name [[Genesis-29.fn#Footnote 35.1 — Judah|Judah]]. Then she ceased bearing.

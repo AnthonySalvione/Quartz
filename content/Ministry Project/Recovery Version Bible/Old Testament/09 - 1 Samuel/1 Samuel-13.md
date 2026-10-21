@@ -1,6 +1,6 @@
 ## v1
 
-Saul was…years old when he began to reign; and he reigned over Israel two years.
+Saul [[1 Samuel-13.fn#Footnote 1.1 — was…years|was…years]] old when he began to reign; and he reigned over Israel two years.
 
 ## v2
 
@@ -32,7 +32,7 @@ And he waited for seven days, until the time appointed by Samuel, but Samuel did
 
 ## v9
 
-Then Saul said, Bring the burnt offering and the peace offerings to me. And he offered up the burnt offering.
+Then Saul said, Bring the burnt offering and the peace offerings to me. And he [[1 Samuel-13.fn#Footnote 9.1 — offered|offered]] up the burnt offering.
 
 ## v10
 
@@ -52,7 +52,7 @@ Then Samuel said to Saul, You have acted foolishly; you have not kept the comman
 
 ## v14
 
-But now your kingdom will not continue. Jehovah has sought a man according to His heart for Himself, and Jehovah has appointed him ruler over His people; for you have not kept that which Jehovah commanded you.
+But now your kingdom will not continue. Jehovah has sought a [[1 Samuel-13.fn#Footnote 14.1 — man|man]] according to His heart for Himself, and Jehovah has appointed [[1 Samuel-13.fn#Footnote 14.1 — man|him]] ruler over His people; for you have not kept that which Jehovah commanded you.
 
 ## v15
 
@@ -80,11 +80,11 @@ Therefore all Israel would go down to the Philistines so that each might sharpen
 
 ## v21
 
-And the price was two-thirds of a shekel for plowshares and for mattocks and for three-pronged forks and for axes and for setting the goads.
+[[1 Samuel-13.fn#Footnote 21.1 — And|And]] the price was two-thirds of a shekel for plowshares and for mattocks and for three-pronged forks and for axes and for setting the goads.
 
 ## v22
 
-So on the day of the battle there was not a sword or spear to be found in the hand of any of the people who were with Saul and with Jonathan, but such were found with Saul and Jonathan his son.
+So on the day of the battle there was [[1 Samuel-13.fn#Footnote 22.1 — not|not]] a sword or spear to be found in the hand of any of the people who were with Saul and with Jonathan, but such were found with Saul and Jonathan his son.
 
 ## v23
 

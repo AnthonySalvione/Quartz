@@ -1,6 +1,6 @@
 ## v1
 
-And Jacob called to his sons and said, Gather yourselves together that I may tell you what will happen to you in the last days.
+And Jacob called to his sons and said, Gather yourselves together that I may [[Genesis-49.fn#Footnote 1.1 — tell|tell]] you what will happen to you in the last days.
 
 ## v2
 
@@ -15,13 +15,13 @@ Preeminent in dignity and preeminent in power.
 
 ## v4
 
-Ebullient as water, you will not have the preeminence,  
+Ebullient as water, you will [[Genesis-49.fn#Footnote 4.1 — not|not]] have the preeminence,  
 Because you went up to your father’s bed;  
 Then you defiled it — he went up to my couch.
 
 ## v5
 
-Simeon and Levi are brothers;  
+[[Genesis-49.fn#Footnote 5.1 — Simeon|Simeon]] and Levi are brothers;  
 Weapons of violence are their swords.
 
 ## v6
@@ -33,95 +33,95 @@ And in their self-will they hamstrung oxen.
 
 ## v7
 
-Cursed be their anger, for it is fierce;  
+[[Genesis-49.fn#Footnote 7.1 — Cursed|Cursed]] be their anger, for it is fierce;  
 And their wrath, for it is cruel:  
 I will divide them in Jacob,  
 And scatter them in Israel.
 
 ## v8
 
-Judah, your brothers will praise you;  
+[[Genesis-49.fn#Footnote 8.1 — Judah|Judah]], your brothers will praise you;  
 Your hand will be on the neck of your enemies;  
 Your father’s sons will bow down before you.
 
 ## v9
 
-Judah is a young lion;  
-From the prey, my son, you have gone up.  
-He couches, he stretches out like a lion,  
-And like a lioness; who will rouse him up?
+Judah is a young [[Genesis-49.fn#Footnote 9.1 — lion|lion]];  
+From the prey, my son, you have gone [[Genesis-49.fn#Footnote 9.2 — up|up]].  
+He [[Genesis-49.fn#Footnote 9.2 — up|couches]], he stretches out like a lion,  
+And like a [[Genesis-49.fn#Footnote 9.3 — lioness|lioness]]; [[Genesis-49.fn#Footnote 9.4 — who|who]] will rouse him up?
 
 ## v10
 
-The scepter will not depart from Judah,  
-Nor the ruler’s staff from between his feet,  
-Until Shiloh comes,  
-And to Him shall be the obedience of the peoples.
+The [[Genesis-49.fn#Footnote 10.1 — scepter|scepter]] will not depart from Judah,  
+Nor the ruler’s staff from [[Genesis-49.fn#Footnote 10.2 — between|between]] his feet,  
+Until [[Genesis-49.fn#Footnote 10.3 — Shiloh|Shiloh]] comes,  
+And to Him shall be the obedience of the [[Genesis-49.fn#Footnote 10.4 — peoples|peoples]].
 
 ## v11
 
-Binding his foal to the vine,  
+Binding his [[Genesis-49.fn#Footnote 11.1 — foal|foal]] to the vine,  
 And his donkey’s colt to the choice vine,  
-He washes his garment in wine,  
+He washes his [[Genesis-49.fn#Footnote 11.2 — garment|garment]] in wine,  
 And his robe in the blood of grapes.
 
 ## v12
 
-Dark are his eyes with wine,  
+[[Genesis-49.fn#Footnote 12.1 — Dark|Dark]] are his eyes with wine,  
 And white are his teeth with milk.
 
 ## v13
 
 Zebulun will dwell at the shore of the sea,  
-And he will be a shore for ships,  
-And his flank will be toward Sidon.
+And he will be a shore for [[Genesis-49.fn#Footnote 13.1 — ships|ships]],  
+And his flank will be toward [[Genesis-49.fn#Footnote 13.2 — Sidon|Sidon]].
 
 ## v14
 
 Issachar is a strong donkey,  
-Couching between the sheepfolds.
+[[Genesis-49.fn#Footnote 14.1 — Couching|Couching]] between the sheepfolds.
 
 ## v15
 
 And he saw a resting place that was good  
-And the land that was pleasant,  
+And the [[Genesis-49.fn#Footnote 15.1 — land|land]] that was pleasant,  
 And he bowed his shoulder to bear,  
-And became a task-worker to bring tribute.
+And became a [[Genesis-49.fn#Footnote 15.2 — task-worker|task-worker]] to bring [[Genesis-49.fn#Footnote 15.3 — tribute|tribute]].
 
 ## v16
 
 Dan will judge his people,  
-As one of the tribes of Israel.
+As one of the [[Genesis-49.fn#Footnote 16.1 — tribes|tribes]] of Israel.
 
 ## v17
 
-Dan will be a serpent in the way,  
+Dan will be a [[Genesis-49.fn#Footnote 17.1 — serpent|serpent]] in the way,  
 A viper on the path,  
 That bites the horse’s heels,  
 So that his rider falls backward.
 
 ## v18
 
-I have waited for Your salvation, O Jehovah.
+I have waited for Your [[Genesis-49.fn#Footnote 18.1 — salvation|salvation]], O Jehovah.
 
 ## v19
 
 Gad, raiders will raid him,  
-But he will raid at their heel.
+But he will raid at [[Genesis-49.fn#Footnote 19.1 — their|their]] heel.
 
 ## v20
 
-Asher’s food will be rich,  
+[[Genesis-49.fn#Footnote 20.1 — Asher’s|Asher’s]] food will be [[Genesis-49.fn#Footnote 20.2 — rich|rich]],  
 And he will yield royal dainties.
 
 ## v21
 
-Naphtali is a hind let loose;  
+Naphtali is a [[Genesis-49.fn#Footnote 21.1 — hind|hind]] let loose;  
 He gives beautiful words.
 
 ## v22
 
-Joseph is a fruitful bough,  
+Joseph is a fruitful [[Genesis-49.fn#Footnote 22.1 — bough|bough]],  
 A fruitful bough by a fountain;  
 His branches run over the wall.
 
@@ -133,14 +133,14 @@ And shot at him and harassed him;
 ## v24
 
 But his bow remained firm,  
-And the arms of his hands were agile,  
+And the arms of his hands were [[Genesis-49.fn#Footnote 24.1 — agile|agile]],  
 By the hands of the Mighty One of Jacob —  
 From there is the Shepherd, the stone of Israel —
 
 ## v25
 
 From the God of your father, who will help you,  
-And from the All-sufficient One, who will bless you  
+And from the [[Genesis-49.fn#Footnote 25.1 — All-sufficient|All-sufficient]] One, who will [[Genesis-49.fn#Footnote 25.2 — bless|bless]] you  
 With blessings of heaven above,  
 Blessings of the deep that lies beneath,  
 Blessings of the breasts and of the womb.
@@ -151,13 +151,13 @@ The blessings of your father surpass
 The blessings of my ancestors  
 To the utmost bound of the everlasting hills.  
 They will be on the head of Joseph,  
-And on the crown of the head of the one who was separate from his brothers.
+And on the crown of the head of the one who was [[Genesis-49.fn#Footnote 26.1 — separate|separate]] from his brothers.
 
 ## v27
 
-Benjamin is a ravenous wolf,  
+Benjamin is a [[Genesis-49.fn#Footnote 27.1 — ravenous|ravenous]] wolf,  
 In the morning devouring the prey  
-And in the evening dividing the spoil.
+And in the evening dividing the [[Genesis-49.fn#Footnote 27.2 — spoil|spoil]].
 
 ## v28
 
@@ -165,7 +165,7 @@ All these are the twelve tribes of Israel, and this is what their father spoke t
 
 ## v29
 
-And he charged them and said to them, I am being gathered to my people. Bury me with my fathers in the cave that is in the field of Ephron the Hittite,
+And he charged them and said to them, I am being gathered to my people. [[Genesis-49.fn#Footnote 29.1 — Bury|Bury]] me with my fathers in the cave that is in the field of Ephron the Hittite,
 
 ## v30
 

@@ -1,0 +1,38 @@
+---
+document type: reading
+source: The Experience and Growth in Life
+---
+# Chapter Four—The growth in life (2)
+
+## Scripture Reading: 
+[[Genesis-01#v26|Gen. 1:26]]; [[Romans-11#v24|Rom. 11:24]]; [[Romans-06#v5|6:5]]; [[Galatians-02#v20|Gal. 2:20]]
+
+## Man as a vessel according to God’s kind
+
+Life is the processed Triune God to be our destined portion. God created us as vessels that we might contain Him as our life. Without Him the created vessels are empty, having no portion, and their existence is a vanity. All thoughtful persons realize that their human life is vanity. Ecclesiastes was written by the experienced and wise King Solomon. In it he says, “Vanity of vanities; all is vanity” ([[Ecclesiastes-01#v2|1:2]]). Everything on earth is vanity of vanities because apart from God, man is empty. Man was made as an empty vessel in order to receive God as his portion, that is, as his life, life supply, and everything.
+
+God created man in a marvelous way. Whether a person has received God or is an atheist, not willing to receive Him, he must admit that man is the masterpiece of God’s creation. The first items of God’s creation were the things without life. Second, the things with the lowest life, the vegetable life, were created. They cannot speak or understand; they do not have a mind, an emotion, and a will. Then a higher life, the animal life, was created. Among the animal lives, there are higher lives and lower lives. An insect’s life is not as high as a dog’s life, and a dog’s life is not as strong as the lives of higher animals. However, the animal life is not the highest. The highest life in God’s creation is the human life.
+
+All living things are according to their own kind ([[Genesis-01#v12|Gen. 1:12]], [[Genesis-01#v24|24]]). The human life, however, is not according to the human kind but according to God’s kind ([[Genesis-01#v26|v. 26]]). We are according to God’s kind because we were made according to God, having God’s image and God’s likeness. Image refers to the divine attributes. God is loving; this is His image. Therefore, we also are loving. God is pure, and we were made pure, even though today we are fallen. God is in the light, and we desire to be in the light; we do not like to be in darkness. These are some of God’s divine attributes. The attributes that we possess are the same as God’s attributes, but the nature is different. God’s attributes are divine; ours are not divine. What we possess is God’s image. Therefore, man with his attributes is a vessel to contain God.
+
+Likeness refers to the outward form. According to their appearance, man, the angels, and God are in one class. The angels look like human beings. After the Lord Jesus resurrected, His disciples came to His tomb, where they saw two men ([[Luke-24#v4|Luke 24:4]]). Actually, those were not men but angels ([[John-20#v12|John 20:12]]). On the one hand, the Bible tells us that God has no visible form. However, when He came to Abraham with two angels in Genesis 18, He appeared as a man ([[John-20#v1|vv. 1-2]]). Abraham welcomed the three and prepared water for them to wash their feet. His wife prepared a meal, and they all ate, including Jehovah and the two angels. When Jehovah was leaving, Abraham accompanied Him, walking and talking with Him. In the form of a man, Jehovah talked to Abraham as an intimate friend ([[John-20#v16|vv. 16-33]]; [[James-02#v23|James 2:23]]).
+
+## The grafted life
+
+In order to grow in life, we need to see that the Christian life is a grafted life ([[Romans-11#v24|Rom. 11:24]]; [[Romans-06#v5|6:5]]; [[Galatians-02#v20|Gal. 2:20]]). Two trees of diverse kinds cannot be grafted. They cannot grow together, because they are not of one kind. Because man was created according to God’s kind, man and God can be grafted together. If we are not clear about the principle of grafting, we will not be able to properly apprehend the matter of life. We will make mistakes related to life. Many Christians emphasize certain verses related to the Christian life, such as [[Romans-06#v5|Romans 6:5]] and [[Galatians-02#v20|Galatians 2:20]]. They feel that these verses refer to an exchanged life. However, the grafted life is not an exchanged life. The Christian life is a mingling of two lives, a life of two natures. Both lives still exist in the grafting.
+
+Jesus was a fully grafted person, a person of two natures. On the one hand, when He lived on the earth, He was the real God. On the other hand, He was a man expressing God. He was God expressed through man. We also are persons of two natures, the human and the divine. When we receive the divine life, our human life is not ended. Our human life still exists.
+
+Even though the human and divine lives are of one kind, one is stronger than the other. We are now living by a weaker life with a stronger life. Whenever a weaker life is put with a stronger life, the stronger one subdues the weaker one. The sisters are the weaker vessels married to the brothers, who are the stronger vessels. For this reason the wife takes the husband’s surname as her own. In this sense the wives are subdued. On their wedding day the sisters realize this and put a covering over their head. During the wedding, only the husband’s head can be seen. This indicates that the two should live one life.
+
+In the meeting we may joyfully proclaim, “I am a part of Christ, I am one with Christ, and I am mingled with Christ.” However, after the meeting we may desire to be the head and want Christ to be the covered one. We must always remember that we are the wife and He is the Husband. As such, we are two persons living one life together without separation. One lives in the other and through the other. This is the way the grafted life can come into being.
+
+When we love, we do not love by ourselves. We love with Christ, through Christ, and in Christ, and Christ loves through us. This kind of love does not express our human virtue alone but our human virtue with Christ’s divine attributes. His divine love becomes the very essence of our human love. This is not two loves existing together but one love living in the other. This can be compared to a hand in a glove. The hand and the glove are not two parties merely existing together. Rather, the hand is put into the glove, making the two objects one. When we are loving others, it is Christ who is loving, but not by Himself; Christ is loving through us. He is the “hand” and we are the “glove,” not as a pair but as one in the other. The human life has the divine life within it as its content, and the divine life has the human life as its expression. If this is not clear to us, we can never understand the Christian life.
+
+Thank the Lord that there is such a thing as grafting. Hymns, [[Hymn-482|##482]] was written by A. B. Simpson, the founder of the Christian and Missionary Alliance. [[Hymn-482#Stanza 3|Stanza 3]] says,
+
+> ![[Hymn-482#Stanza 3]]
+
+We must learn to see the grafted life and learn to exercise and practice it. We should not be joined with Christ as a pair. We must be joined to Him in the way of coinherence. He lives in us, and we live in Him.
+
+The Christian life is a grafted life, the mingling of two lives that are close in kind. To see this and practice it require us to be in our spirit. We need to walk in life according to the spirit and do nothing without Christ. We should do everything with Christ and through Christ. If we do not have the assurance that we are doing something with Christ and through Christ, we should stop. This principle must be practiced throughout our entire Christian life.

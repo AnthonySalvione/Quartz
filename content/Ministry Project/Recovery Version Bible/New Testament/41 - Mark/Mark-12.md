@@ -3,7 +3,7 @@ Author: Mark
 ---
 ## v1
 
-And He began to speak to them in parables: A man planted a vineyard and put a hedge around it and dug a vat for a winepress and built a tower; and he leased it out to vinedressers and went abroad.
+[[Mark-12.fn#Footnote 1.1 — And|And]] He began to speak to them in parables: A man planted a vineyard and put a hedge around it and dug a vat for a winepress and built a tower; and he leased it out to vinedressers and went abroad.
 
 ## v2
 
@@ -35,11 +35,11 @@ And they took him and killed him and threw him out of the vineyard.
 
 ## v9
 
-What then will the master of the vineyard do? He will come and destroy the vinedressers and will give the vineyard to others.
+What then will the master of the vineyard do? He will come and destroy the vinedressers and will give the vineyard to [[Mark-12.fn#Footnote 9.1 — others|others]].
 
 ## v10
 
-Have you not even read this Scripture, “The stone which the builders rejected, this has become the head of the corner.
+Have you not even read this Scripture, “The stone which the builders rejected, this has become the head of the [[Mark-12.fn#Footnote 10.1 — corner|corner]].
 
 ## v11
 
@@ -51,11 +51,11 @@ And they sought to seize Him, yet they feared the crowd, for they perceived that
 
 ## v13
 
-And they sent to Him some of the Pharisees and Herodians that they might catch Him in His speech.
+[[Mark-12.fn#Footnote 13.1 — And|And]] they sent to Him some of the [[Mark-12.fn#Footnote 13.2 — Pharisees|Pharisees]] and Herodians that they might catch Him in His speech.
 
 ## v14
 
-And they came and said to Him, Teacher, we know that You are true and do not fear anyone, for You do not regard the person of men, but teach the way of God in truth. Is it lawful to give tribute to Caesar, or not? Should we give, or should we not give?
+And they came and said to Him, Teacher, we know that You are true and [[Mark-12.fn#Footnote 14.1 — do|do]] not fear anyone, for You do not regard the [[Mark-12.fn#Footnote 14.2 — person|person]] of men, but teach the way of God in truth. Is it lawful to give tribute to Caesar, or not? Should we give, or should we not give?
 
 ## v15
 
@@ -71,7 +71,7 @@ And Jesus said to them, The things that are Caesar’s render to Caesar, and the
 
 ## v18
 
-And some Sadducees came to Him, who say that there is no resurrection, and they questioned Him, saying,
+[[Mark-12.fn#Footnote 18.1 — And|And]] some Sadducees came to Him, who say that there is no resurrection, and they questioned Him, saying,
 
 ## v19
 
@@ -111,7 +111,7 @@ He is not the God of the dead, but of the living. You err greatly.
 
 ## v28
 
-And one of the scribes approached and heard them disputing; and perceiving that He answered them well, he questioned Him, Which is the first commandment of all?
+And [[Mark-12.fn#Footnote 28.1 — one|one]] of the [[Mark-12.fn#Footnote 28.2 — scribes|scribes]] approached and heard them [[Mark-12.fn#Footnote 28.3 — disputing|disputing]]; and perceiving that He answered them well, he questioned Him, Which is the first commandment of all?
 
 ## v29
 
@@ -119,11 +119,11 @@ Jesus answered, The first is: “Hear, Israel: the Lord our God is one Lord;
 
 ## v30
 
-And you shall love the Lord your God from your whole heart and from your whole soul and from your whole mind and from your whole strength.”
+And you shall love the Lord your God from your whole heart and from your whole soul and from your whole mind and from your whole [[Mark-12.fn#Footnote 30.1 — strength|strength]].”
 
 ## v31
 
-The second is this: “You shall love your neighbor as yourself.” There is no other commandment greater than these.
+The second is this: “You shall love your neighbor as yourself.” There is no other commandment greater than [[Mark-12.fn#Footnote 31.1 — these|these]].
 
 ## v32
 
@@ -139,7 +139,7 @@ And Jesus, seeing that he answered intelligently, said to him, You are not far f
 
 ## v35
 
-And Jesus, while He was teaching in the temple, answered and said, How is it that the scribes say that the Christ is the son of David?
+[[Mark-12.fn#Footnote 35.1 — And|And]] Jesus, while He was [[Mark-12.fn#Footnote 35.2 — teaching|teaching]] in the temple, answered and said, How is it that the [[Mark-12.fn#Footnote 35.3 — scribes|scribes]] say that the Christ is the son of David?
 
 ## v36
 
@@ -147,7 +147,7 @@ David himself said in the Holy Spirit, “The Lord said to my Lord, Sit at My ri
 
 ## v37
 
-David himself calls Him Lord, and how is He his son? And the great crowd heard Him gladly.
+David himself calls Him Lord, and how is He his [[Mark-12.fn#Footnote 37.1 — son|son]]? And the great crowd heard Him gladly.
 
 ## v38
 
@@ -159,15 +159,15 @@ And chief seats in the synagogues and places of honor at the dinners,
 
 ## v40
 
-Who devour the widows’ houses, and for a pretense make long prayers. These shall receive greater judgment.
+Who devour the widows’ houses, and for a pretense make long prayers. These shall receive greater [[Mark-12.fn#Footnote 40.1 — judgment|judgment]].
 
 ## v41
 
-And He sat down opposite the treasury and watched how the crowd cast money into the treasury. And many rich people cast in much.
+And He sat down opposite the treasury and [[Mark-12.fn#Footnote 41.1 — watched|watched]] how the crowd cast [[Mark-12.fn#Footnote 41.2 — money|money]] into the treasury. And many rich people cast in much.
 
 ## v42
 
-And one poor widow came and cast in two lepta, which is a quadrans.
+And one poor widow came and cast in two lepta, which is a [[Mark-12.fn#Footnote 42.1 — quadrans|quadrans]].
 
 ## v43
 

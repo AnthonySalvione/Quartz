@@ -44,7 +44,7 @@ But Naaman became furious and went away and said, I thought, He will surely come
 
 ## v12
 
-Are not the Abana and the Pharpar, the rivers of Damascus, better than all the waters of Israel? Could I not wash in them and be clean? So he turned and went away in a rage.
+Are not the [[2 Kings-05.fn#Footnote 12.1 — Abana|Abana]] and the Pharpar, the rivers of Damascus, better than all the waters of Israel? Could I not wash in them and be clean? So he turned and went away in a rage.
 
 ## v13
 
@@ -52,7 +52,7 @@ And his servants came near and spoke to him and said, My father, had the prophet
 
 ## v14
 
-So he went down and dipped in the Jordan seven times according to the word of the man of God. And his flesh was restored to be like the flesh of a little boy, and he was clean.
+So he went down and dipped in the Jordan seven times according to the word of the man of God. And his flesh was [[2 Kings-05.fn#Footnote 14.1 — restored|restored]] to be like the flesh of a little boy, and he was clean.
 
 ## v15
 

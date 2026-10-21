@@ -1,6 +1,6 @@
 ## v1
 
-Adam, Seth, Enosh,
+[[1 Chronicles-01.fn#Footnote 1.1 — Adam|Adam]], Seth, Enosh,
 
 ## v2
 
@@ -132,7 +132,7 @@ And the sons of Midian: Ephah and Epher and Hanoch and Abida and Eldaah. All the
 
 ## v34
 
-And Abraham begot Isaac. The sons of Isaac: Esau and Israel.
+And Abraham begot [[1 Chronicles-01.fn#Footnote 34.1 — Isaac|Isaac]]. The sons of Isaac: Esau and [[1 Chronicles-01.fn#Footnote 34.2 — Israel|Israel]].
 
 ## v35
 
@@ -160,7 +160,7 @@ The sons of Shobal: Alian and Manahath and Ebal, Shephi and Onam. And the sons o
 
 ## v41
 
-The son of Anah: Dishon. And the sons of Dishon: Hamran and Eshban and Ithran and Cheran.
+The [[1 Chronicles-01.fn#Footnote 41.1 — son|son]] of Anah: Dishon. And the sons of Dishon: Hamran and Eshban and Ithran and Cheran.
 
 ## v42
 
@@ -200,7 +200,7 @@ And Baal-hanan died, and Hadad reigned in his place. And the name of his city wa
 
 ## v51
 
-And Hadad died. And the clans of Edom were: Clan Timna, Clan Alvah, Clan Jetheth,
+And Hadad died. And the [[1 Chronicles-01.fn#Footnote 51.1 — clans|clans]] of Edom were: Clan Timna, Clan Alvah, Clan Jetheth,
 
 ## v52
 

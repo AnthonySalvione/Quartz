@@ -3,11 +3,11 @@ Author: Paul
 ---
 ## v1
 
-It is for freedom that Christ has set us free; stand fast therefore, and do not be entangled with a yoke of slavery again.
+It is for [[Galatians-05.fn#Footnote 1.1 — freedom|freedom]] that Christ has set us free; [[Galatians-05.fn#Footnote 1.2 — stand|stand]] fast therefore, and do not be [[Galatians-05.fn#Footnote 1.3 — entangled|entangled]] with a [[Galatians-05.fn#Footnote 1.4 — yoke|yoke]] of slavery again.
 
 ## v2
 
-Behold, I Paul say to you that if you become circumcised, Christ will profit you nothing.
+Behold, I Paul say to you that if you become [[Galatians-05.fn#Footnote 2.1 — circumcised|circumcised]], Christ will profit you [[Galatians-05.fn#Footnote 2.2 — nothing|nothing]].
 
 ## v3
 
@@ -15,27 +15,27 @@ And I testify again to every man who becomes circumcised that he is a debtor to 
 
 ## v4
 
-You have been brought to nought, separated from Christ, you who are being justified by law; you have fallen from grace.
+You have been [[Galatians-05.fn#Footnote 4.1 — brought|brought]] to nought, separated from Christ, you who are being justified by law; you have [[Galatians-05.fn#Footnote 4.2 — fallen|fallen]] from grace.
 
 ## v5
 
-For we by the Spirit out of faith eagerly await the hope of righteousness.
+For we [[Galatians-05.fn#Footnote 5.1 — by|by]] the Spirit [[Galatians-05.fn#Footnote 5.2 — out|out]] of faith eagerly await the [[Galatians-05.fn#Footnote 5.3 — hope|hope]] of righteousness.
 
 ## v6
 
-For in Christ Jesus neither circumcision avails anything nor uncircumcision, but faith avails, operating through love.
+For in Christ Jesus neither circumcision [[Galatians-05.fn#Footnote 6.1 — avails|avails]] anything nor uncircumcision, but faith avails, [[Galatians-05.fn#Footnote 6.2 — operating|operating]] through [[Galatians-05.fn#Footnote 6.3 — love|love]].
 
 ## v7
 
-You were running well. Who hindered you that you would not believe and obey the truth?
+You were running well. Who hindered you that you would not believe and obey the [[Galatians-05.fn#Footnote 7.1 — truth|truth]]?
 
 ## v8
 
-This persuasion is not of Him who calls you.
+This [[Galatians-05.fn#Footnote 8.1 — persuasion|persuasion]] is not of Him who calls you.
 
 ## v9
 
-A little leaven leavens the whole lump.
+A little [[Galatians-05.fn#Footnote 9.1 — leaven|leaven]] leavens the [[Galatians-05.fn#Footnote 9.1 — leaven|whole]] lump.
 
 ## v10
 
@@ -43,15 +43,15 @@ I am confident in the Lord concerning you that you will be of no other mind; but
 
 ## v11
 
-But I, brothers, if I still preach circumcision, why am I still being persecuted? Then the stumbling block of the cross has been annulled.
+But I, brothers, if I still preach [[Galatians-05.fn#Footnote 11.1 — circumcision|circumcision]], why am I still being persecuted? Then the stumbling block of the [[Galatians-05.fn#Footnote 11.1 — circumcision|cross]] has been annulled.
 
 ## v12
 
-I wish that those upsetting you would even cut themselves off.
+I wish that those upsetting you would even [[Galatians-05.fn#Footnote 12.1 — cut|cut]] themselves off.
 
 ## v13
 
-For you were called for freedom, brothers; only do not turn this freedom into an opportunity for the flesh, but through love serve one another.
+For you were called for [[Galatians-05.fn#Footnote 13.1 — freedom|freedom]], brothers; only do not turn this freedom into an opportunity for the [[Galatians-05.fn#Footnote 13.2 — flesh|flesh]], but through love [[Galatians-05.fn#Footnote 13.3 — serve|serve]] one another.
 
 ## v14
 
@@ -63,31 +63,31 @@ But if you bite and devour one another, beware lest you be consumed by one anoth
 
 ## v16
 
-But I say, Walk by the Spirit and you shall by no means fulfill the lust of the flesh.
+But I say, [[Galatians-05.fn#Footnote 16.1 — Walk|Walk]] by the [[Galatians-05.fn#Footnote 16.2 — Spirit|Spirit]] and you shall by no means fulfill the lust of the [[Galatians-05.fn#Footnote 16.2 — Spirit|flesh]].
 
 ## v17
 
-For the flesh lusts against the Spirit, and the Spirit against the flesh; for these oppose each other that you would not do the things that you desire.
+For the [[Galatians-05.fn#Footnote 17.1 — flesh|flesh]] lusts against the [[Galatians-05.fn#Footnote 17.2 — Spirit|Spirit]], and the Spirit against the flesh; for these [[Galatians-05.fn#Footnote 17.3 — oppose|oppose]] each other that you would not do the things that you desire.
 
 ## v18
 
-But if you are led by the Spirit, you are not under the law.
+But if you are led by the [[Galatians-05.fn#Footnote 18.1 — Spirit|Spirit]], you are not under the [[Galatians-05.fn#Footnote 18.1 — Spirit|law]].
 
 ## v19
 
-And the works of the flesh are manifest, which are such things as fornication, uncleanness, lasciviousness,
+And the [[Galatians-05.fn#Footnote 19.1 — works|works]] of the flesh are manifest, which are such things as [[Galatians-05.fn#Footnote 19.2 — fornication|fornication]], uncleanness, lasciviousness,
 
 ## v20
 
-Idolatry, sorcery, enmities, strife, jealousy, outbursts of anger, factions, divisions, sects,
+[[Galatians-05.fn#Footnote 20.1 — Idolatry|Idolatry]], sorcery, [[Galatians-05.fn#Footnote 20.2 — enmities|enmities]], strife, jealousy, outbursts of anger, [[Galatians-05.fn#Footnote 20.3 — factions|factions]], divisions, [[Galatians-05.fn#Footnote 20.4 — sects|sects]],
 
 ## v21
 
-Envyings, bouts of drunkenness, carousings, and things like these, of which I tell you beforehand, even as I have said before, that those who practice such things will not inherit the kingdom of God.
+Envyings, [[Galatians-05.fn#Footnote 21.1 — bouts|bouts]] of drunkenness, carousings, and things like these, of which I tell you beforehand, even as I have said before, that those who practice such things will not [[Galatians-05.fn#Footnote 21.2 — inherit|inherit]] the kingdom of God.
 
 ## v22
 
-But the fruit of the Spirit is love, joy, peace, long-suffering, kindness, goodness, faithfulness,
+But the [[Galatians-05.fn#Footnote 22.1 — fruit|fruit]] of the Spirit is love, joy, peace, long-suffering, kindness, goodness, faithfulness,
 
 ## v23
 
@@ -95,12 +95,12 @@ Meekness, self-control; against such things there is no law.
 
 ## v24
 
-But they who are of Christ Jesus have crucified the flesh with its passions and its lusts.
+[[Galatians-05.fn#Footnote 24.1 — But|But]] they who are of Christ Jesus [[Galatians-05.fn#Footnote 24.2 — have|have]] [[Galatians-05.fn#Footnote 24.3 — crucified|crucified]] the flesh with its passions and its lusts.
 
 ## v25
 
-If we live by the Spirit, let us also walk by the Spirit.
+If we [[Galatians-05.fn#Footnote 25.1 — live|live]] by the Spirit, let us also [[Galatians-05.fn#Footnote 25.2 — walk|walk]] by the Spirit.
 
 ## v26
 
-Let us not become vainglorious, provoking one another, envying one another.
+Let us [[Galatians-05.fn#Footnote 26.1 — not|not]] become vainglorious, provoking one another, envying one another.

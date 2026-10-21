@@ -4,11 +4,11 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Tell Aaron and his sons to be careful with the holy things of the children of Israel, which they sanctify to Me, so that they do not profane My holy name; I am Jehovah.
+Tell Aaron and his sons to [[Leviticus-22.fn#Footnote 2.1 — be|be]] careful with the [[Leviticus-22.fn#Footnote 2.2 — holy|holy]] things of the children of Israel, which they sanctify to Me, so that they do not profane My holy name; I am Jehovah.
 
 ## v3
 
-Say to them, If anyone among all your seed throughout your generations approaches the holy things, which the children of Israel sanctify to Jehovah, and his uncleanness is upon him, that person shall be cut off from before Me; I am Jehovah.
+Say to them, If anyone among all your seed throughout your generations approaches the holy things, which the children of Israel sanctify to Jehovah, and his [[Leviticus-22.fn#Footnote 3.1 — uncleanness|uncleanness]] is upon him, that person shall be cut off from before Me; I am Jehovah.
 
 ## v4
 
@@ -20,7 +20,7 @@ Or whoever touches any creeping thing by which he may be made unclean, or a man 
 
 ## v6
 
-The person who touches any such thing shall be unclean until the evening and shall not eat of the holy things unless he has bathed his body in water.
+The person who touches any such thing shall be unclean until the evening and shall not eat of the holy things unless he has bathed his [[Leviticus-22.fn#Footnote 6.1 — body|body]] in water.
 
 ## v7
 
@@ -36,7 +36,7 @@ They shall therefore keep My charge, so that they do not bring sin upon themselv
 
 ## v10
 
-No stranger may eat any holy thing; a sojourner with a priest or a hired servant shall not eat any holy thing.
+No [[Leviticus-22.fn#Footnote 10.1 — stranger|stranger]] may eat any holy thing; a sojourner with a priest or a hired servant shall not eat any holy thing.
 
 ## v11
 
@@ -44,7 +44,7 @@ But if a priest acquires anyone through a purchase with his money, that one may 
 
 ## v12
 
-And if a priest’s daughter is married to a stranger, she shall not eat of the heave offering of the holy things.
+And if a priest’s [[Leviticus-22.fn#Footnote 12.1 — daughter|daughter]] is married to a stranger, she shall not eat of the heave offering of the holy things.
 
 ## v13
 
@@ -68,7 +68,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v18
 
-Speak to Aaron and to his sons and to all the children of Israel, and say to them, When anyone of the house of Israel or of the sojourners in Israel presents his offering, whether it is any of their vows or any of their freewill offerings which they present to Jehovah for a burnt offering;
+Speak to Aaron and to his sons and to all the children of Israel, and say to them, When anyone of the house of Israel or of the sojourners in Israel presents his offering, whether it is any of their [[Leviticus-22.fn#Footnote 18.1 — vows|vows]] or any of their [[Leviticus-22.fn#Footnote 18.1 — vows|freewill]] offerings which they present to Jehovah for a burnt offering;
 
 ## v19
 
@@ -80,7 +80,7 @@ But whatever has a blemish, you shall not present, for it will not be acceptable
 
 ## v21
 
-And whoever presents a sacrifice of peace offerings to Jehovah to make a special vow or for a freewill offering, from the herd or from the flock, it shall be perfect to be accepted; there shall be no blemish in it.
+And whoever presents a sacrifice of peace offerings to Jehovah to [[Leviticus-22.fn#Footnote 21.1 — make|make]] a special vow or for a freewill offering, from the herd or from the flock, it shall be perfect to be accepted; there shall be no blemish in it.
 
 ## v22
 
@@ -88,7 +88,7 @@ You shall not present these to Jehovah: anything blind or injured or maimed or h
 
 ## v23
 
-An ox or a lamb that has anything superfluous or lacking in its parts, that you may offer for a freewill offering; but it shall not be accepted for a vow.
+An ox or a lamb that has anything [[Leviticus-22.fn#Footnote 23.1 — superfluous|superfluous]] or lacking in its parts, that you may offer for a freewill offering; but it shall not be accepted for a vow.
 
 ## v24
 
@@ -96,7 +96,7 @@ And anything with its testicles bruised or crushed or broken or cut, you shall n
 
 ## v25
 
-And from the hand of a foreigner you shall not present the food of your God from any of these, because their corruption is in them. There is a blemish in them; they shall not be accepted for you.
+And from the hand of a [[Leviticus-22.fn#Footnote 25.1 — foreigner|foreigner]] you shall not present the food of your God from any of these, because their corruption is in them. There is a blemish in them; they shall not be accepted for you.
 
 ## v26
 
@@ -104,7 +104,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v27
 
-When an ox or a sheep or a goat is born, it shall remain seven days with its mother; and from the eighth day and onward it shall be accepted for the offering of an offering by fire to Jehovah.
+When an ox or a sheep or a goat is born, it shall remain seven days with its mother; and from the [[Leviticus-22.fn#Footnote 27.1 — eighth|eighth]] day and onward it shall be accepted for the offering of an offering by fire to Jehovah.
 
 ## v28
 
@@ -116,7 +116,7 @@ And when you sacrifice a sacrifice of thanksgiving to Jehovah, you shall sacrifi
 
 ## v30
 
-On the same day it shall be eaten; you shall leave none of it until the morning; I am Jehovah.
+On the [[Leviticus-22.fn#Footnote 30.1 — same|same]] day it shall be eaten; you shall leave none of it until the morning; I am Jehovah.
 
 ## v31
 

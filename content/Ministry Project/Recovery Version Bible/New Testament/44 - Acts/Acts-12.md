@@ -3,7 +3,7 @@ Author: Luke
 ---
 ## v1
 
-Now about that time Herod the king laid hands on some from the church in order to mistreat them.
+Now about that time [[Acts-12.fn#Footnote 1.1 — Herod|Herod]] the king laid hands on some from the church in order to mistreat them.
 
 ## v2
 
@@ -15,7 +15,7 @@ And when he saw that it was pleasing to the Jews, he went on to arrest Peter als
 
 ## v4
 
-Whom also he seized and put in prison, delivering him to four quaternions of soldiers to guard him, intending after the Passover to bring him out to the people.
+Whom also he seized and put in prison, delivering him to four [[Acts-12.fn#Footnote 4.1 — quaternions|quaternions]] of soldiers to guard him, intending after the Passover to bring him out to the people.
 
 ## v5
 
@@ -43,7 +43,7 @@ And passing the first guard and the second, they came to the iron gate that lead
 
 ## v11
 
-And Peter came to himself and said, Now I know truly that the Lord has sent forth His angel and rescued me out of Herod’s hand and from all the expectation of the Jewish people.
+And Peter [[Acts-12.fn#Footnote 11.1 — came|came]] to himself and said, Now I know truly that the Lord has sent forth His angel and rescued me out of Herod’s hand and from all the expectation of the Jewish people.
 
 ## v12
 
@@ -59,7 +59,7 @@ And when she recognized Peter’s voice, she did not open the gate for joy, but 
 
 ## v15
 
-But they said to her, You are crazy! But she insisted that it was so. And they said, It is his angel.
+But they said to her, You are crazy! But she insisted that it was so. And they said, It is [[Acts-12.fn#Footnote 15.1 — his|his]] angel.
 
 ## v16
 
@@ -67,7 +67,7 @@ But Peter continued knocking; and when they had opened the gate, they saw him an
 
 ## v17
 
-And motioning to them with his hand to be silent, he related to them how the Lord had led him out of the prison, and he said, Report these things to James and the brothers. And going out, he went to another place.
+And motioning to them with his hand to be silent, he related to them how the Lord had led him out of the prison, and he said, Report these things to [[Acts-12.fn#Footnote 17.1 — James|James]] and the brothers. And going out, he went to another place.
 
 ## v18
 
@@ -79,7 +79,7 @@ And when Herod searched for him and did not find him, he examined the guards and
 
 ## v20
 
-Now he was furious with the Tyrians and Sidonians. And they came to him with one accord; and having persuaded Blastus, the king’s chamberlain, they asked for peace, because their country was fed from the king’s country.
+Now he was furious with the Tyrians and Sidonians. And they came to him with one accord; and having persuaded Blastus, the king’s [[Acts-12.fn#Footnote 20.1 — chamberlain|chamberlain]], they asked for peace, because their country was fed from the king’s country.
 
 ## v21
 
@@ -91,12 +91,12 @@ And the populace cried out, The voice of a god and not of a man!
 
 ## v23
 
-And instantly an angel of the Lord struck him because he did not give the glory to God; and he was eaten by worms and expired.
+And instantly an angel of the Lord struck him because he did not give the glory to God; and he was eaten by worms and [[Acts-12.fn#Footnote 23.1 — expired|expired]].
 
 ## v24
 
-But the word of God grew and multiplied.
+But the word of [[Acts-12.fn#Footnote 24.1 — God|God]] grew and multiplied.
 
 ## v25
 
-And Barnabas and Saul returned from Jerusalem, having completed the dispensing; and they took along with them John, who was surnamed Mark.
+And [[Acts-12.fn#Footnote 25.1 — Barnabas|Barnabas]] and Saul returned from Jerusalem, having completed the dispensing; and they took along with them John, who was surnamed Mark.

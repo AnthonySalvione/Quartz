@@ -66,7 +66,7 @@ With the jawbone of an ass, / I have struck a thousand men dead.
 
 ## v17
 
-And when he finished speaking, he cast the jawbone from his hand; and he called that place Ramath-lehi.
+And when he finished speaking, he cast the jawbone from his hand; and he called that place [[Judges-15.fn#Footnote 17.1 — Ramath-lehi|Ramath-lehi]].
 
 ## v18
 
@@ -74,7 +74,7 @@ And he was very thirsty, and he called on Jehovah, saying, You have granted this
 
 ## v19
 
-But God broke open the hollow place that is in Lehi, and water came forth from it. And when he drank, his spirit returned and he was revived; therefore he called the name of that place En-hakkore, which is in Lehi to this day.
+But God broke open the hollow place that is in Lehi, and water came forth from it. And when he drank, his spirit returned and he was revived; therefore he called the name of that place [[Judges-15.fn#Footnote 19.1 — En-hakkore|En-hakkore]], which is in Lehi to this day.
 
 ## v20
 

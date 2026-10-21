@@ -1,6 +1,6 @@
 ## v1
 
-Now in the days of Ahasuerus (this is the Ahasuerus who reigned from India to Ethiopia over one hundred twenty-seven provinces)
+[[Esther-01.fn#Footnote 1.1 — Now|Now]] in the days of [[Esther-01.fn#Footnote 1.2 — Ahasuerus|Ahasuerus]] (this is the Ahasuerus who reigned from India to Ethiopia over one hundred twenty-seven provinces)
 
 ## v2
 

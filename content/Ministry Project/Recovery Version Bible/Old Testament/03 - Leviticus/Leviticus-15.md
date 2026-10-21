@@ -4,19 +4,19 @@ Then Jehovah spoke to Moses and to Aaron, saying,
 
 ## v2
 
-Speak to the children of Israel and say to them, When any man has a discharge from his body, his discharge is unclean.
+Speak to the children of Israel and say to them, When any man has a discharge from his [[Leviticus-15.fn#Footnote 2.1 — body|body]], his discharge is unclean.
 
 ## v3
 
-And this shall be his uncleanness of his discharge: Whether there is a discharge from his body, or the discharge is blocked in his body, it is his uncleanness.
+And this shall be his uncleanness of his discharge: Whether [[Leviticus-15.fn#Footnote 3.1 — there|there]] is a discharge from his body, or the discharge is blocked in his body, it is his uncleanness.
 
 ## v4
 
-Every bed on which he who has the discharge lies shall be unclean, and everything on which he sits shall be unclean.
+Every [[Leviticus-15.fn#Footnote 4.1 — bed|bed]] on which he who has the discharge lies shall be unclean, and everything on which he sits shall be unclean.
 
 ## v5
 
-And whoever touches his bed shall wash his clothes and bathe in water and be unclean until the evening.
+And whoever touches his bed shall [[Leviticus-15.fn#Footnote 5.1 — wash|wash]] his clothes and [[Leviticus-15.fn#Footnote 5.1 — wash|bathe]] in water and be unclean [[Leviticus-15.fn#Footnote 5.2 — until|until]] the evening.
 
 ## v6
 
@@ -40,23 +40,23 @@ And whoever touches anything that was under him shall be unclean until the eveni
 
 ## v11
 
-And whomever the one who has the discharge touches without having rinsed his hands in water, he shall wash his clothes and bathe in water and be unclean until the evening.
+And whomever the one who has the discharge touches without having [[Leviticus-15.fn#Footnote 11.1 — rinsed|rinsed]] his hands in water, he shall wash his clothes and bathe in water and be unclean until the evening.
 
 ## v12
 
-And the earthen vessel that the one who has the discharge touches shall be broken, and every vessel of wood shall be rinsed in water.
+And the earthen vessel that the one who has the discharge touches shall be [[Leviticus-15.fn#Footnote 12.1 — broken|broken]], and every vessel of wood shall be [[Leviticus-15.fn#Footnote 12.1 — broken|rinsed]] in water.
 
 ## v13
 
-And when one who has the discharge is cleansed of his discharge, then he shall count seven days for himself for his cleansing; then he shall wash his clothes and bathe his body in running water, and he shall be clean.
+And when one who has the discharge is cleansed of his discharge, then he shall count [[Leviticus-15.fn#Footnote 13.1 — seven|seven]] days for himself for his cleansing; then he shall [[Leviticus-15.fn#Footnote 13.1 — seven|wash]] his clothes and [[Leviticus-15.fn#Footnote 13.1 — seven|bathe]] his body in running water, and he shall be clean.
 
 ## v14
 
-And on the eighth day he shall take for himself two turtledoves or two young pigeons and come before Jehovah at the entrance of the Tent of Meeting and give them to the priest.
+And on the [[Leviticus-15.fn#Footnote 14.1 — eighth|eighth]] day he shall take for himself two turtledoves or two young pigeons and come before Jehovah at the entrance of the Tent of Meeting and give them to the priest.
 
 ## v15
 
-And the priest shall offer them, one for a sin offering and the other for a burnt offering; and the priest shall make expiation for him before Jehovah for his discharge.
+And the priest shall offer them, one for a [[Leviticus-15.fn#Footnote 15.1 — sin|sin]] offering and the other for a [[Leviticus-15.fn#Footnote 15.1 — sin|burnt]] offering; and the priest shall make expiation for him before Jehovah for his discharge.
 
 ## v16
 
@@ -120,7 +120,7 @@ And the priest shall offer one for a sin offering and the other for a burnt offe
 
 ## v31
 
-Thus you shall separate the children of Israel from their uncleanness, so that they do not die in their uncleanness by their defiling My tabernacle that is in the midst of them.
+Thus you shall separate the children of Israel from their uncleanness, so that they do not [[Leviticus-15.fn#Footnote 31.1 — die|die]] in their uncleanness by their defiling My tabernacle that is in the midst of them.
 
 ## v32
 

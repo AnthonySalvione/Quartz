@@ -11,15 +11,15 @@ And put aside for himself some of the proceeds, his wife also being aware of it.
 
 ## v3
 
-But Peter said, Ananias, why has Satan filled your heart to deceive the Holy Spirit and to put aside for yourself some of the proceeds of the land?
+But Peter said, Ananias, why has Satan filled your heart to deceive the [[Acts-05.fn#Footnote 3.1 — Holy|Holy]] Spirit and to put aside for yourself some of the proceeds of the land?
 
 ## v4
 
-While it remained, was it not your own? And when it was sold, was it not under your authority? Why is it that you have contrived this thing in your heart? You have not lied to men but to God.
+While it remained, [[Acts-05.fn#Footnote 4.1 — was|was]] it not your own? And when it was sold, was it not under your authority? Why is it that you have [[Acts-05.fn#Footnote 4.2 — contrived|contrived]] this thing in your heart? You have not lied to men but to [[Acts-05.fn#Footnote 4.3 — God|God]].
 
 ## v5
 
-And when Ananias heard these words, he fell down and expired; and great fear came upon all those who heard this.
+And when Ananias heard these words, he fell down and [[Acts-05.fn#Footnote 5.1 — expired|expired]]; and great fear came upon all those who heard this.
 
 ## v6
 
@@ -35,7 +35,7 @@ And Peter answered her, Tell me whether you have sold the land for this much? An
 
 ## v9
 
-And Peter said to her, Why is it that it was agreed between you two to test the Spirit of the Lord? Behold, the feet of those who have buried your husband are at the door, and they will carry you out.
+And Peter said to her, Why is it that it was [[Acts-05.fn#Footnote 9.1 — agreed|agreed]] between you two to test the Spirit of the [[Acts-05.fn#Footnote 9.2 — Lord|Lord]]? Behold, the feet of those who have buried your husband are at the door, and they will carry you out.
 
 ## v10
 
@@ -43,11 +43,11 @@ And she fell down instantly at his feet and expired. And the young men came in a
 
 ## v11
 
-And great fear came upon the whole church and upon all those who heard these things.
+And great fear came upon the whole [[Acts-05.fn#Footnote 11.1 — church|church]] and upon all those who heard these things.
 
 ## v12
 
-And through the hands of the apostles many signs and wonders took place among the people; and they were all with one accord in the portico of Solomon.
+And through the hands of the apostles many [[Acts-05.fn#Footnote 12.1 — signs|signs]] and wonders took place among the people; and they were all with one accord in the portico of Solomon.
 
 ## v13
 
@@ -79,11 +79,11 @@ But during the night an angel of the Lord opened the doors of the prison, and le
 
 ## v20
 
-Go and stand in the temple and speak to the people all the words of this life.
+Go and stand in the temple and speak to the people all the [[Acts-05.fn#Footnote 20.1 — words|words]] of [[Acts-05.fn#Footnote 20.2 — this|this]] life.
 
 ## v21
 
-And when they heard this, they entered about daybreak into the temple and began to teach. And the high priest and those with him came up and called together the Sanhedrin, even all the council of elders of the sons of Israel, and sent men to the prison for them to be brought.
+And when they heard this, they entered about daybreak into the temple and began to teach. And the high priest and those with him came up and called together the Sanhedrin, [[Acts-05.fn#Footnote 21.1 — even|even]] all the council of elders of the sons of Israel, and sent men to the prison for them to be brought.
 
 ## v22
 
@@ -95,7 +95,7 @@ Saying, The prison we found locked with all security, and the guards standing at
 
 ## v24
 
-Now when they heard these words, both the captain of the temple and the chief priests were utterly perplexed concerning them as to what this would come to.
+Now when they heard these words, both the [[Acts-05.fn#Footnote 24.1 — captain|captain]] of the temple and the chief priests were utterly perplexed concerning them as to what this would come to.
 
 ## v25
 
@@ -111,7 +111,7 @@ And having brought them, they stood them in the Sanhedrin. And the high priest q
 
 ## v28
 
-Saying, We strictly charged you not to teach based upon this name; and behold, you have filled Jerusalem with your teaching and intend to bring this man’s blood upon us.
+Saying, We [[Acts-05.fn#Footnote 28.1 — strictly|strictly]] charged you not to teach based upon this name; and behold, you have filled Jerusalem with your teaching and intend to bring this man’s blood upon us.
 
 ## v29
 
@@ -119,23 +119,23 @@ But Peter and the apostles answered and said, It is necessary to obey God rather
 
 ## v30
 
-The God of our fathers has raised Jesus, whom you slew by hanging Him on a tree.
+The [[Acts-05.fn#Footnote 30.1 — God|God]] of our fathers has raised Jesus, whom you slew by hanging Him on a tree.
 
 ## v31
 
-This One God has exalted to His right hand as Leader and Savior, to give repentance to Israel and forgiveness of sins.
+This One God has [[Acts-05.fn#Footnote 31.1 — exalted|exalted]] to His right hand as [[Acts-05.fn#Footnote 31.2 — Leader|Leader]] and Savior, to [[Acts-05.fn#Footnote 31.3 — give|give]] [[Acts-05.fn#Footnote 31.4 — repentance|repentance]] to Israel and forgiveness of sins.
 
 ## v32
 
-And we are witnesses of these things, and so is the Holy Spirit, whom God has given to those who obey Him.
+And we are witnesses of these [[Acts-05.fn#Footnote 32.1 — things|things]], and so is the Holy [[Acts-05.fn#Footnote 32.2 — Spirit|Spirit]], whom God has given to those who [[Acts-05.fn#Footnote 32.3 — obey|obey]] Him.
 
 ## v33
 
-But when they heard this, they were exasperated and intended to do away with them.
+But when they heard this, they were [[Acts-05.fn#Footnote 33.1 — exasperated|exasperated]] and intended to do away with them.
 
 ## v34
 
-But a certain Pharisee in the Sanhedrin named Gamaliel, a teacher of the law honored by all the people, stood up and commanded that they put the men outside for a little while.
+But a certain [[Acts-05.fn#Footnote 34.1 — Pharisee|Pharisee]] in the Sanhedrin named Gamaliel, a teacher of the law honored by all the people, stood up and commanded that they put the men outside for a little while.
 
 ## v35
 
@@ -163,8 +163,8 @@ And they were persuaded by him. And having called the apostles to them, they bea
 
 ## v41
 
-So they went from the presence of the Sanhedrin, rejoicing that they were counted worthy to be dishonored on behalf of the Name.
+So they went from the presence of the Sanhedrin, rejoicing that they were counted worthy [[Acts-05.fn#Footnote 41.1 — to|to]] be dishonored on behalf of the Name.
 
 ## v42
 
-And every day, in the temple and from house to house, they did not cease teaching and announcing the gospel of Jesus as the Christ.
+And every day, in the [[Acts-05.fn#Footnote 42.1 — temple|temple]] and from [[Acts-05.fn#Footnote 42.2 — house|house]] to house, they did not cease teaching and announcing the gospel of [[Acts-05.fn#Footnote 42.3 — Jesus|Jesus]] as the Christ.

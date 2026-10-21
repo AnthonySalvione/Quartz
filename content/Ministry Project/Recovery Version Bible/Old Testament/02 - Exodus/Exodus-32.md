@@ -1,10 +1,10 @@
 ## v1
 
-And when the people saw that Moses delayed to come down from the mountain, the people gathered against Aaron and said to him, Come, make a god for us who will go before us; for as for this Moses, the man who brought us up out of the land of Egypt, we do not know what has become of him.
+And when the people saw that Moses delayed to come down from the mountain, the people gathered against Aaron and said to him, Come, make a [[Exodus-32.fn#Footnote 1.1 — god|god]] for us who will go before us; for as for this Moses, the man who brought us up out of the land of Egypt, we do not know what has become of him.
 
 ## v2
 
-And Aaron said to them, Tear off the gold rings, which are in the ears of your wives, your sons, and your daughters, and bring them to me.
+And Aaron said to them, Tear off the gold [[Exodus-32.fn#Footnote 2.1 — rings|rings]], which are in the ears of your wives, your sons, and your daughters, and bring them to me.
 
 ## v3
 
@@ -12,7 +12,7 @@ And all the people tore off the golden rings which were in their ears and brough
 
 ## v4
 
-And he took the gold from their hand and fashioned it with an engraving tool and made it into a molten calf; and they said, This is your god, O Israel, who brought you up out of the land of Egypt!
+And [[Exodus-32.fn#Footnote 4.1 — he|he]] took the gold from their hand and fashioned it with an engraving tool and made it into a molten [[Exodus-32.fn#Footnote 4.2 — calf|calf]]; and they said, This is your god, O Israel, who brought you up out of the land of Egypt!
 
 ## v5
 
@@ -24,7 +24,7 @@ And they rose up early on the next day and offered burnt offerings and brought p
 
 ## v7
 
-And Jehovah spoke to Moses, Go, get down; for your people, whom you brought up out of the land of Egypt, have corrupted themselves.
+And Jehovah spoke to Moses, Go, get down; for your people, whom you brought up out of the land of Egypt, have [[Exodus-32.fn#Footnote 7.1 — corrupted|corrupted]] themselves.
 
 ## v8
 
@@ -40,7 +40,7 @@ Now therefore let Me be, that My anger may burn against them and I may consume t
 
 ## v11
 
-And Moses entreated Jehovah his God and said, Jehovah, why does Your anger burn against Your people, whom You brought out of the land of Egypt with great power and with a mighty hand?
+And Moses [[Exodus-32.fn#Footnote 11.1 — entreated|entreated]] Jehovah his God and said, Jehovah, why does Your anger burn against Your people, whom You brought out of the land of Egypt with great power and with a mighty hand?
 
 ## v12
 
@@ -68,18 +68,18 @@ And when Joshua heard the sound of the people as they shouted, he said to Moses,
 
 ## v18
 
-But Moses said,  
+But [[Exodus-32.fn#Footnote 18.1 — Moses|Moses]] said,  
 It is not the sound of the cry of triumph, /  
 Neither is it the sound of the cry of defeat; /  
 But it is the sound of singing that I hear.
 
 ## v19
 
-And as soon as he drew near to the camp, he saw the calf and the dancing; and Moses’ anger burned, and he threw the tablets out of his hands and shattered them at the foot of the mountain.
+And as soon as he drew near to the camp, he saw the calf and the dancing; and Moses’ anger burned, and he threw the tablets out of his hands and [[Exodus-32.fn#Footnote 19.1 — shattered|shattered]] them at the foot of the mountain.
 
 ## v20
 
-And he took the calf which they had made, and he burned it with fire and ground it to powder and scattered it upon the water and made the children of Israel drink it.
+And he took the calf which they had made, and he burned it with fire and ground it to powder and scattered it upon the water and made the children of Israel [[Exodus-32.fn#Footnote 20.1 — drink|drink]] it.
 
 ## v21
 
@@ -103,11 +103,11 @@ And when Moses saw that the people were without restraint (for Aaron had let the
 
 ## v26
 
-Moses stood in the gate of the camp and said, Whoever is for Jehovah, come to me. And all the sons of Levi gathered themselves to him.
+Moses stood in the gate of the camp and said, [[Exodus-32.fn#Footnote 26.1 — Whoever|Whoever]] is for Jehovah, come to me. And all the sons of Levi gathered themselves to him.
 
 ## v27
 
-And he said to them, Thus says Jehovah the God of Israel, Let each man put his sword upon his thigh, and go back and forth from gate to gate throughout the camp, and each man kill his brother, and each man his companion, and each man his neighbor.
+And he said to them, Thus says Jehovah the God of Israel, Let each man put his sword upon his thigh, and go back and forth from gate to gate throughout the camp, and each man kill his [[Exodus-32.fn#Footnote 27.1 — brother|brother]], and each man his [[Exodus-32.fn#Footnote 27.1 — brother|companion]], and each man his [[Exodus-32.fn#Footnote 27.1 — brother|neighbor]].
 
 ## v28
 
@@ -119,7 +119,7 @@ And Moses said, Consecrate yourselves today to Jehovah, for every man has been a
 
 ## v30
 
-And on the next day Moses said to the people, You have sinned a great sin; and now I will go up to Jehovah; perhaps I can make expiation for your sin.
+And on the next day Moses said to the people, You have sinned a great sin; and now I will go up to Jehovah; perhaps I can make [[Exodus-32.fn#Footnote 30.1 — expiation|expiation]] for your sin.
 
 ## v31
 
@@ -135,7 +135,7 @@ And Jehovah said to Moses, Whoever has sinned against Me, I will blot him out of
 
 ## v34
 
-And now go, lead the people to the place about which I have spoken to you. Now My Angel will go before you; nevertheless in the day when I visit, I will visit their sin upon them.
+And now go, lead the people to the place about which I have spoken to you. Now My Angel will go before you; nevertheless in the day when I [[Exodus-32.fn#Footnote 34.1 — visit|visit]], I will visit their sin upon them.
 
 ## v35
 

@@ -1,0 +1,181 @@
+---
+speaker:
+hymn:
+  - "[[Hymn-814]]"
+  - "[[Hymn-887]]"
+class: Orientation
+---
+## Opening Burden
+
+Ricardo and Daniel depass and Dennis H in this meeting
+
+
+Ricardo Sosa ---
+
+Hello dear Trainees, welcome back to the Training. We are so happy that you are back for another term of training. We've been praying that the Lord would make you ready for the upcoming term of the training. Whether you feel ready or not, the Lord is ready to dispense Himself into you. We are eagerly awaiting the Lord's dispensing this term.
+
+Dear trainees, we would liek to contibue this orientation fellowship. This mrning and yesterday was concerning disciples. We are continuing this.
+
+We are burdened tonight to speak to you concerning a little of the exericse of our spirit and prayer, as it pertains to the goal of the training. Since we are continuing our fellowship on disciples, I'd like to read a point on message 1 on believers. This message encapsulates a strong burden that we have. "We are being discipled" - this is point I.a. on message 1. "From being a natural man to being a Godman." We are being disciples to be GOd men! God's intention is not that we would be good men, but God's intention is that we would be Godman. "Living the divine life, by denying our natural life acording to the model of Christ as the first godman. This is to learn Christ as the reality is in Jesus to be renewed in the spirit of our mind by the word of GOd that we may become a new corporate godman."
+
+This is really the goal of the training and God's intention - not to produce many good men like Job, but to produce many Godman. We'd like to see tonight specifically - the goal of the training, and our desire is that we would become the men of God with the breath of God. This is from 2 Tim. 3... I'll read these verses to you, as I read, breathe them in.
+
+2 Tim. 3:14-17 ![[2 Timothy-03#v14]]![[2 Timothy-03#v15]]![[2 Timothy-03#v16]]![[2 Timothy-03#v17]]
+I'll read the last two verses again, but give me a strong amen. 
+
+So, in these verses, we see a man of God with the breath of GOd. And to really appreciate these verses, we need to understand the background of the book of 2 timothy. Paul wrote this during the time of the decline of hte church. At that time, fallen humanity and corrupted humanity crept into the church, came in, and caused the church to become degraded. There is this quote - what I'm sharing from is from this chapter called 'enjoying the humanity of Jesus for the recovery of the proper church life'... I'll just read a few quotes from here.
+
+"The source of all the problems in society is the lack of a proper humanity. A proper humanity is the substance of a proper family, community and country. If there is no proper humanity, then these cannto be proper"
+
+We need to realize, in the beginning of 2 Tim. 3, in the first verses, Paul uses 19 poitns that expose fallen and corrupted humanity. Apart from Christ, this is our fallen state. We are corrupted, and this becomes a damage to the church life and a family life.
+
+The only proper humanity in this universe is the humanity of Jesus. PTL we have the humaniy of Jesus. This humanity, jesus Christ is in the spirit, and every time we breathe Him in we can partake of His humanity. THis is the key in our training - we need to learn how to breathe the Lord in. We're burdened to share with you five points on how we can partake of the humanity of Jesus. You may have heard these points before, but I hope you would have an empty spirit, open your heart, and breathe these points in. Because we never graduate from breathing!! We never graduate from breathing the Lord in. As men of God, God intends not that we would just be knowledgeable men, or good men, but Godman who breathe in the Lord. I hope that this term would be a term of breathing in the Lord.
+
+My time is running out really fast, but the first point on how we can partake of the humanity of JEsus for the recovery of hte church life, is we need to learn to call on the Lord out of a pure heart. 2 Tim. 2:22 says, ![[2 Timothy-02#v22]]
+By calling on the Lord, we breathe the Lord in and partake of his humanity. Our calling is really our spiritual breathing. We know this from Lam. 3:55-56 which talks about Jeremiah the prophet saying, ![[Lamentations-03#v55]]![[Lamentations-03#v56]]
+To call on the Lord is to breathe him in. BReathing is constant and spontaneous. Since it is not our habit, we need to learn to practice calling on the Lord to the point it becomes spontaneous. Practice calling personally in everything you do.
+
+I love 1 Thes. 5:17 - Unceasingly pray. This indicates that prayer is truly a spiritual breathing. How to do something unceasingly? It's by breathing. How about we breath the Lord in two times.
+
+Secondly, we need to inhale the breath of GOd in the Bible. 2 Tim. 3:16 says, all scripture is god-breathed. His speaking is His exhaling of His breath. So, we need to receive the words in the bible... and receive His speaking by breathing it in through our prayer. You konw, John 6:63... it says, ![[John-06#v63]]That word spirit in Greek is pneuma. We need to realize the word is breathed out by the Lrod, and we need to breathe him in.
+
+I hope you all would treasure your bible reading time after breakfast. That time is so precious, I hope you would set it in your heart to finish your bible as the training recommends, and then finish the NT with footnotes by your second year. It may be too fast of a pace to pray-read every verse, but still you can breath the Lord in as you breath. If you pray as your reading, you will breathe the LOrd in. For me, sometimes I'll read a section and just say amen Lord and then keep going. In this way, the Lord breathes all his essence and uplifted fine humanity is imparted into our being. This is for the recovery of our church life. May we continue to breath the Lrod in.
+
+Daniel will continue with the next three points.
+
+---
+
+
+*All scripture is God breathed...* sang the hymn for the verse.
+
+Halelujah for the word of God.
+
+The portion, or the burden that the brothers have had that we would be discipled from being a natural man to being a Godman - actuaolly a Godman is the man of God with the breath of God. If we want to have the breath of God, we need to have God's word. This portion in 2 Tim. 3:14-17 - the scripture, the word of God, IS THE BREATH OF GOD. God's speaking is God's breathing. His word, according to John 6:63 is spirit. When we coem to the Word to receive God's spealign abnd breathing, this is actually a matter of the exercise of our spirit.
+
+2 Tim was written to Timithy at the time of the degredation and decline of the church. What Paul begins to write to timothy in chapter 1 is actually concerning his spirit. in 2 Tim. 1:7, Paul tells timothy that he has a spirit of power, a Godgiven spirit. So, actually, to counteract the degredation and the decline in the churchlife, and to be brought back to the proper church life, is to exercise our god-given spirit. As we exercise our god-given spirit to receive the word of GOd which is the breath of God, we are being discipled, we are learning, we are being brought from being a natural man to a Godman.
+
+In 2 Tim. 3:14 you see this matter of learning. ![[2 Timothy-03#v14]]
+There is a matter of continuing in what we have learned. THe brothers touched this morning - it's not just a general training we are getting... it's a matter of bringing it back to the Lord and entering into the tyhings that we are learning. By bringing this back to the Lord inp ryaer with the exercise f our spirit, the very breaht of GOd becomes our constiutent and our being. So, that our inhaling is the breath of God, and our exhaling becomes our speaking forth God. That si the counteraction towards the decline of the church.
+
+3rd point - exercise of God-given spirit. One point on this in this chapter - God has given us a spirit that is powerful in our will, loving in our emotions, and sober in uor minds. Apart from Christ, every human being is unbalanced in his thinking. If you consider the situation today, just in this country in the last 5 or 10 years, we can say, apart from Christ, more and more increasingly, every human being is unbalanced in his thinking. The thikning, the concepts, the philosophys more and more are unbalanced and not sober. What is lacking? A spirit of sobermindedness. Since God has given us this spirit, we may have a sober, sound and healthy mind.
+
+Do we realize that the exercise of our spirit when we come to the word, to steike the word with the spirit, actually, there is the renewing and the balancing of our mind.
+
+If we just exercise our minds, our thought is what is paplied to the Word, but when I strike it with my spirit, it is the word that renews and transforms my mind. We need the eercise of our godgiven spirit - this will allow us to be sober, sound clear in our mind, strong in our will and loving in our emotion.
+
+The fourth point - we must experience the christ in our spirit. - the lord be with your spirit *verse* Christ is dwelling in us in our spirit. If we want Him to saturate more our mind, emtoin and will this term, may we be those who exercise to touch Him where he dwells in our spirit. 
+
+Fifth, we must pursue Christ in the church WITH THOSE. This is on the recovery of the proper church life, but don't think this does not apply to the training, as the brothers mentioned, what is the goal of the training? Ultimately it is to gain the New Jerusalem for the church. This is all in the trainnig for the proper church life, but to carry out a proper training, we must have these points - our pursuing Christ with one another. To pursuei Christ is not an individual matter, but a corporate.
+
+In 2 Timothy, the picture Paul presents - there are 19 points concerning the negative side of corrupted and fallen humanity. This is overwhelming - it seems there are so few points here that are positive, but our getting into this, and our experiencing and enjoying the Lord as we call on His name and breath in the word of God and exercising our spirit, experiencing Christ who lives in our spirit, and pursuing this christ with one another = actually, just this experience counteracts all those negative ones.
+
+So, these five points... although they are five poitns, and even the heading says - wyas to enjoy the humanity of Jesus, actaully, I was touched by this sentence - the recovery of the proper hcurch life depends on the proper humaniyt... even our taking these points and getting into them and enjoying them. IN THEMSELVES just as poitns or as a practice is not what the proper church life or the recovery of hte church life depends on. The recovery of hte proper churchlief, and really to have a proper training, depends on the huamnityy of Jesuss-the only proper huamnity in the universe. We can partake of the humanity of Jesus by calling on the name of the Lord - by breathing the breath of GOd inthe bible by the exercise of our spirit to experience this christ.
+
+It's the humanity of Jesus that is in the word, in the spirit, in the breath of God, which will disciple us from being a natural man to a Godman. When the Lrod has those Godmen, actually, what He has is the expression of the humanity of Jesus in the chruch, which is the proper church life. May we be those who are ones exercising our godgiven spirit to breath in the word of God...
+
+
+
+Saints, let's sing 887
+
+DENNIS
+
+---
+this song is the way to apply and declare the lorsd victory
+
+We are here standing on His victory... we are nothing of valuew, but he is.
+
+The essence of prayer is in stanza 1. 
+![[Hymn-887#Stanza 1]]
+In the training and christian life, the reliance on the self grows less and less the more we grow in the Lord. It is opposite and contrary to the way of the world, where the more experienced ones become, the less you rely on others. In the Christian life it is the opposite. If you find yourself relying on the Lord more, that means you are growing and not going backwards.
+
+Our victories in the Lord are not because of our effort, but they are a result of the Lord living, and us giving the opportunity for Him to live within us.
+
+I want to follow the brothers here, that this orientation is a time, purposely for you all to come together to exercise your spirit first. We must exercise to be in the Training. Why? Because the Training is in another realm This is the realm of the spirit. It is not the realm of self-effort. Not the realm of attempting to be better this term. It is a realm of exercising our spirit. Our flesh will always be flesh. The flesh will not change until the transfiguration of the body - the flesh is alwasy there... but what can change brothers and sisters, is the exercise in our spirit. The best way to exercise (as a conclusion of the sessions here on orientation)
+
+Three sections - the best way to exercise are two things
+
+1) Open. Be an open vessel. That means that all the things that got *loaded up* within us, intentionally or unintentionally, consciously, or unconciosusly, good, or bad... MUST BE UNLOADED. Whether we felt we had a successful or unsuccessful interim, we have to unload it. If we feel a little bit more victorious, we have to unload that. If we feel defeated, utterly defeated, we need to unload that also. Neither of those things make a difference at this point in time. What makes the difference is to be dispensed as an open vessel by the Lord. To be vessels is not a natural thing. We don't just wake up open. To be open means to exercise our spirit to open to the Lord. This is why the reality of the kingdom that the Lord displayed in Matthew 5-7, opens up with this matter of unloading. Blessed are the poor in spirit - not having a poor spirit, but being empty and unloaded in our spirit. This is why we have you here - before the first termers come, and you already evaluate them just by looking at them, you have to be UNLOADED. So, another one could be your light... not you. Chrsit living in you could be your life. First Termers will be with you TONIGHT, right? I think most of them are here, if not all of them are here... What is the best way to be a pattern? The best way is to be an unloaded one. All the things need to be unloaded... we are unloaded and emptied which gives the Lord a way to fill us. Open to be filled. Wonder why you are not filled? It's because you are already full of something. It is an exercise - during the pre-training the hwole week it is an exercise to be unloaded. Don't think the unloading just happens on Tuesday, it is week long. Even term long, we constantly have to unload to the Lord. Unloading so many things. This is not being introspection, it's just bringing it to the Lrod to be emptied, and to be filled by Him as the life-giving spirit.
+2) After being an open vessel to exercise to be open, the best way to exercise our spirit is to exercize to pray... The 19 items, only 5 positive items. The best way to apply the 5 positive items, what the brothers mentioned, is to pray. Now, let me, for this meeting, define prayer... I am not just speaking about your personal prayer. This is important and for your personal life - you must have personal prayer. I am talking about the prayer that counters the enemy and fulfill's gods econmy. THis is the prayer that I am speaking about. It is God's wisdom in His arrangement, that He has a heart's desire and a will. But He in His soverignty, limited HImself, in following the Lord JEsus, to carry out His will, HIs plan, His economy.. he needs to gain the channels of prayer. To pray what? Not pray for our future... not to pray for our victory... that is the personal prayer that we need, but this is not the prayer that we are speaking about tonight. We are speaking about the pryaer that carries out God's economy. 1 Tim. Paul mentions this matter of prayer - desires all men to be saved... THen, chapter 2 - that all would pray. So, this is the prayer for salvation for man's salvation. What we are speaking about is a continuation in the book of Timothy - God has an economy that needs to be fulfilled, and He has chosen to limit His fulfillment to man's prayer. In other words, without man praying, God cannot fulfill His purpose. We may think - "why did the Lord do this??!?" We don't know, this is His arrangement, but what we do know is that our responsibillty and our obligation to cooperate with the Lrod by praying for the fulfillment of His economy, and in turn, as we pray in this way, we actually exeprience all the 5 plints in a positive way that the rothers mentioned.
+
+number 1 - what is prayer? Prayer means that we do not rely on ourselves. We do not rely on ourselves. I would like to share the portion in Daniel 6, we all know that, about the lions den... the main point of Daniel 6 is not Daniel being saved from the lion's den, that was the main point when you were a child. You are no longer a child. The main point in Daniel chapter 6, is the center, the inner secret, is man's prayer for the carrying out of God's econmy. The Lord found some men on the earth, Daniel and hi companions woh cooperated with him - these were just young men. They cooperated with the Lrod for the carrying our of His econmoy - what was his plan at that time? They read in Jeremiah that the captivity of Israel would be 70 years - Daniel was in babylon for over 65 years, what was he doing? He was praying. For what? For the fulfillment of God's word!! He and his companions were the channel to carry out what Jeremiah prophesied. This is the Lord's word. The Lord's word came through Jeremiah, but who would carry it out? Daniel, like all of us, said "Lord, you carry it out".. BUT DANIEL KNEW that he had to cooperate with the divine will to carry out God's plan.
+
+Here we are brothers and sisters - do you feel like Daneil always wanted to pray every day for 60 years? all day and night? No, he was young like you... nut he saw something. He saw that his prayer was not just personal... he saw that his prayer was needed by God to fulfil God's economy. You may say, how does it impact us in the Training today? It is God's intention and His plan in his econmoy in the training, that all of us, as trainees, would be open vessels to receive God's daily dispensing, that we could be built up, that we could grow in the divine life, and that we could function in the divine capacity, eventually that we could be the identical experssion of the FB son of God. This is God's revelation, intention, and hjeart's desire... BUT HE NEEDS THE CHANNELS OF PRAYER. to fullfil His word - matthew 18 - yes i will build my church. but in Ephesians 4 - the saints build the church!! It's the one carrying out and applying what the Lordd said through prayer to carry this out.
+
+Okay. So, daniel 6 I'll come back to that - the center is man's prayer for the carrying out of God's econ. What did daniel do? Daniel thorugh and by his prayer, depended on prayer, to do what man could not do, and to understand what man could not understand.
+
+Do you thnik that he just had the gift of interpretation? And when Nebucadnezzar said "tell me the dream and the interpretation and then I wont kill you?" My goodness, what kind of prayer did Daniel and companions need to even come to the Lrod to find out what the dream was!! Don't you think, they exercised to be one with the Lord? They werent praying for their future, they were praying that they would live on the earth to see the fulfillment of God's word. GO'd word had to be fulfilled once they prayed it. How else could they do this? They depended on prayer. Brothers and sisters, THERE IS NO OTHER WAY TO BRING GODS ECON TO FULLNESS AND FULFILLMENT EXCEPT BY PRAYER. This is the inner secret of Daniel 6...
+
+I'll cover a little more, and then make it practical.
+
+Daniel prayed 3 times a day with a window open towards JErusalm,we all know that, and through this gracious prayer, God answered this prayer and eventually brought Israel abck to their fathers land. God listens to our prayer, He needed daniels prayer, which was towards Christ, the kingdom and house of God. I think you heard fellowship regarding this, so I wont cover it.
+
+The center of Daniel chapter 6 is man's cooperation and man's prayer for the carrying out of God's econmy. God desires to carry out His economy, but man is needed to pray for His econmoy on the earth. What is Satan's strategy? When you strategize and fight against an enemy, you don't only go for the weakest point... you attack the most strategic one. The most strategic point on the earth at that time that is continuing today ,is to frustrate our prayer for God's econmoy. This is satans strategy to distruot the prayer.
+
+Apparently it was the jealous ones who wanted to destrou daniel, but behind the scene, actually, was the intention of satan. What was his intention? His intention is to cut off the channel of prayer. Same today with us, to cut us off from prayer. That is why the enemy comes in to magnify our failures. Because we consider our failures far worse, than how can we pray? How could we pray? certainly we have failures, certainly daniel and companions had failures, but they were not praying based upon whether they failed or succeeded, they prayed based upon God's word. It is God's words that are eternal, not our condition that is eternal. It is God's word... so again, whatever happened during the interim - you have to unload it. Thank the Lrod that this is a new beginning. A new term means a new beginning, a new beginning means a new unloading and a new filling.... a new cooperation.... that we could be restored as the chnnel of prayer that God uses to carry out His economy.
+
+Our brother said a few times that prayer is the lifeline of the Lord's recovery. Prayer is very much the lifeline of the Lord's recovery. God moves... GOd's move is like the traing, and prayers are the rails that pave the way for God's move to go on.
+
+This is the inner secret - not the jealousy, not the linos den, not this or that... the inner secret is that the INTENTION OF SATAN WAS TO CUT OFF THE CHANNEL OF PRAYER. You can just imagine-if daniel and his companions were killed... where is the channel of prayer? We may not think that much of oursevles... but brothers and sisters, we can be and we are channels of prayer. You may say "How am I a channel of prayer? I'm just a second termer." You know how? because there are first termers... Just remember, you were a first termer also one time, it hasn't been too long. Aren't you happy that the trainnes in front of you didn't condemn you that much? Why? Because some were praying for you. A channel of prayer. What does this lead to? Well, this leads to this: in a very practical way --- here  we are in the trainng enviormnet... don't think it's just the training office, or just the trainng brothers or teachers or TAs, don't think that it is these ones who carry out the training... NO you shouldn't think that - we are channels just like you, as Ricardo mentioned, we spent every interim during this period of time when you are not here to pray, and pray, and pray. I nfact, I thikn one time brothers we got to pray for alll your names individually. We all just prayed. We didn't know where you were or what was happening with you, but there was just this desire to pray - why? Because the Lord wants to constitute you as a channel of prayer to fulfill God's economy.
+
+Brothers and sisters, this is why we are on the earth, and for why the church is existing today... the age is existing today so that God's ecnoomy might be fullfiled - that he might take the old creation and make it something new. The new creation. This is whre we are today. So, very practical, how do we apply this word?
+
+
+Well, as I eluded to earlier - when we pray in this kind of way, we automatically experience all 5 of these positive items. What is a channel of prayer? It's just one who has the breath of God. breathing and breathing GOd... Breathing GOd in, and breathing God out. Before I go on, let me read Daniel 6:10. So, afte rDArius signed the edict in chapter 6, now when Daniel came to know that the writing had been signed... he hid in his house. Did he hide?? ![[Daniel-06#v10]]I thikn as soon as he heard the edict in his upper room, he ahd windows open toewrardss jerusalem. I would have at least closed my windows, and also just made silent prayers, and three times daily, he knelt on his knees and PRAYED.
+
+I love the footnote here on Daniel... maybe ricardo you could read that. Daniel would not let anythign stop or frustrate his prayer.
+
+> Daniel had read Jeremiah’s prophecy that the children of Israel would serve the king of Babylon for seventy years (9:2b; Jer. 25:11). Standing on this word, he must have prayed many times for the fulfillment of this prophecy and for the return of the captives. He would not let anything stop or frustrate his prayer. He knew that his prayer was for the carrying out of God’s economy concerning His elect. Therefore, his prayer was a serious matter.
+
+
+Number 1, thank you... Number 1 he stood on God's word. Number 2 he prayed many times for the fulfillment of this prophecy. The Lord spoke this prophecy, Daniel had the FAITH that God would fulfill this prophecy... but the Lord burdened daniel to pray taht this prophecy would be fulfilled. It wasn't just left to God, God put the burden back on man to cooperate with God to fulfill His prophecy.
+
+So, danile would not let anything stop or frustrate his prayer. How does this apply to us in the Training? Well, we need to be open to learn how to pray for the training, your fellow trainees, and even the atmosphere of the training... How? Using His word, and focusing on Christ and His kingdom.
+
+Again, let me say that there was a time for us to pray for personal things, but don't ONLY use that for your prayer time... You must learn how to pray for God's economy, and the fulfillment of His economy, by what? By using His wrod, focusing on Christ, and focusing on His kingdom. What does it really mean to be open in the training in this context? To be open is to learn. To learn is to be discipled. What does it mean, in our fellowship tonight, to be discipled? What does it mean to be opened? What does it mean to learn? 
+
+To open, to be open to pray, to learn to pray, to be discipled to pray. what does it mean? It means, EVEN WHEN YOU DONT FEEL LIKE PRAYING - YOU OPEN. YOU OPEN. Open vessel is not just a generic general term, open vessel is very very experiential, especially if you dont feel like praying or calling. This si the time to open, to be discipled by the Lord. The Lord will supply you!!! You will have the supply to be open to the Lord to receive the Lord and to pray. We always get trapped by our feelings that go astray. I don't think Daniel felt for 65 years, every single time to pray. I doubt it. Three times??? Lord, I have a hard time making the prayer meeting of the chruch ONCE A WEEK. But Daniel had this kind of heart.
+
+So, here we are, you are a captive, not in Babylon, but you are a captive of the FTTW - that si the wilderness, only manna here. All the egyptian food disappears. What do we do? We learn to be a channel of prayer, even when we don't feel like praying. How many of your felt like coming back?!??! I'm *sooooooooo happy* that I still have another week. I wish time would go so slow. WHy does it go so fast??? 
+
+We don't feel like exericinsg our spirit. This is whree, brothers and sisters, we have to learn to be OPEN. The spirit within... is not subject to our feelings! The spirit within will function, will resurrect us, AS SOON AS WE OPEN. Even if we open a little bit. We pray, we just pray.
+
+Again, we pray, that the training, the trainees, the atompshere of the training, using his word, focusing on christ and his kingdom - our prayre practically DOES NOT NEED TO BE LONG. Daniel had a full time job... he was administrating the entire realm of babylon - he didnt havbe time to pray three hours a day, even today, I just had a little feeling this morning, to call a particular brother who I know who is ready always to pray. So, I simply messaged him, I know how to message, I don't know how to DM but message through texts... Right away, I asked, "Brother, do you have a few minutes to pray?" Right away he repsponded yes. We are both busy and habe little time, but as soon as we got on the phone WE STARTED!! I was suprised his spirit was so strong - he started praying for all of you, he isn't even related to the training!! How did he know that you were here, I didn't tell him, he just started to pray and I just followed him!! We didn't pray that long, but we have a standing agreement that either one of us can contact one another, and if we are free, we just pray for a efw minutes.
+
+We can experiene the same thing, it is not a matter of length, but a matter of consistency. You learn how to pray a little bit every day.
+
+So, practidally, how do we apply them in the training? Well, it's very simple, two by two. You may not even be in the same team or house, but two of you, you simp.y take the word of God, and you pray with it. That prayer, through the word, will lead you to pray - and your prayer will be focused on Christ. For example, daniel mentioned all scripture is God breathed.
+
+"Lord Jesus, make every trainee a breathing trainee"
+"Amen Lord ,a GOD BREATHED trainee. Lord breathe life into Ben Ramos, he is dead. Breathe life!"
+
+WHy not? We use the word!! You know what I mean, generally - Lord, my house, it neesd life! Make it a God-breathed house!! We use the word! Even a seven minute prayer, your spirit gets refreshed. You are learning how to become a channel of prayer. That the Lord, not only will entrust you with your house, the Lord will entrust you with greater things. Right now, He can't entrust us, because we are not ready or qualifid or prepared... but part of the training is learning how to be prepared as a channel of prayer.
+
+So, I mean it! This is very simple. This is the good thing about being so close in the training. You don't have any escape. There is always somebody to pray with. I know we like to escape, but the Lrod likes to gather us together. Lord, your kingdom come. 
+
+So, when you see one another, you say "Jake, can we pray? I don't know you very well, but let's pray . Let's use Matthew 6 - may your kingdom come. Make the training our kingdom. Lord, your kingdom come in me!!"
+
+The Lord may not answer YOUR PRAYER , but he will answer HIS PRAYER. His prayer from the word.
+
+Don't you think that if we exercise in this way, the atmosphere in the training wil lchange? We ourselves get frustrated because we feel like our personal atmosphere and the atmosphere of the training should be higher, what do we do? Well, we can criticize, we can complain, but what we need to do is to become a channel of prayer. "Lord, raise up the atmosphere in the training to match your kingdom." Again, you use the word, "your kingdom come. Lord, come. Come today. Come today, Lord. Even come tonight, in my house prayer. Your kingdom come. When your kingdom comes, YOU COME. Come tonight to houes prayer Lord."
+
+What si this? Number 1, we are learning how to be discipled by being open even when we don't feel like it. Sorry, we trusted our feelings and go by our feelings so much, we miss the fact of God's word. This is what Daniel was doing - he saw the fact in God's word, and he prayed for the fulfillment. Don't you thkn when you pray fro the Lord's kingdom to come, he will fulfill it? Befoer the kingdom comes to the earth, it has to become in you. How does it come to the earth? Not miraculously. It comes through people living on the earth today. So, his kingdom needs to come in us. "Lord, may your kingdom come in every 4th term brother." 4th term brothers stand up. You can almos count on one hand!! These fourth term brothers need a LOT OF PRAYER. It's like, what is it? The little engine that could. Or oculd not.
+
+Don't thikn that it's these 4th term brothers only who will create this atmopsher. Don't you need their prayer brothers? They should be the most exercised to pray. "Oh Lord, breathe your breath of life into all the 4th term brothers!" Don't go and then knock on their head and say "brother become more living." You just keep praying, eventually you become living and this living atmospehre will spread. Where does it spread? Not only in our houses and training center, but I would even say in the cafeteria... don' ttak about soccer this, or baseball that, or "etsy" this... I just learned about etsy
+
+Anyways, a lot of other people can talk about that... why don't, mayeb two of you at the table - it doesn't have to be somebody in this room, it could be somebody else like a 1st termer - "could we just pray for two minutes? Lord, your kingdom come. Come, Lord. Come today. Lord, this is before the prayer meeting, may your enemy be defeated." Point your prayers using the word focusing on Christ and the fulfillment of His eceonmoy... and His kingdom. You will see how will the atmosphere change - the atmosphere changes because we change. We change.
+
+This requires us to exercise brothers and sisters. This is an exercise. You may say, "I' m in my 3rd term I've nevber done that before" I don't think its possible. Wait until the 13th week, you will still feel that way... Well, prayer, and this kind of prayer, enables us to do what we could never do. Becaues by prayer in the spirit we activiate the power of the resurrection life. Then, resurrection is not just a term you studied in full mihstiry of CHrist. The resurrection is your experience. When you don't *feel* like, resurrection power comes over you. It is really real brothers and sisters. I don't want you just to know the term and definition of resurreciotn, or even to prophecy concerning it, without knowing the reality of resusreciton. And the reality of resurrectoin can be experienced in a very real way... so when it comes time to pray... you don't turn back but go to pray with that brohter. Right away, we can be in our spirit. It doesn't take someone a full day and a half to repent because he was hiding... "Lord jesus, forgive me, I repent." RIght away, you confess, and then you eat the tree of life, it's that simple.
+
+Real genuoine prayer is actually our eating, and our drinking. When we pray, we have the sense that we are satisfied within. Prayer and praise and enjoy were the three terms that came from our last prayer meeting in Anaheim. This should be a description of our daily living. This is what happens when we cooperate with the Lord.
+
+So, we may not get physically thrown into a lions den, but periodically there are situations that cause us to have to very much depend upon the Lord. Do you agree with me, that you could experience this? That you could turn to the Lrod even when you don't feel like it?!? This is the way to be open. If you really wanna experience how to be open, and how to apply to be an open vessel, this is the way - open and touch the word - don't just be open and stand still, because you will close again. Be open and learn how to touch the word. When you touch the word in this way, you touch the divine element, and then the divine element will touch you. It will expose you, enlighten you, and it will supply you.
+
+This is, brothers and sisters ,the experience of life, and this is the way to grow in the divine life. This will be very good. It is not difficult for you to experience this. This is why we made it very practical tonight. Two by two - use the word... focus on Christ, His econmh, and the fulfillment of His kingdom. "Lord, fulfill your eceonmoy in the training."
+
+when you are praying that, you may not even know what His economy is, and that's okay. You still can pray, when you pray you will see, the Lord will enlighten you then. This is what I desire, amen?
+
+Okay, how about we use... 2 Timothy 3:16-17, and let's just break up into small groups of 5 or 6 throughout the room, and just pray with training, the atmosphere, your fellow trainees, and carrying out of the lord's economy and desire in the Training.
+
+---
+
+[[02 - Supplement|Reading Supplement to the Message]]

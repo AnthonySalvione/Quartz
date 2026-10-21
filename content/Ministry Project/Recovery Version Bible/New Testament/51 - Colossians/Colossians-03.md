@@ -3,23 +3,23 @@ Author: Paul
 ---
 ## v1
 
-If therefore you were raised together with Christ, seek the things which are above, where Christ is, sitting at the right hand of God.
+[[Colossians-03.fn#Footnote 1.1 — If|If]] therefore you were [[Colossians-03.fn#Footnote 1.2 — raised|raised]] together with Christ, seek the things which are [[Colossians-03.fn#Footnote 1.3 — above|above]], where Christ is, sitting at the right hand of God.
 
 ## v2
 
-Set your mind on the things which are above, not on the things which are on the earth.
+Set your mind on the things which are above, not on the [[Colossians-03.fn#Footnote 2.1 — things|things]] which are on the earth.
 
 ## v3
 
-For you died, and your life is hidden with Christ in God.
+For you [[Colossians-03.fn#Footnote 3.1 — died|died]], and your [[Colossians-03.fn#Footnote 3.2 — life|life]] is [[Colossians-03.fn#Footnote 3.3 — hidden|hidden]] with Christ in God.
 
 ## v4
 
-When Christ our life is manifested, then you also will be manifested with Him in glory.
+When [[Colossians-03.fn#Footnote 4.1 — Christ|Christ]] our [[Colossians-03.fn#Footnote 4.2 — life|life]] is manifested, then you also will be manifested with Him in glory.
 
 ## v5
 
-Put to death therefore your members which are on the earth: fornication, uncleanness, passion, evil desire, and greediness, which is idolatry;
+[[Colossians-03.fn#Footnote 5.1 — Put|Put]] to death therefore your [[Colossians-03.fn#Footnote 5.2 — members|members]] which are on the earth: fornication, uncleanness, passion, evil desire, and greediness, which is idolatry;
 
 ## v6
 
@@ -35,43 +35,43 @@ But now, you also, put away all these things: wrath, anger, malice, blasphemy, f
 
 ## v9
 
-Do not lie to one another, since you have put off the old man with his practices
+Do not lie to one another, since you have [[Colossians-03.fn#Footnote 9.1 — put|put]] off the [[Colossians-03.fn#Footnote 9.2 — old|old]] man with his practices
 
 ## v10
 
-And have put on the new man, which is being renewed unto full knowledge according to the image of Him who created him,
+And have [[Colossians-03.fn#Footnote 10.1 — put|put]] on the [[Colossians-03.fn#Footnote 10.2 — new|new]] man, which is being [[Colossians-03.fn#Footnote 10.3 — renewed|renewed]] unto full knowledge according to the [[Colossians-03.fn#Footnote 10.4 — image|image]] of Him [[Colossians-03.fn#Footnote 10.5 — who|who]] created him,
 
 ## v11
 
-Where there cannot be Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, slave, free man, but Christ is all and in all.
+[[Colossians-03.fn#Footnote 11.1 — Where|Where]] there [[Colossians-03.fn#Footnote 11.2 — cannot|cannot]] be [[Colossians-03.fn#Footnote 11.3 — Greek|Greek]] and Jew, [[Colossians-03.fn#Footnote 11.4 — circumcision|circumcision]] and uncircumcision, [[Colossians-03.fn#Footnote 11.5 — barbarian|barbarian]], [[Colossians-03.fn#Footnote 11.6 — Scythian|Scythian]], [[Colossians-03.fn#Footnote 11.7 — slave|slave]], [[Colossians-03.fn#Footnote 11.8 — free|free]] man, but [[Colossians-03.fn#Footnote 11.9 — Christ|Christ]] is [[Colossians-03.fn#Footnote 11.10 — all|all]] and in [[Colossians-03.fn#Footnote 11.10 — all|all]].
 
 ## v12
 
-Put on therefore, as God’s chosen ones, holy and beloved, inward parts of compassion, kindness, lowliness, meekness, long-suffering;
+[[Colossians-03.fn#Footnote 12.1 — Put|Put]] on therefore, as God’s chosen ones, [[Colossians-03.fn#Footnote 12.2 — holy|holy]] and beloved, inward parts of compassion, kindness, lowliness, meekness, long-suffering;
 
 ## v13
 
-Bearing one another and forgiving one another, if anyone should have a complaint against anyone; even as the Lord forgave you, so also should you forgive.
+Bearing [[Colossians-03.fn#Footnote 13.1 — one|one]] another and forgiving one another, if anyone should have a complaint against anyone; even as the [[Colossians-03.fn#Footnote 13.2 — Lord|Lord]] forgave you, so also should you forgive.
 
 ## v14
 
-And over all these things put on love, which is the uniting bond of perfectness.
+And over all these things put on [[Colossians-03.fn#Footnote 14.1 — love|love]], which is the uniting bond of [[Colossians-03.fn#Footnote 14.2 — perfectness|perfectness]].
 
 ## v15
 
-And let the peace of Christ arbitrate in your hearts, to which also you were called in one Body; and be thankful.
+And let the [[Colossians-03.fn#Footnote 15.1 — peace|peace]] of Christ [[Colossians-03.fn#Footnote 15.2 — arbitrate|arbitrate]] in your hearts, to [[Colossians-03.fn#Footnote 15.3 — which|which]] [[Colossians-03.fn#Footnote 15.4 — also|also]] you were called in one Body; and be [[Colossians-03.fn#Footnote 15.5 — thankful|thankful]].
 
 ## v16
 
-Let the word of Christ dwell in you richly in all wisdom, teaching and admonishing one another with psalms and hymns and spiritual songs, singing with grace in your hearts to God.
+Let the [[Colossians-03.fn#Footnote 16.1 — word|word]] of Christ [[Colossians-03.fn#Footnote 16.2 — dwell|dwell]] [[Colossians-03.fn#Footnote 16.4 — in|in]] you [[Colossians-03.fn#Footnote 16.3 — richly|richly]] in all wisdom, [[Colossians-03.fn#Footnote 16.5 — teaching|teaching]] and admonishing [[Colossians-03.fn#Footnote 16.6 — one|one]] another with [[Colossians-03.fn#Footnote 16.7 — psalms|psalms]] and hymns and spiritual songs, [[Colossians-03.fn#Footnote 16.5 — teaching|singing]] with [[Colossians-03.fn#Footnote 16.8 — grace|grace]] in your hearts to God.
 
 ## v17
 
-And whatever you do in word or in deed, do all things in the name of the Lord Jesus, giving thanks to God the Father through Him.
+And whatever you do in word or in deed, do all things in the [[Colossians-03.fn#Footnote 17.1 — name|name]] of the Lord Jesus, giving thanks to God the Father through Him.
 
 ## v18
 
-Wives, be subject to your husbands, as is fitting in the Lord.
+[[Colossians-03.fn#Footnote 18.1 — Wives|Wives]], be subject to your husbands, as is fitting in the Lord.
 
 ## v19
 
@@ -95,7 +95,7 @@ Whatever you do, work from the soul as to the Lord and not to men,
 
 ## v24
 
-Knowing that from the Lord you will receive the inheritance as recompense. You serve the Lord Christ.
+Knowing that from the Lord you will receive the [[Colossians-03.fn#Footnote 24.1 — inheritance|inheritance]] as recompense. You [[Colossians-03.fn#Footnote 24.2 — serve|serve]] the Lord Christ.
 
 ## v25
 

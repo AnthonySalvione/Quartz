@@ -24,7 +24,7 @@ And Naarah bore him Ahuzzam and Hepher and Temeni and Haahashtari; these were th
 
 ## v7
 
-And the sons of Helah: Zereth, Izhar, and Ethnan.
+And the sons of Helah: Zereth, [[1 Chronicles-04.fn#Footnote 7.1 — Izhar|Izhar]], and Ethnan.
 
 ## v8
 
@@ -36,7 +36,7 @@ And Jabez was held in more honor than his brothers; and his mother called his na
 
 ## v10
 
-And Jabez called on the God of Israel saying, Oh that You would richly bless me and enlarge my border, and that Your hand would be with me, and that You would so keep me from evil that it would not grieve me! And God caused what he had requested to come to pass.
+And Jabez called on the God of Israel saying, Oh that You would richly bless me and [[1 Chronicles-04.fn#Footnote 10.1 — enlarge|enlarge]] my border, and that Your hand would be with me, and that You would so keep me from evil that it would not grieve me! And God caused what he had requested to come to pass.
 
 ## v11
 
@@ -48,15 +48,15 @@ And Eshton begot Bethrapha and Paseah and Tehinnah the father of Ir-nahash; thes
 
 ## v13
 
-And the sons of Kenaz: Othniel and Seraiah; and the son of Othniel: Hathath.
+And the sons of Kenaz: Othniel and Seraiah; and the [[1 Chronicles-04.fn#Footnote 13.1 — son|son]] of Othniel: Hathath.
 
 ## v14
 
-And Meonothai begot Ophrah; and Seraiah begot Joab the father of Geharashim, for they were craftsmen.
+And Meonothai begot Ophrah; and Seraiah begot Joab the father of [[1 Chronicles-04.fn#Footnote 14.1 — Geharashim|Geharashim]], for they were craftsmen.
 
 ## v15
 
-And the sons of Caleb the son of Jephunneh: Iru, Elah, and Naam; and the son of Elah: Kenaz.
+And the sons of Caleb the son of Jephunneh: Iru, Elah, and Naam; and the [[1 Chronicles-04.fn#Footnote 15.1 — son|son]] of Elah: [[1 Chronicles-04.fn#Footnote 15.2 — Kenaz|Kenaz]].
 
 ## v16
 
@@ -64,7 +64,7 @@ And the sons of Jehallelel: Ziph and Ziphah, Tiria and Asareel.
 
 ## v17
 
-And the sons of Ezrah: Jether and Mered and Epher and Jalon; and Bithiah conceived and bore to Mered Miriam and Shammai and Ishbah the father of Eshtemoa.
+And the [[1 Chronicles-04.fn#Footnote 17.1 — sons|sons]] of Ezrah: Jether and Mered and Epher and Jalon; and Bithiah conceived and bore to Mered Miriam and Shammai and Ishbah the father of Eshtemoa.
 
 ## v18
 
@@ -156,7 +156,7 @@ And they went to the entrance of Gedor, as far as the east side of the valley, t
 
 ## v40
 
-And they found rich and good pasture and a spacious and quiet and peaceful land, for they who had formerly dwelt there were of Ham.
+And they found [[1 Chronicles-04.fn#Footnote 40.1 — rich|rich]] and good pasture and a spacious and quiet and peaceful land, for they who had formerly dwelt there were of Ham.
 
 ## v41
 

@@ -1,6 +1,6 @@
 ## v1
 
-Now the prophets, Haggai the prophet and Zechariah the son of Iddo, prophesied to the Jews who were in Judah and Jerusalem in the name of the God of Israel who was over them.
+Now the [[Ezra-05.fn#Footnote 1.1 — prophets|prophets]], Haggai the prophet and Zechariah the son of Iddo, prophesied to the Jews who were in Judah and Jerusalem in the name of the God of Israel who was over them.
 
 ## v2
 

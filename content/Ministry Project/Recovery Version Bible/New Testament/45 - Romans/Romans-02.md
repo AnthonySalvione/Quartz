@@ -3,15 +3,15 @@ Author: Paul
 ---
 ## v1
 
-Therefore you are without excuse, O every man who judges, for in what you judge another you condemn yourself; for you who judge practice the same things.
+Therefore you are without excuse, O every man who [[Romans-02.fn#Footnote 1.1 — judges|judges]], for in what you judge another you condemn yourself; for you who judge practice the same things.
 
 ## v2
 
-But we know that the judgment of God is according to truth upon those who practice such things.
+But we know that the [[Romans-02.fn#Footnote 2.1 — judgment|judgment]] of God is according to [[Romans-02.fn#Footnote 2.2 — truth|truth]] upon those who practice such things.
 
 ## v3
 
-And do you consider this, O man, who judge those who practice such things and do the same yourself, that you will escape the judgment of God?
+And do you consider this, O man, who judge those who practice such things and do the same yourself, that you will escape the [[Romans-02.fn#Footnote 3.1 — judgment|judgment]] of God?
 
 ## v4
 
@@ -27,11 +27,11 @@ Who will render to each according to his works:
 
 ## v7
 
-To those who by endurance in good work seek glory and honor and incorruptibility, life eternal;
+[[Romans-02.fn#Footnote 7.1 — To|To]] those who by endurance in good work seek glory and honor and incorruptibility, life eternal;
 
 ## v8
 
-But to those who are selfishly contentious and disobedient to the truth and obey unrighteousness, wrath and fury.
+But to those who are selfishly contentious and disobedient to the [[Romans-02.fn#Footnote 8.1 — truth|truth]] and obey unrighteousness, wrath and fury.
 
 ## v9
 
@@ -47,7 +47,7 @@ For there is no respect of persons with God.
 
 ## v12
 
-For as many as have sinned without the law shall also perish without the law; and as many as have sinned under the law shall be judged by the law
+For as many as have sinned without the law shall also perish without the law; and as many as have sinned [[Romans-02.fn#Footnote 12.1 — under|under]] the law shall be judged by the law
 
 ## v13
 
@@ -55,11 +55,11 @@ For as many as have sinned without the law shall also perish without the law; an
 
 ## v14
 
-For when Gentiles, who have no law, do by nature the things of the law, these, though they have no law, are a law to themselves,
+For when Gentiles, who have no law, do [[Romans-02.fn#Footnote 14.1 — by|by]] nature the things of the law, these, though they have no law, are a law to themselves,
 
 ## v15
 
-Who show the work of the law written in their hearts, their conscience bearing witness with it and their reasonings, one with the other, accusing or even excusing them.)
+Who show the work of the law written in their hearts, their [[Romans-02.fn#Footnote 15.1 — conscience|conscience]] bearing witness with it and their reasonings, one with the other, accusing or even excusing them.)
 
 ## v16
 
@@ -67,11 +67,11 @@ In the day when God judges the secrets of men according to my gospel through Jes
 
 ## v17
 
-But if you bear the name of Jew, and rest upon the law, and boast in God,
+[[Romans-02.fn#Footnote 17.1 — But|But]] if you bear the name of Jew, and rest upon the law, and [[Romans-02.fn#Footnote 17.2 — boast|boast]] in God,
 
 ## v18
 
-And know the will, and approve the things that are more excellent, being instructed out of the law,
+And know the will, and [[Romans-02.fn#Footnote 18.1 — approve|approve]] the things that are more excellent, being instructed out of the law,
 
 ## v19
 
@@ -79,11 +79,11 @@ And have confidence that you yourself are a guide to the blind, a light to those
 
 ## v20
 
-One who disciplines the foolish, a teacher of babes, having the proper form of the knowledge and truth in the law;
+One who disciplines the foolish, a teacher of [[Romans-02.fn#Footnote 20.1 — babes|babes]], having the proper form of the knowledge and truth in the law;
 
 ## v21
 
-You therefore who teach another, do you not teach yourself? You who preach not to steal, do you steal?
+[[Romans-02.fn#Footnote 21.1 — You|You]] therefore who teach another, do you not teach yourself? You who preach not to steal, do you steal?
 
 ## v22
 
@@ -103,7 +103,7 @@ For circumcision profits if you practice the law; but if you are a transgressor 
 
 ## v26
 
-If therefore the uncircumcision keeps the ordinances of the law, will not his uncircumcision be accounted as circumcision?
+If therefore the uncircumcision keeps the [[Romans-02.fn#Footnote 26.1 — ordinances|ordinances]] of the law, will not his uncircumcision be accounted as circumcision?
 
 ## v27
 
@@ -111,8 +111,8 @@ And the uncircumcision by nature, if he fulfills the law, will judge you who thr
 
 ## v28
 
-For he is not a Jew who is one outwardly; neither is circumcision that which is outward in the flesh.
+[[Romans-02.fn#Footnote 28.1 — For|For]] he is not a Jew who is one [[Romans-02.fn#Footnote 28.2 — outwardly|outwardly]]; neither is circumcision that which is outward in the flesh.
 
 ## v29
 
-But he is a Jew who is one inwardly; and circumcision is of the heart, in spirit, not in letter, whose praise is not from men, but from God.
+[[Romans-02.fn#Footnote 29.1 — But|But]] he is a Jew who is one inwardly; and circumcision is of the heart, [[Romans-02.fn#Footnote 29.2 — in|in]] spirit, not [[Romans-02.fn#Footnote 29.2 — in|in]] letter, whose praise is not [[Romans-02.fn#Footnote 29.3 — from|from]] men, but [[Romans-02.fn#Footnote 29.3 — from|from]] God.

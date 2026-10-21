@@ -1,6 +1,6 @@
 ## v1
 
-Then the daughters of Zelophehad the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, of the families of Manasseh the son of Joseph came near. And these are the names of his daughters: Mahlah, Noah, and Hoglah, and Milcah and Tirzah.
+Then the [[Numbers-27.fn#Footnote 1.1 — daughters|daughters]] of Zelophehad the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, of the [[Numbers-27.fn#Footnote 1.2 — families|families]] of Manasseh the son of Joseph came near. And these are the names of his daughters: Mahlah, Noah, and Hoglah, and Milcah and Tirzah.
 
 ## v2
 
@@ -12,7 +12,7 @@ Our father died in the wilderness, and he was not among the company of those who
 
 ## v4
 
-Why should our father’s name be taken away from among his family because he had no son? Give us a possession among our father’s brothers.
+Why should our father’s name be taken away from among his family because he had no son? Give us a [[Numbers-27.fn#Footnote 4.1 — possession|possession]] among our father’s brothers.
 
 ## v5
 
@@ -24,11 +24,11 @@ Then Jehovah spoke to Moses, saying,
 
 ## v7
 
-The daughters of Zelophehad speak rightly. You shall surely give them the possession of an inheritance among their father’s brothers; and you shall cause the inheritance of their father to pass to them.
+The daughters of Zelophehad speak rightly. You shall surely give them the [[Numbers-27.fn#Footnote 7.1 — possession|possession]] of an inheritance among their father’s brothers; and you shall cause the inheritance of their father to pass to them.
 
 ## v8
 
-And you shall speak to the children of Israel, saying, If a man dies and has no son, then you shall cause his inheritance to pass to his daughter.
+And you shall speak to the children of Israel, saying, [[Numbers-27.fn#Footnote 8.1 — If|If]] a man dies and has no son, then you shall cause his inheritance to pass to his daughter.
 
 ## v9
 
@@ -52,7 +52,7 @@ And when you have seen it, you also shall be gathered to your people, just as Aa
 
 ## v14
 
-Because you rebelled against My word in the wilderness of Zin, in the strife of the assembly, and failed to sanctify Me at the waters before their eyes. (These are the waters of Meribah-kadesh, in the wilderness of Zin.)
+Because you [[Numbers-27.fn#Footnote 14.1 — rebelled|rebelled]] against My word in the wilderness of Zin, in the strife of the assembly, and failed to [[Numbers-27.fn#Footnote 14.1 — rebelled|sanctify]] Me at the waters before their eyes. (These are the waters of [[Numbers-27.fn#Footnote 14.2 — Meribah-kadesh|Meribah-kadesh]], in the wilderness of Zin.)
 
 ## v15
 
@@ -60,11 +60,11 @@ And Moses spoke to Jehovah, saying,
 
 ## v16
 
-Let Jehovah, the God of the spirits of all flesh, appoint a man over the assembly,
+Let Jehovah, the God of the [[Numbers-27.fn#Footnote 16.1 — spirits|spirits]] of all flesh, appoint a man over the assembly,
 
 ## v17
 
-Who will go out before them and who will come in before them, and who will lead them out and who will bring them in; so that the assembly of Jehovah will not be like sheep which have no shepherd.
+Who will go out before them and who will come in before them, and who will lead them out and who will bring them in; so that the assembly of Jehovah will not be like sheep which have no [[Numbers-27.fn#Footnote 17.1 — shepherd|shepherd]].
 
 ## v18
 
@@ -80,7 +80,7 @@ And you shall put some of your honor upon him, so that the whole assembly of the
 
 ## v21
 
-And he shall stand before Eleazar the priest, and he shall inquire for him by the judgment of the Urim before Jehovah. At his word shall they go out and at his word they shall come in, both he and all the children of Israel with him, even the whole assembly.
+And he shall stand before Eleazar the priest, and he shall inquire for him by the judgment of the [[Numbers-27.fn#Footnote 21.1 — Urim|Urim]] before Jehovah. At his word shall they go out and at his word they shall come in, both he and all the children of Israel with him, even the whole assembly.
 
 ## v22
 
@@ -88,4 +88,4 @@ And Moses did as Jehovah commanded him, and he took Joshua and set him before El
 
 ## v23
 
-And he laid his hands upon him and gave him a charge just as Jehovah had spoken through Moses.
+And he [[Numbers-27.fn#Footnote 23.1 — laid|laid]] his hands upon him and gave him a charge just as Jehovah had spoken through Moses.

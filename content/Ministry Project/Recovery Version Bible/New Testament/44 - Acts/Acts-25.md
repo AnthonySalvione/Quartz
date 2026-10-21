@@ -19,7 +19,7 @@ Festus therefore answered that Paul was being kept in custody in Caesarea, and t
 
 ## v5
 
-Therefore, he said, let influential men from among you go down with me, and if there is anything wrong in the man, let them accuse him.
+Therefore, he said, let [[Acts-25.fn#Footnote 5.1 — influential|influential]] men from among you go down with me, and if there is anything [[Acts-25.fn#Footnote 5.2 — wrong|wrong]] in the man, let them accuse him.
 
 ## v6
 
@@ -31,11 +31,11 @@ And when he arrived, the Jews who had come down from Jerusalem stood around him,
 
 ## v8
 
-While Paul said in his defense, Neither against the law of the Jews nor against the temple nor against Caesar have I sinned in anything.
+While Paul said in his [[Acts-25.fn#Footnote 8.1 — defense|defense]], Neither against the law of the Jews nor against the temple nor against Caesar have I sinned in anything.
 
 ## v9
 
-But Festus, wanting to gain favor with the Jews, answered Paul and said, Are you willing to go up to Jerusalem and be judged there before me concerning these things?
+But Festus, wanting to [[Acts-25.fn#Footnote 9.1 — gain|gain]] favor with the Jews, answered Paul and said, Are you willing to go up to Jerusalem and be judged there before me concerning these things?
 
 ## v10
 
@@ -43,15 +43,15 @@ And Paul said, I am standing before Caesar’s judgment seat, where I ought to b
 
 ## v11
 
-If therefore I am doing wrong and have committed anything worthy of death, I do not refuse to die; but if there is nothing to the things which these accuse me of, no one can hand me over to them. I appeal to Caesar.
+If therefore I am doing wrong and have committed anything worthy of death, I do not refuse to die; but if there is nothing to the things which these accuse me of, no one can hand me over to them. I [[Acts-25.fn#Footnote 11.1 — appeal|appeal]] to [[Acts-25.fn#Footnote 11.2 — Caesar|Caesar]].
 
 ## v12
 
-Then when Festus had conferred with the council, he answered, To Caesar you have appealed; to Caesar you shall go.
+Then when Festus had conferred with the [[Acts-25.fn#Footnote 12.1 — council|council]], he answered, To Caesar you have appealed; to Caesar you shall go.
 
 ## v13
 
-Now when some days had passed, Agrippa the king and Bernice arrived at Caesarea and greeted Festus.
+Now when some days had passed, [[Acts-25.fn#Footnote 13.1 — Agrippa|Agrippa]] the king and [[Acts-25.fn#Footnote 13.2 — Bernice|Bernice]] arrived at Caesarea and greeted Festus.
 
 ## v14
 
@@ -75,15 +75,15 @@ Concerning him the accusers stood and brought no charge of the evil things I was
 
 ## v19
 
-But they had certain questions against him concerning their own religion and concerning a certain Jesus who had died, whom Paul affirmed to be alive.
+But they had certain questions against him concerning their own [[Acts-25.fn#Footnote 19.1 — religion|religion]] and concerning a certain Jesus who had died, whom Paul affirmed to be alive.
 
 ## v20
 
-And being at a loss as to how there should be an inquiry concerning these things, I asked him if he was willing to go to Jerusalem and be judged there concerning these things.
+And [[Acts-25.fn#Footnote 20.1 — being|being]] at a loss as to how there should be an inquiry concerning these things, I asked him if he was willing to go to Jerusalem and be judged there concerning these things.
 
 ## v21
 
-But when Paul appealed to be kept in custody for the decision of the Emperor, I ordered him to be kept in custody until I should send him up to Caesar.
+But when Paul appealed to be kept in custody for [[Acts-25.fn#Footnote 21.1 — the|the]] decision of the Emperor, I ordered him to be kept in custody until I should send him up to Caesar.
 
 ## v22
 
@@ -91,7 +91,7 @@ And Agrippa said to Festus, I myself also would like to hear the man. Tomorrow, 
 
 ## v23
 
-Therefore on the next day, when Agrippa and Bernice came with great pomp and entered into the hall of audience together with the commanders and prominent men of the city, and when Festus had given the order, Paul was brought.
+Therefore on the next day, when Agrippa and Bernice came with great pomp and entered into the hall of audience together with the [[Acts-25.fn#Footnote 23.1 — commanders|commanders]] and prominent men of the city, and when Festus had given the order, Paul was brought.
 
 ## v24
 
@@ -99,11 +99,11 @@ And Festus said, King Agrippa, and all you men who are present with us, you beho
 
 ## v25
 
-But I found that he had done nothing worthy of death; and since he himself appealed to the Emperor, I decided to send him.
+But I found that he had done nothing worthy of death; and since he himself appealed to the Emperor, I [[Acts-25.fn#Footnote 25.1 — decided|decided]] to send him.
 
 ## v26
 
-Concerning him I have nothing definite to write to my lord; therefore I have brought him before you, and especially before you, King Agrippa, so that when the examination has taken place, I may have something to write.
+Concerning him I have nothing definite to write to my lord; therefore I have brought him before you, and especially before [[Acts-25.fn#Footnote 26.1 — you|you]], King Agrippa, so that when the examination has taken place, I may have something to write.
 
 ## v27
 

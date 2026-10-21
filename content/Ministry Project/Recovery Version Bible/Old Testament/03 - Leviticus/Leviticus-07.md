@@ -1,14 +1,14 @@
 ## v1
 
-And this is the law of the trespass offering; it is most holy;
+And this is the law of the trespass offering; it is most [[Leviticus-07.fn#Footnote 1.1 — holy|holy]];
 
 ## v2
 
-In the place where they slaughter the burnt offering they shall slaughter the trespass offering, and its blood he shall sprinkle on and around the altar.
+In the [[Leviticus-07.fn#Footnote 2.1 — place|place]] where they slaughter the burnt offering they shall slaughter the trespass offering, and its [[Leviticus-07.fn#Footnote 2.2 — blood|blood]] he shall sprinkle on and around the altar.
 
 ## v3
 
-And he shall present from it all its fat: the fat tail, and the fat that covers the inward parts,
+And he shall present from it all its [[Leviticus-07.fn#Footnote 3.1 — fat|fat]]: the fat tail, and the fat that covers the inward parts,
 
 ## v4
 
@@ -20,19 +20,19 @@ And the priest shall burn them on the altar as an offering by fire to Jehovah; i
 
 ## v6
 
-Every male among the priests may eat of it; it shall be eaten in a holy place; it is most holy.
+Every [[Leviticus-07.fn#Footnote 6.1 — male|male]] among the priests may eat of it; it shall be eaten in a [[Leviticus-07.fn#Footnote 6.1 — male|holy]] place; it is most holy.
 
 ## v7
 
-The trespass offering is like the sin offering; there is one law for them: The priest who makes expiation with it shall have it.
+The trespass offering is like the sin offering; there is [[Leviticus-07.fn#Footnote 7.1 — one|one]] law for them: The [[Leviticus-07.fn#Footnote 7.2 — priest|priest]] who makes expiation with it shall have it.
 
 ## v8
 
-And the priest who presents anyone’s burnt offering, that priest shall have for himself the skin of the burnt offering which he has presented.
+And the priest who presents anyone’s burnt offering, that priest shall have for himself the [[Leviticus-07.fn#Footnote 8.1 — skin|skin]] of the burnt offering which he has presented.
 
 ## v9
 
-And every meal offering that is baked in an oven and everything that is made in a pot or on a flat plate shall belong to the priest who presents it.
+And every meal offering that is baked in an oven and everything that is made in a pot or on a flat plate shall belong to the [[Leviticus-07.fn#Footnote 9.1 — priest|priest]] who presents it.
 
 ## v10
 
@@ -40,23 +40,23 @@ And every other meal offering, mingled with oil or dry, shall be for all the son
 
 ## v11
 
-Now this is the law of the sacrifice of peace offerings that one shall present to Jehovah:
+Now this is the law of the sacrifice of peace offerings that one shall present to [[Leviticus-07.fn#Footnote 11.1 — Jehovah|Jehovah]]:
 
 ## v12
 
-If he presents it for a thanksgiving, then he shall present with the sacrifice of thanksgiving unleavened cakes mingled with oil and unleavened wafers anointed with oil and saturated cakes of fine flour mingled with oil.
+If he presents it for a thanksgiving, then he shall present with the [[Leviticus-07.fn#Footnote 12.1 — sacrifice|sacrifice]] of thanksgiving unleavened cakes mingled with oil and unleavened wafers anointed with oil and saturated cakes of fine flour mingled with oil.
 
 ## v13
 
-With cakes of leavened bread he shall present his offering with the sacrifice of his peace offerings for thanksgiving.
+With cakes of [[Leviticus-07.fn#Footnote 13.1 — leavened|leavened]] bread he shall present his offering with the sacrifice of his peace offerings for thanksgiving.
 
 ## v14
 
-And from it he shall present one out of each offering as a heave offering to Jehovah; it shall belong to the priest who sprinkles the blood of the peace offerings.
+And from [[Leviticus-07.fn#Footnote 14.1 — it|it]] he shall present one out of each offering as a heave offering to Jehovah; it shall belong to the priest who sprinkles the blood of the peace offerings.
 
 ## v15
 
-And the flesh of the sacrifice of his peace offerings for thanksgiving shall be eaten on the day of his offering; he shall not leave any of it until the morning.
+And the flesh of the sacrifice of his peace offerings for thanksgiving shall be eaten on the day of his offering; he shall [[Leviticus-07.fn#Footnote 15.1 — not|not]] leave any of it until the morning.
 
 ## v16
 
@@ -68,15 +68,15 @@ But what remains of the flesh of the sacrifice on the third day shall be burned 
 
 ## v18
 
-And if any of the flesh of the sacrifice of his peace offerings is eaten at all on the third day, it will not be accepted, neither will it be reckoned to the one who presents it; it will be an abomination, and the person who eats of it shall bear his own iniquity.
+And if any of the flesh of the sacrifice of his peace offerings is eaten at all on the third day, it will not be accepted, neither will it be reckoned to the one who presents it; it will be an [[Leviticus-07.fn#Footnote 18.1 — abomination|abomination]], and the person who eats of it shall bear his own [[Leviticus-07.fn#Footnote 18.1 — abomination|iniquity]].
 
 ## v19
 
-And flesh that touches any unclean thing shall not be eaten; it shall be burned with fire. And as for other flesh, anyone who is clean may eat such flesh.
+And flesh that touches any [[Leviticus-07.fn#Footnote 19.1 — unclean|unclean]] thing shall not be eaten; it shall be burned with fire. And as for other flesh, anyone who is [[Leviticus-07.fn#Footnote 19.1 — unclean|clean]] may eat such flesh.
 
 ## v20
 
-But the person who eats of the flesh of the sacrifice of peace offerings, which belong to Jehovah, with his uncleanness upon him, that person shall be cut off from his people.
+But the person who eats of the flesh of the sacrifice of peace offerings, which belong to Jehovah, with his uncleanness upon him, that person shall be [[Leviticus-07.fn#Footnote 20.1 — cut|cut]] off from his people.
 
 ## v21
 
@@ -88,19 +88,19 @@ Then Jehovah spoke to Moses, saying,
 
 ## v23
 
-Speak to the children of Israel, saying, You shall not eat any fat of an ox or of a sheep or of a goat.
+Speak to the children of Israel, saying, You shall not eat any [[Leviticus-07.fn#Footnote 23.1 — fat|fat]] of an ox or of a sheep or of a goat.
 
 ## v24
 
-And the fat of an animal that dies and the fat of an animal which is torn by beasts may be put to any other use, but you shall by no means eat it.
+And the fat of an animal that dies and the fat of an animal which is torn by beasts may be put to any other use, but [[Leviticus-07.fn#Footnote 24.1 — you|you]] shall by no means eat it.
 
 ## v25
 
-For whoever eats the fat of a beast from which someone presents an offering by fire to Jehovah, indeed the person who eats it shall be cut off from his people.
+For whoever eats the [[Leviticus-07.fn#Footnote 25.1 — fat|fat]] of a beast from which someone presents an offering by fire to Jehovah, indeed the person who eats it shall be cut off from his people.
 
 ## v26
 
-And you shall not eat any blood, either of bird or of beast, in any of your dwelling places.
+And you shall not eat any [[Leviticus-07.fn#Footnote 26.1 — blood|blood]], either of bird or of beast, in any of your dwelling places.
 
 ## v27
 
@@ -112,11 +112,11 @@ Then Jehovah spoke to Moses, saying,
 
 ## v29
 
-Speak to the children of Israel, saying, He who presents the sacrifice of his peace offerings to Jehovah shall bring his offering to Jehovah out of the sacrifice of his peace offerings.
+[[Leviticus-07.fn#Footnote 29.1 — Speak|Speak]] to the children of Israel, saying, He who presents the sacrifice of his peace offerings to Jehovah shall bring his offering to Jehovah out of the sacrifice of his peace offerings.
 
 ## v30
 
-His own hands shall bring Jehovah’s offerings by fire; the fat with the breast he shall bring, that the breast may be waved as a wave offering before Jehovah.
+His own hands shall bring Jehovah’s offerings by fire; the fat with the breast he shall bring, that the breast may be waved as a [[Leviticus-07.fn#Footnote 30.1 — wave|wave]] offering before Jehovah.
 
 ## v31
 
@@ -136,7 +136,7 @@ For the breast of the wave offering and the thigh of the heave offering I have t
 
 ## v35
 
-This is the anointing portion of Aaron and the anointing portion of his sons, from Jehovah’s offerings by fire, in the day when he presented them to serve Jehovah as priests,
+This is the [[Leviticus-07.fn#Footnote 35.1 — anointing|anointing]] portion of Aaron and the anointing portion of his sons, from Jehovah’s offerings by fire, in the day when he presented them to serve Jehovah as priests,
 
 ## v36
 
@@ -144,7 +144,7 @@ Which Jehovah commanded to be given them from the children of Israel in the day 
 
 ## v37
 
-This is the law of the burnt offering and of the meal offering and of the sin offering and of the trespass offering and of the consecration and of the sacrifice of peace offerings,
+This is the law of the burnt offering and of the meal offering and of the sin offering and of the trespass offering and of the [[Leviticus-07.fn#Footnote 37.1 — consecration|consecration]] and of the sacrifice of [[Leviticus-07.fn#Footnote 37.2 — peace|peace]] offerings,
 
 ## v38
 

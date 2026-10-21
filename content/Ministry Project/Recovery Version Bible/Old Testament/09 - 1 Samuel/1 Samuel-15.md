@@ -4,11 +4,11 @@ And Samuel said to Saul, Jehovah sent me to anoint you king over His people, ove
 
 ## v2
 
-Thus says Jehovah of hosts, I will punish the Amalekites for what they did to Israel when they set themselves against them in the way as they came up out of Egypt.
+Thus says Jehovah of hosts, I will punish the [[1 Samuel-15.fn#Footnote 2.1 — Amalekites|Amalekites]] for what they did to Israel when they set themselves against them in the way as they came up out of Egypt.
 
 ## v3
 
-Go now and strike the Amalekites; and utterly destroy all that they have, and do not spare them, but kill both man and woman, infant and suckling, oxen and sheep, camel and donkey.
+Go now and strike the Amalekites; and [[1 Samuel-15.fn#Footnote 3.1 — utterly|utterly]] destroy all that they have, and do not spare them, but kill both man and woman, infant and suckling, oxen and sheep, camel and donkey.
 
 ## v4
 
@@ -32,7 +32,7 @@ And he captured Agag the king of the Amalekites alive and utterly destroyed all 
 
 ## v9
 
-But Saul and the people spared Agag and the best of the sheep and of the oxen and of the fatlings, and the lambs and all that was good, and would not utterly destroy them; but everything that was despised and worthless, this they utterly destroyed.
+But Saul and the people [[1 Samuel-15.fn#Footnote 9.1 — spared|spared]] Agag and the best of the sheep and of the oxen and of the fatlings, and the lambs and all that was good, and would not utterly destroy them; but everything that was despised and worthless, this they utterly destroyed.
 
 ## v10
 
@@ -44,7 +44,7 @@ I repent that I made Saul king, for he has turned back from following Me and has
 
 ## v12
 
-Then Samuel rose early to meet Saul in the morning. And it was told Samuel, saying, Saul went to Carmel and has now set up a monument for himself, and he has returned and passed on down to Gilgal.
+Then Samuel rose early to meet Saul in the morning. And it was told Samuel, saying, Saul went to Carmel and has now set up a [[1 Samuel-15.fn#Footnote 12.1 — monument|monument]] for himself, and he has returned and passed on down to Gilgal.
 
 ## v13
 
@@ -56,7 +56,7 @@ And Samuel said, What then is this bleating of sheep in my ears and the lowing o
 
 ## v15
 
-And Saul said, They have been brought from the Amalekites; for the people spared the best of the sheep and oxen to sacrifice to Jehovah your God, and the rest we have utterly destroyed.
+And Saul said, They have been brought from the Amalekites; for the people spared the best of the sheep and oxen to [[1 Samuel-15.fn#Footnote 15.1 — sacrifice|sacrifice]] to Jehovah your God, and the rest we have utterly destroyed.
 
 ## v16
 
@@ -88,7 +88,7 @@ And Samuel said, / Does Jehovah delight in burnt offerings and sacrifices / As m
 
 ## v23
 
-For rebellion is like the sin of divination, / And insubordination is like idolatry and teraphim. / Because you have rejected the word of Jehovah, / He has also rejected you from being king.
+For [[1 Samuel-15.fn#Footnote 23.1 — rebellion|rebellion]] is like the sin of divination, / And insubordination is like idolatry and teraphim. / Because you have rejected the word of Jehovah, / He has also [[1 Samuel-15.fn#Footnote 23.2 — rejected|rejected]] you from being king.
 
 ## v24
 
@@ -104,11 +104,11 @@ But Samuel said to Saul, I will not return with you, for you have rejected the w
 
 ## v27
 
-And when Samuel turned around to go, Saul seized the corner of his cloak, and it tore.
+And when Samuel turned around to go, [[1 Samuel-15.fn#Footnote 27.1 — Saul|Saul]] seized the corner of his cloak, and it tore.
 
 ## v28
 
-And Samuel said to him, Jehovah has torn the kingdom of Israel away from you today and has given it to an associate of yours, who is better than you.
+And Samuel said to him, Jehovah has torn the kingdom of Israel away from you today and has given it to an [[1 Samuel-15.fn#Footnote 28.1 — associate|associate]] of yours, who is better than you.
 
 ## v29
 
@@ -116,7 +116,7 @@ Moreover the Eminence of Israel does not lie nor repent, for He is not a man tha
 
 ## v30
 
-Then Saul said, I have sinned. Honor me now, I beg you, before the elders of my people and before Israel, and return with me so that I may worship Jehovah your God.
+Then [[1 Samuel-15.fn#Footnote 30.1 — Saul|Saul]] said, I have sinned. Honor me now, I beg you, before the elders of my people and before Israel, and return with me so that I may worship Jehovah your God.
 
 ## v31
 

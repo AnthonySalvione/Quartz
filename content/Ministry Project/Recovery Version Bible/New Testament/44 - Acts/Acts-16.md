@@ -11,7 +11,7 @@ He was well attested to by the brothers in Lystra and Iconium.
 
 ## v3
 
-Paul wanted this one to go forth with him; and he took him and circumcised him because of the Jews who were in those places, for they all knew that his father was a Greek.
+Paul wanted this one to go forth with him; and he took him and [[Acts-16.fn#Footnote 3.1 — circumcised|circumcised]] him [[Acts-16.fn#Footnote 3.2 — because|because]] of the Jews who were in those places, for they all knew that his father was a Greek.
 
 ## v4
 
@@ -19,15 +19,15 @@ And as they went through the cities, they delivered to them the decrees to keep 
 
 ## v5
 
-And so the churches were strengthened in the faith and increased in number daily.
+And so the [[Acts-16.fn#Footnote 5.1 — churches|churches]] were strengthened in the faith and increased in number daily.
 
 ## v6
 
-And they passed through the region of Phrygia and Galatia, having been forbidden by the Holy Spirit to speak the word in Asia.
+And they passed through the region of Phrygia and Galatia, having been forbidden [[Acts-16.fn#Footnote 6.1 — by|by]] the Holy Spirit to speak the word in Asia.
 
 ## v7
 
-And when they had come to Mysia, they tried to go into Bithynia, yet the Spirit of Jesus did not allow them.
+And when they had come to Mysia, they tried to go into Bithynia, yet the [[Acts-16.fn#Footnote 7.1 — Spirit|Spirit]] of Jesus did [[Acts-16.fn#Footnote 7.2 — not|not]] allow them.
 
 ## v8
 
@@ -35,35 +35,35 @@ And bypassing Mysia, they came down to Troas.
 
 ## v9
 
-And a vision appeared to Paul during the night: A certain man, a Macedonian, was standing and entreating him and saying, Come over into Macedonia and help us.
+And a [[Acts-16.fn#Footnote 9.1 — vision|vision]] appeared to Paul during the night: A certain man, a Macedonian, was standing and entreating him and saying, Come over into [[Acts-16.fn#Footnote 9.2 — Macedonia|Macedonia]] and help us.
 
 ## v10
 
-And when he had seen the vision, we immediately endeavored to go forth into Macedonia, concluding that God had called us to announce the gospel to them.
+And when he had seen the vision, [[Acts-16.fn#Footnote 10.1 — we|we]] immediately [[Acts-16.fn#Footnote 10.2 — endeavored|endeavored]] to go forth into Macedonia, [[Acts-16.fn#Footnote 10.3 — concluding|concluding]] that God had called us to announce the gospel to them.
 
 ## v11
 
-And putting out to sea from Troas, we ran a straight course to Samothrace, and on the following day to Neapolis,
+And putting out to sea from [[Acts-16.fn#Footnote 11.1 — Troas|Troas]], we ran a straight course to [[Acts-16.fn#Footnote 11.2 — Samothrace|Samothrace]], and on the following day to [[Acts-16.fn#Footnote 11.3 — Neapolis|Neapolis]],
 
 ## v12
 
-And from there to Philippi, which is the leading city of that part of Macedonia, a Roman colony; and we spent some days in this city.
+And from there to Philippi, which is the leading city of that part of Macedonia, a Roman [[Acts-16.fn#Footnote 12.1 — colony|colony]]; and we spent some days in this city.
 
 ## v13
 
-And on the Sabbath day we went outside the gate by the river, where we supposed there would be a place of prayer; and we sat down and spoke to the women who had come together.
+And on the [[Acts-16.fn#Footnote 13.1 — Sabbath|Sabbath]] day we went outside the gate by the river, where we supposed there would be a place of [[Acts-16.fn#Footnote 13.2 — prayer|prayer]]; and we sat down and spoke to the women who had come together.
 
 ## v14
 
-And a certain woman named Lydia, a seller of purple-dyed goods from the city of Thyatira who worshipped God, was listening, whose heart the Lord opened to give heed to the things being spoken by Paul.
+And a certain woman named Lydia, a seller of purple-dyed goods from the city of Thyatira who worshipped God, was listening, whose heart the [[Acts-16.fn#Footnote 14.1 — Lord|Lord]] opened to give heed to the things being spoken by Paul.
 
 ## v15
 
-And when she was baptized, as well as her household, she entreated us, saying, If you have judged me to be faithful to the Lord, come into my house and abide. And she constrained us.
+And when she was [[Acts-16.fn#Footnote 15.1 — baptized|baptized]], as well as her household, she entreated us, saying, If you have judged me to be faithful to the Lord, [[Acts-16.fn#Footnote 15.2 — come|come]] into my [[Acts-16.fn#Footnote 15.3 — house|house]] and abide. And she constrained us.
 
 ## v16
 
-And as we were going to the place of prayer, a certain slave girl having a spirit of Python met us, who brought her masters much profit by divining.
+And as we were going to the place of prayer, a certain slave girl having a [[Acts-16.fn#Footnote 16.1 — spirit|spirit]] of [[Acts-16.fn#Footnote 16.2 — Python|Python]] met us, who brought her masters much profit by [[Acts-16.fn#Footnote 16.3 — divining|divining]].
 
 ## v17
 
@@ -79,7 +79,7 @@ But when her masters saw that their hope of profit had gone out, they laid hold 
 
 ## v20
 
-And when they had brought them to the magistrates, they said, These men, being Jews, are throwing our city into confusion,
+And when they had brought them to the [[Acts-16.fn#Footnote 20.1 — magistrates|magistrates]], they said, These men, being Jews, are throwing our city into confusion,
 
 ## v21
 
@@ -95,7 +95,7 @@ And when they had laid many stripes upon them, they threw them into prison, char
 
 ## v24
 
-Who, having received such a charge, threw them into the inner prison and secured their feet in the stocks.
+Who, having received such a charge, threw them into the inner prison and secured their feet in the [[Acts-16.fn#Footnote 24.1 — stocks|stocks]].
 
 ## v25
 
@@ -123,7 +123,7 @@ And leading them outside, he said, Sirs, what must I do to be saved?
 
 ## v31
 
-And they said, Believe on the Lord Jesus, and you shall be saved, you and your household.
+And they said, Believe on the Lord Jesus, and you shall be saved, you and your [[Acts-16.fn#Footnote 31.1 — household|household]].
 
 ## v32
 
@@ -131,15 +131,15 @@ And they spoke the word of God to him together with all those in his house.
 
 ## v33
 
-And he took them with him in that very hour of the night and washed their wounds. And he was baptized immediately, he and all his household.
+And he took them with him in that very hour of the night and washed their wounds. And he was [[Acts-16.fn#Footnote 33.1 — baptized|baptized]] immediately, he and all his household.
 
 ## v34
 
-And he brought them up into his house and set a table before them; and he exulted because he had believed in God with all his household.
+And he brought them [[Acts-16.fn#Footnote 34.1 — up|up]] [[Acts-16.fn#Footnote 34.2 — into|into]] his house and set a table before them; and he exulted because he had believed in God with all his household.
 
 ## v35
 
-Now when day came, the magistrates sent the lictors, saying, Release those men.
+Now when day came, the magistrates sent the [[Acts-16.fn#Footnote 35.1 — lictors|lictors]], saying, Release those men.
 
 ## v36
 

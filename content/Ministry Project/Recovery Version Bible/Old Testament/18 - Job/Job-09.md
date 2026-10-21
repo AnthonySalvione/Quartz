@@ -19,7 +19,7 @@ Who has ever resisted Him and come through whole?
 
 ## v5
 
-He who removes mountains, and they do not know it,  
+He who [[Job-09.fn#Footnote 5.1 — removes|removes]] mountains, and they do not know it,  
 When He overturns them in His anger;
 
 ## v6
@@ -60,7 +60,7 @@ Who can say to Him, What are You doing?
 ## v13
 
 God does not turn back His anger;  
-Under Him Rahab’s helpers stoop.
+Under Him [[Job-09.fn#Footnote 13.1 — Rahab’s|Rahab’s]] helpers stoop.
 
 ## v14
 
@@ -70,7 +70,7 @@ And choose my words properly with Him?
 ## v15
 
 I, though righteous, could not answer Him;  
-I could only plead for mercy before my Judge.
+I could only plead for mercy before my [[Job-09.fn#Footnote 15.1 — Judge|Judge]].
 
 ## v16
 
@@ -95,7 +95,7 @@ Or if of judgment, Who, says He, can appoint Me a time?
 ## v20
 
 Though I am righteous, my mouth would condemn me;  
-Though I am perfect, it would prove me perverse.
+Though I am perfect, [[Job-09.fn#Footnote 20.1 — it|it]] would prove me perverse.
 
 ## v21
 
@@ -110,7 +110,7 @@ He destroys the perfect and the wicked.
 ## v23
 
 If some scourge suddenly kills,  
-He derides the despair of the innocent.
+He derides the [[Job-09.fn#Footnote 23.1 — despair|despair]] of the innocent.
 
 ## v24
 
@@ -145,7 +145,7 @@ Why then do I labor in vain?
 
 ## v30
 
-If I wash myself with soap  
+If I wash myself with [[Job-09.fn#Footnote 30.1 — soap|soap]]  
 And cleanse my hands with lye,
 
 ## v31

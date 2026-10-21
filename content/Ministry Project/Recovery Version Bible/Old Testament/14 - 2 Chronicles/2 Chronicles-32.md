@@ -16,7 +16,7 @@ So many people gathered together and stopped all the fountains and the brook tha
 
 ## v5
 
-And he took courage and built up all the wall that was broken down and erected towers on it and built another wall outside; and he strengthened the Millo in the city of David and made weapons and shields in abundance.
+And he took courage and built up all the wall that was broken down and [[2 Chronicles-32.fn#Footnote 5.1 — erected|erected]] towers on it and built another wall outside; and he strengthened the Millo in the city of David and made weapons and shields in abundance.
 
 ## v6
 
@@ -84,7 +84,7 @@ And Jehovah sent an angel, who annihilated all the mighty men of valor and the l
 
 ## v22
 
-Thus Jehovah saved Hezekiah and the inhabitants of Jerusalem out of the hand of Sennacherib the king of Assyria and out of the hand of everyone, and He protected them on all sides.
+Thus Jehovah saved Hezekiah and the inhabitants of Jerusalem out of the hand of Sennacherib the king of Assyria and out of the hand of everyone, and He [[2 Chronicles-32.fn#Footnote 22.1 — protected|protected]] them on all sides.
 
 ## v23
 
@@ -120,7 +120,7 @@ And it was this Hezekiah who stopped the upper spring of the water of Gihon and 
 
 ## v31
 
-So also in the matter of the envoys of the princes of Babylon, who had been sent to him to inquire about the wonders that had happened in the land, God forsook him only to test him and know all that was in his heart.
+So also in the matter of the [[2 Chronicles-32.fn#Footnote 31.1 — envoys|envoys]] of the princes of Babylon, who had been sent to him to inquire about the wonders that had happened in the land, God forsook him only to test him and know all that was in his heart.
 
 ## v32
 

@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Command the children of Israel and say to them, My offering, My food for My offerings by fire of a satisfying fragrance to Me, you shall be careful to present to Me at its appointed time.
+Command the children of Israel and say to them, My offering, My [[Numbers-28.fn#Footnote 2.1 — food|food]] for My offerings by fire of a satisfying fragrance to Me, you shall be careful to present to Me at its appointed time.
 
 ## v3
 
@@ -12,11 +12,11 @@ And you shall say to them, This is the offering by fire which you shall present 
 
 ## v4
 
-One lamb you shall offer in the morning, and the other lamb you shall offer at twilight;
+One lamb you shall offer in the morning, and the other lamb you shall offer [[Numbers-28.fn#Footnote 4.1 — at|at]] twilight;
 
 ## v5
 
-Also a tenth of an ephah of fine flour for a meal offering, mingled with the fourth of a hin of beaten oil.
+Also a tenth of an ephah of fine flour for a [[Numbers-28.fn#Footnote 5.1 — meal|meal]] offering, mingled with the fourth of a hin of beaten oil.
 
 ## v6
 
@@ -24,7 +24,7 @@ It is a continual burnt offering, which was set up on Mount Sinai for a satisfyi
 
 ## v7
 
-And its drink offering shall be the fourth of a hin for the one lamb; in the sanctuary you shall pour out a drink offering of strong drink to Jehovah.
+And its [[Numbers-28.fn#Footnote 7.1 — drink|drink]] offering shall be the fourth of a hin for the one lamb; in the sanctuary you shall pour out a drink offering of strong drink to Jehovah.
 
 ## v8
 
@@ -40,7 +40,7 @@ This is the burnt offering of every Sabbath, besides the continual burnt offerin
 
 ## v11
 
-And at the beginnings of your months you shall present a burnt offering to Jehovah: two bulls of the herd and one ram, seven male lambs a year old without blemish;
+And at the [[Numbers-28.fn#Footnote 11.1 — beginnings|beginnings]] of your months you shall present a burnt offering to Jehovah: two bulls of the herd and one ram, seven male lambs a year old without blemish;
 
 ## v12
 
@@ -56,11 +56,11 @@ And their drink offerings shall be half a hin of wine for a bull, and a third of
 
 ## v15
 
-Also one male goat for a sin offering to Jehovah shall be offered in addition to the continual burnt offering and its drink offering.
+Also one male goat for a [[Numbers-28.fn#Footnote 15.1 — sin|sin]] offering to Jehovah shall be offered in addition to the continual burnt offering and its drink offering.
 
 ## v16
 
-And in the first month on the fourteenth day of the month shall be Jehovah’s Passover.
+And in the first month on the fourteenth day of the month shall be Jehovah’s [[Numbers-28.fn#Footnote 16.1 — Passover|Passover]].
 
 ## v17
 

@@ -48,7 +48,7 @@ And the men of the garrison answered Jonathan and his armor bearer and said, Com
 
 ## v13
 
-And Jonathan went up on his hands and feet with his armor bearer behind him; and the Philistines fell before Jonathan, and his armor bearer went behind him killing them.
+And Jonathan went up on his hands and feet with his armor bearer behind him; and [[1 Samuel-14.fn#Footnote 13.1 — the|the]] Philistines fell before Jonathan, and his armor bearer went behind him killing them.
 
 ## v14
 
@@ -56,7 +56,7 @@ And that first slaughter that Jonathan and his armor bearer made was of about tw
 
 ## v15
 
-And there was a panic in the camp, in the field, and among all the people; even the garrison and the raiders were in a panic; and the earth quaked. And there came to be a very great panic.
+And there was a panic in the camp, in the field, and among all the people; even the garrison and the raiders were in a panic; and the earth quaked. And there came to be a [[1 Samuel-14.fn#Footnote 15.1 — very|very]] great panic.
 
 ## v16
 
@@ -128,7 +128,7 @@ And the people flew upon the spoil; and they took sheep and oxen and calves, and
 
 ## v33
 
-And it was reported to Saul, saying, The people are now sinning against Jehovah by eating the spoil with the blood. And he said, You have dealt treacherously. Roll a large stone to me today.
+And it was reported to Saul, saying, The people are now sinning against Jehovah by eating the spoil with the [[1 Samuel-14.fn#Footnote 33.1 — blood|blood]]. And he said, You have dealt treacherously. Roll a large stone to me today.
 
 ## v34
 
@@ -172,7 +172,7 @@ Then Saul said to Jonathan, Tell me what you have done. And Jonathan told him an
 
 ## v44
 
-And Saul said, God do so to me and more so, for you shall surely die, Jonathan.
+And Saul said, God do so [[1 Samuel-14.fn#Footnote 44.1 — to|to]] me and more so, for you shall surely die, Jonathan.
 
 ## v45
 

@@ -14,7 +14,7 @@ And it teaches me all things;
 It ever leads me in the Lord to live
 And to me His presence brings.
 
-## Chorus 1
+## Chorus
 	In my spirit the anointing dwells,
 	O the anointing dwells and teaches everything;
 	In my spirit the anointing dwells

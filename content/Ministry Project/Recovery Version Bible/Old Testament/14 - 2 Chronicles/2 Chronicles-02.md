@@ -36,7 +36,7 @@ To prepare for me timber in abundance; for the house which I am building will be
 
 ## v10
 
-And now I will give to your servants, the hewers who cut timber, twenty thousand cors of crushed wheat and twenty thousand cors of barley and twenty thousand baths of wine and twenty thousand baths of oil.
+And now I will give to your servants, the hewers who cut timber, twenty thousand [[2 Chronicles-02.fn#Footnote 10.1 — cors|cors]] of crushed wheat and twenty thousand cors of barley and twenty thousand baths of wine and twenty thousand baths of oil.
 
 ## v11
 
@@ -44,11 +44,11 @@ And Huram the king of Tyre answered by letter, sending it to Solomon, saying, Be
 
 ## v12
 
-Huram also said, Blessed be Jehovah the God of Israel, who made the heavens and the earth, who has given King David a wise son endowed with discernment and understanding, who will build a house for Jehovah and his royal palace.
+Huram also said, Blessed be Jehovah the God of Israel, who made the heavens and the earth, who has given King David a wise son [[2 Chronicles-02.fn#Footnote 12.1 — endowed|endowed]] with discernment and understanding, who will build a house for Jehovah and his royal palace.
 
 ## v13
 
-And now I have sent a skillful man, endowed with understanding, Huram-abi,
+And now I have sent a skillful man, endowed with understanding, [[2 Chronicles-02.fn#Footnote 13.1 — Huram-abi|Huram-abi]],
 
 ## v14
 

@@ -1,4 +1,15 @@
-
+---
+Category:
+  - Consecration
+Subcategory:
+  - Separated Unto the Lord
+Lyricist:
+  - M. C.
+Melody:
+  - Anonymous
+---
+# In this godless age
+## Stanza 1
 In this godless age,
 Lord, You need some Samuels.
 Burdened with a vision clear of Your economy.
@@ -7,6 +18,7 @@ And the ones who’d care for You
 E’en to put themselves aside
 To gain Your heart’s desire?
 
+## Chorus 1
 	Raise up some to meet Your need,
 	Some Nazarites—
 	Prophets, priests, and judges
@@ -15,6 +27,7 @@ To gain Your heart’s desire?
 	With Your authority;
 	A photo of Your heart for Your move.
 
+## Stanza 2
 Train us up today,
 Full of vision, seeking You.
 We’d await Your timing,
@@ -24,6 +37,7 @@ Staying in Your presence, Lord
 E’en the very index of Your eyes
 Would we obey.
 
+## Chorus 2
 	Raise up some to meet Your need,
 	Some Nazarites,
 	To bring in Your kingdom

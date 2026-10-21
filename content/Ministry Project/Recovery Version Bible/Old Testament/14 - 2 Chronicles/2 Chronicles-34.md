@@ -8,7 +8,7 @@ And he did what was right in the eyes of Jehovah and walked in the ways of David
 
 ## v3
 
-And in the eighth year of his reign, while he was still young, he began to seek after the God of David his father. And in the twelfth year he began to purge Judah and Jerusalem of the high places and the Asherahs and the idols and the molten images.
+And in the eighth year of his reign, while he was still [[2 Chronicles-34.fn#Footnote 3.1 — young|young]], he began to seek after the God of David his father. And in the twelfth year he began to purge Judah and Jerusalem of the high places and the Asherahs and the idols and the molten images.
 
 ## v4
 

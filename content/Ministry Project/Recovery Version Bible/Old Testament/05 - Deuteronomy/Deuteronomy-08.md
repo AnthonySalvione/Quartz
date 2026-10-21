@@ -8,7 +8,7 @@ And you shall remember all the way that Jehovah your God has led you these forty
 
 ## v3
 
-And He humbled you and let you go hungry and fed you the manna, which you had never known nor your fathers had ever known, so that He might make you know that man lives not by bread alone, but that man lives by everything that proceeds out from the mouth of Jehovah.
+And He humbled you and let you go hungry and fed you the manna, which you had never known nor your fathers had ever known, so that He might make you know that man lives not by bread alone, but that man lives by [[Deuteronomy-08.fn#Footnote 3.1 — everything|everything]] that proceeds out from the mouth of Jehovah.
 
 ## v4
 
@@ -24,7 +24,7 @@ Therefore keep the commandments of Jehovah your God, walking in His ways and fea
 
 ## v7
 
-For Jehovah your God is bringing you to a good land, a land of waterbrooks, of springs and of fountains, flowing forth in valleys and in mountains;
+For Jehovah your God is bringing you to a [[Deuteronomy-08.fn#Footnote 7.1 — good|good]] land, a land of waterbrooks, of springs and of [[Deuteronomy-08.fn#Footnote 7.2 — fountains|fountains]], flowing forth in valleys and in mountains;
 
 ## v8
 
@@ -40,7 +40,7 @@ And you shall eat and be satisfied, and you shall bless Jehovah your God for the
 
 ## v11
 
-Be careful lest you forget Jehovah your God by not keeping His commandments and His ordinances and His statutes, which I am commanding you today;
+Be [[Deuteronomy-08.fn#Footnote 11.1 — careful|careful]] lest you forget Jehovah your God by not keeping His commandments and His ordinances and His statutes, which I am commanding you today;
 
 ## v12
 

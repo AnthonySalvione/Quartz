@@ -60,7 +60,7 @@ Then Hushai said to Zadok and Abiathar the priests, Thus and thus did Ahithophel
 
 ## v16
 
-Now therefore send word quickly and tell David, saying, Do not lodge tonight at the fords of the wilderness, but pass over by all means; otherwise, the king will be swallowed up, as well as all the people who are with him.
+Now therefore send word quickly and tell David, saying, Do not lodge tonight at the [[2 Samuel-17.fn#Footnote 16.1 — fords|fords]] of the wilderness, but pass over by all means; otherwise, the king will be swallowed up, as well as all the people who are with him.
 
 ## v17
 

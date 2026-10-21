@@ -1,10 +1,10 @@
 ## v1
 
-These are the words which Moses spoke to all Israel across the Jordan in the wilderness, in the Arabah opposite Suph, between Paran and Tophel, Laban, Hazeroth, and Dizahab.
+[[Deuteronomy-01.fn#Footnote 1.1 — These|These]] are the words which [[Deuteronomy-01.fn#Footnote 1.2 — Moses|Moses]] spoke to all Israel across the Jordan in the wilderness, in the [[Deuteronomy-01.fn#Footnote 1.3 — Arabah|Arabah]] opposite Suph, between Paran and Tophel, Laban, Hazeroth, and Dizahab.
 
 ## v2
 
-It is eleven days’ journey from Horeb to Kadesh-barnea by the way that leads to Mount Seir.
+It is eleven days’ journey from [[Deuteronomy-01.fn#Footnote 2.1 — Horeb|Horeb]] to Kadesh-barnea by the way that leads to Mount Seir.
 
 ## v3
 
@@ -12,7 +12,7 @@ And in the fortieth year, in the eleventh month, on the first day of the month, 
 
 ## v4
 
-After he had slain Sihon the king of the Amorites, who dwelt in Heshbon, and Og the king of Bashan, who dwelt in Ashtaroth and in Edrei.
+After he had slain [[Deuteronomy-01.fn#Footnote 4.1 — Sihon|Sihon]] the king of the Amorites, who dwelt in Heshbon, and [[Deuteronomy-01.fn#Footnote 4.1 — Sihon|Og]] the king of Bashan, who dwelt in Ashtaroth and in Edrei.
 
 ## v5
 
@@ -20,11 +20,11 @@ Across the Jordan, in the land of Moab, Moses set himself to expound this law, s
 
 ## v6
 
-Jehovah our God spoke to us at Horeb, saying, You have dwelt long enough at this mountain.
+[[Deuteronomy-01.fn#Footnote 6.1 — Jehovah|Jehovah]] our God spoke to us at Horeb, saying, You have dwelt long enough at this mountain.
 
 ## v7
 
-Turn and set out, and go to the hill country of the Amorites and to all their neighboring peoples in the Arabah, in the hill country and in the lowland, and in the Negev and by the seacoast, the land of the Canaanites and Lebanon, as far as the great river, the river Euphrates.
+Turn and set out, and go to the hill country of the Amorites and to all their neighboring peoples in the Arabah, in the hill country and in the lowland, and in the [[Deuteronomy-01.fn#Footnote 7.1 — Negev|Negev]] and by the seacoast, the land of the Canaanites and Lebanon, as far as the great river, the river Euphrates.
 
 ## v8
 
@@ -60,7 +60,7 @@ So I took the leaders of your tribes, men who were wise and well attested, and I
 
 ## v16
 
-And I charged your judges at that time, saying, Hear the cases between your brothers, and judge righteously between a man and his brother or the sojourner with him.
+And I charged your judges at that time, saying, Hear the cases between your brothers, and [[Deuteronomy-01.fn#Footnote 16.1 — judge|judge]] righteously between a man and his brother or the sojourner with him.
 
 ## v17
 
@@ -72,7 +72,7 @@ And I commanded you at that time all the things that you should do.
 
 ## v19
 
-And we set out from Horeb, and we went through all that great and awesome wilderness, which you saw, on the way to the hill country of the Amorites, as Jehovah our God commanded us; and we came to Kadesh-barnea.
+And we set out from Horeb, and we went through all that great and awesome wilderness, which you saw, on the way to the hill country of the Amorites, as Jehovah our God commanded us; and we came to [[Deuteronomy-01.fn#Footnote 19.1 — Kadesh-barnea|Kadesh-barnea]].
 
 ## v20
 
@@ -92,7 +92,7 @@ And the thing pleased me, so I took twelve men from among you, one for each trib
 
 ## v24
 
-And they turned and went up into the hill country, and they came to the Valley of Eshcol; and they spied out the land.
+And they turned and went up into the hill country, and they came to the Valley of Eshcol; and they spied out [[Deuteronomy-01.fn#Footnote 24.1 — the|the]] land.
 
 ## v25
 

@@ -1,0 +1,46 @@
+---
+Category:
+  - Fullness of the Spirit
+Subcategory:
+  - As the Living Water
+Lyricist:
+  - Anonymous
+Melody:
+  - Felix Mendelssohn
+---
+# Flow through me, Lord, a weak and earthly vessel
+## Stanza 1
+Flow through me, Lord, a weak and earthly vessel,
+Cleansed by Thy blood, and quickened at Thy call.
+Flow through me, Lord, all utterly abandoned,
+To Thy dear service, great, or high, or small.
+
+## Stanza 2
+Flow through me, Lord, with overflowing fulness,
+Make me to know Thine own deep love for souls.
+Work in me, Lord, the faith that moveth mountains,
+As power, Almighty power, my being holds.
+
+## Stanza 3
+Flow through me, Lord, till sin in all its blackness
+To captives bound by Satan is revealed.
+Flow through me, Lord, till hearts are stricken, broken,
+And in Thy cleansing fountain saved and healed.
+
+## Stanza 4
+Flow through me, Lord, till lagging souls are quickened,
+Till lives of failure sing the victory song,
+Till praise from lips long dumb and silent, open,
+And join with rapture earth's glad, cleansed throng.
+
+## Stanza 5
+Flow through me, Lord, till waters from Thy fountain
+Shall slake the thirst of souls in deserts drear.
+Flow through me, Lord, till arid places blossom
+With roses fresh and sweet, and wondrous fair.
+
+## Stanza 6
+Flow through me, Lord, set all my heart-strings thrilling,
+With Thine own love, so matchless, perfect, free.
+Flow through me, Lord, till naught in earth or heaven,
+Can satisfy my being, Lord, but Thee.

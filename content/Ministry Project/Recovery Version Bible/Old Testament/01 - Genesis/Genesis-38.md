@@ -16,11 +16,11 @@ And she conceived again and bore a son, and she called his name Onan.
 
 ## v5
 
-And yet again she bore a son and called his name Shelah, and she was in Chezib when she bore him.
+And yet again she bore a son and called his name Shelah, and [[Genesis-38.fn#Footnote 5.1 — she|she]] was in Chezib when she bore him.
 
 ## v6
 
-And Judah took a wife for Er his firstborn, and her name was Tamar.
+And Judah took a wife for Er his firstborn, and her name was [[Genesis-38.fn#Footnote 6.1 — Tamar|Tamar]].
 
 ## v7
 
@@ -40,7 +40,7 @@ But what he did was evil in the sight of Jehovah, so He put him to death also.
 
 ## v11
 
-Then Judah said to Tamar his daughter-in-law, Remain a widow in your father’s house until Shelah my son grows up. For he thought, He also may die, like his brothers. So Tamar went and dwelt in her father’s house.
+Then Judah said to Tamar his daughter-in-law, Remain a widow in your father’s house until Shelah my son grows up. For he [[Genesis-38.fn#Footnote 11.1 — thought|thought]], He also may die, like his brothers. So Tamar went and dwelt in her father’s house.
 
 ## v12
 
@@ -56,7 +56,7 @@ And she removed from herself her widow’s garments and covered herself with a v
 
 ## v15
 
-And when Judah saw her, he thought she was a harlot, for she had covered her face.
+And when [[Genesis-38.fn#Footnote 15.1 — Judah|Judah]] saw her, he thought she was a harlot, for she had covered her face.
 
 ## v16
 
@@ -112,8 +112,8 @@ And while she was giving birth, one put out a hand; and the midwife took and tie
 
 ## v29
 
-But when he drew back his hand, his brother suddenly came out; and she said, What a breach you have made for yourself! Therefore his name was called Perez.
+But when he drew back his hand, his brother suddenly came out; and she said, What a breach you have made for yourself! Therefore his name was called [[Genesis-38.fn#Footnote 29.1 — Perez|Perez]].
 
 ## v30
 
-And afterward his brother came out, who had the scarlet thread on his hand; and his name was called Zerah.
+And afterward his brother came out, who had the scarlet thread on his hand; and his name was called [[Genesis-38.fn#Footnote 30.1 — Zerah|Zerah]].

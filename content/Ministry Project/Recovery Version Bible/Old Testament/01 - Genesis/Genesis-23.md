@@ -4,11 +4,11 @@ And the life of Sarah was one hundred twenty-seven years. These were the years o
 
 ## v2
 
-And Sarah died in Kiriath-arba (that is, Hebron) in the land of Canaan. And Abraham proceeded to mourn for Sarah and to weep for her.
+And Sarah died in Kiriath-arba (that is, [[Genesis-23.fn#Footnote 2.1 — Hebron|Hebron]]) in the land of Canaan. And Abraham proceeded to mourn for Sarah and to weep for her.
 
 ## v3
 
-Then Abraham rose up from before his dead wife and spoke to the children of Heth, saying,
+Then Abraham rose up from before his dead wife and spoke to the [[Genesis-23.fn#Footnote 3.1 — children|children]] of Heth, saying,
 
 ## v4
 
@@ -20,7 +20,7 @@ And the children of Heth answered Abraham, saying to him,
 
 ## v6
 
-Hear us, my lord. You are a prince of God in our midst. In the choicest of our burial places bury your dead wife. None of us will withhold from you his burial place for burying your dead wife.
+Hear us, my lord. You are a prince of God in our midst. In the [[Genesis-23.fn#Footnote 6.1 — choicest|choicest]] of our burial places bury your dead wife. None of us will withhold from you his burial place for burying your dead wife.
 
 ## v7
 
@@ -32,7 +32,7 @@ And he spoke with them, saying, If it is your desire that I should bury my dead 
 
 ## v9
 
-That he would give me the cave of Machpelah, which is his and which is at the end of his field. For the full price let him give it to me in your midst for the possession of a burial place.
+That he would give me the cave of [[Genesis-23.fn#Footnote 9.1 — Machpelah|Machpelah]], which is his and which is at the end of his [[Genesis-23.fn#Footnote 9.2 — field|field]]. For the full price let him give it to me in your midst for the possession of a burial place.
 
 ## v10
 

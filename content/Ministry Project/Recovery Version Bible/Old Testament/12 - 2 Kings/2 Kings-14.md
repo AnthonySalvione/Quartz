@@ -1,6 +1,6 @@
 ## v1
 
-In the second year of Joash the son of Joahaz, the king of Israel, Amaziah the son of Joash, the king of Judah, began to reign.
+In the second year of Joash the son of [[2 Kings-14.fn#Footnote 1.1 — Joahaz|Joahaz]], the king of Israel, Amaziah the son of Joash, the king of Judah, began to reign.
 
 ## v2
 
@@ -80,7 +80,7 @@ And they brought him on horses, and he was buried in Jerusalem with his fathers 
 
 ## v21
 
-And all the people of Judah took Azariah, who was sixteen years old, and made him king in place of his father Amaziah.
+And all the people of Judah took [[2 Kings-14.fn#Footnote 21.1 — Azariah|Azariah]], who was sixteen years old, and made him king in place of his father Amaziah.
 
 ## v22
 
@@ -92,11 +92,11 @@ In the fifteenth year of Amaziah the son of Joash, the king of Judah, Jeroboam t
 
 ## v24
 
-And he did what was evil in the sight of Jehovah; he did not turn away from all the sins of Jeroboam the son of Nebat, by which he caused Israel to sin.
+And he did what was evil in the sight of Jehovah; he did not turn away from all the sins of Jeroboam the son of Nebat, [[2 Kings-14.fn#Footnote 24.1 — by|by]] which he caused Israel to sin.
 
 ## v25
 
-He restored the border of Israel from the entrance of Hamath to the sea of the Arabah, according to the word of Jehovah the God of Israel, which He spoke through His servant Jonah the son of Amittai, the prophet who was of Gath-hepher.
+He restored the border of Israel from the entrance of Hamath to the [[2 Kings-14.fn#Footnote 25.1 — sea|sea]] of the Arabah, according to the word of Jehovah the God of Israel, which He spoke through His servant Jonah the son of Amittai, the prophet who was of Gath-hepher.
 
 ## v26
 

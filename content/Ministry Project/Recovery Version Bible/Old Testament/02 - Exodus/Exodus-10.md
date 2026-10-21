@@ -28,7 +28,7 @@ And Pharaoh’s servants said to him, How long shall this man be a snare to us? 
 
 ## v8
 
-So Moses and Aaron were brought back to Pharaoh, and he said to them, Go, serve Jehovah your God. But who exactly are going?
+So Moses and Aaron were brought back to Pharaoh, and he said to them, [[Exodus-10.fn#Footnote 8.1 — Go|Go]], serve Jehovah your God. But who exactly are going?
 
 ## v9
 
@@ -36,7 +36,7 @@ And Moses said, We will go with our young and with our old; we will go with our 
 
 ## v10
 
-And he said to them, Let Jehovah indeed be with you if I ever let you go with your little ones as well. See here, you are up to some evil.
+And he said to them, Let Jehovah indeed be with you if I ever let you go with your little ones as well. See here, [[Exodus-10.fn#Footnote 10.1 — you|you]] are up to some evil.
 
 ## v11
 
@@ -48,7 +48,7 @@ Then Jehovah said to Moses, Stretch out your hand over the land of Egypt for the
 
 ## v13
 
-So Moses stretched forth his staff over the land of Egypt, and Jehovah drove an east wind upon the land all that day and all night; when it was morning, the east wind had brought the swarming locusts.
+So Moses stretched forth his staff over the land of Egypt, and Jehovah drove an east [[Exodus-10.fn#Footnote 13.1 — wind|wind]] upon the land all that day and all night; when it was morning, the east wind had brought the swarming locusts.
 
 ## v14
 
@@ -80,7 +80,7 @@ But Jehovah hardened Pharaoh’s heart, and he did not let the children of Israe
 
 ## v21
 
-Then Jehovah said to Moses, Stretch out your hand toward heaven that there may be darkness over the land of Egypt, even a darkness that can be felt.
+Then Jehovah said to Moses, Stretch out your hand toward heaven that there may be [[Exodus-10.fn#Footnote 21.1 — darkness|darkness]] over the land of Egypt, even a darkness that can be felt.
 
 ## v22
 
@@ -92,7 +92,7 @@ They could not see one another, nor did anyone rise up from his place for three 
 
 ## v24
 
-And Pharaoh called Moses and said, Go, serve Jehovah; only let your flocks and your herds be detained. Your little ones may also go with you.
+And Pharaoh called Moses and said, [[Exodus-10.fn#Footnote 24.1 — Go|Go]], serve Jehovah; only let your flocks and your herds be detained. Your little ones may also go with you.
 
 ## v25
 

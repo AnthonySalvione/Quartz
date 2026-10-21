@@ -4,11 +4,11 @@ Now when David was old and full of days, he made Solomon his son king over Israe
 
 ## v2
 
-And he gathered all the leaders of Israel and the priests and the Levites.
+And he gathered all the leaders of Israel and the [[1 Chronicles-23.fn#Footnote 2.1 — priests|priests]] and the [[1 Chronicles-23.fn#Footnote 2.1 — priests|Levites]].
 
 ## v3
 
-And the Levites were numbered from thirty years old and upward; and their number, head by head and man by man, was thirty-eight thousand.
+And the Levites were numbered from [[1 Chronicles-23.fn#Footnote 3.1 — thirty|thirty]] years old and upward; and their number, head by head and man by man, was thirty-eight thousand.
 
 ## v4
 
@@ -120,7 +120,7 @@ And to stand morning by morning to thank and praise Jehovah, and likewise in the
 
 ## v31
 
-And to offer all the burnt offerings to Jehovah, according to the number ordained for them, on the Sabbaths, at the new moons, and on the appointed feasts, continually before Jehovah;
+And to offer all the burnt offerings to Jehovah, according to the number ordained for them, on the Sabbaths, at the [[1 Chronicles-23.fn#Footnote 31.1 — new|new]] moons, and on the appointed feasts, continually before Jehovah;
 
 ## v32
 

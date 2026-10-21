@@ -28,7 +28,7 @@ And David said to Abiathar the priest, the son of Ahimelech, Bring the ephod to 
 
 ## v8
 
-And David inquired of Jehovah, saying, Shall I pursue after this band? Will I overtake them? And He said to him, Pursue, for you will certainly overtake them, and you will certainly deliver them.
+And David [[1 Samuel-30.fn#Footnote 8.1 — inquired|inquired]] of Jehovah, saying, Shall I pursue after this band? Will I overtake them? And He said to him, Pursue, for you will certainly overtake them, and you will certainly deliver them.
 
 ## v9
 
@@ -76,7 +76,7 @@ And nothing was missed by them, neither small nor great, neither sons nor daught
 
 ## v20
 
-And David took all the flocks and the herds, which they drove before the other cattle and of which they said, This is David’s spoil.
+And David took all the flocks and the herds, which they drove before the other cattle and of which they said, This is David’s [[1 Samuel-30.fn#Footnote 20.1 — spoil|spoil]].
 
 ## v21
 

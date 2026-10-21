@@ -8,7 +8,7 @@ And the king said to Ziba, Why do you have these? And Ziba said, The asses are f
 
 ## v3
 
-And the king said, And where is your master’s son? And Ziba said to the king, He is now dwelling in Jerusalem, for he said, Today the house of Israel will restore to me the kingdom of my father.
+And the king said, And where is your master’s son? And Ziba said to the king, He is now dwelling in Jerusalem, for he said, [[2 Samuel-16.fn#Footnote 3.1 — Today|Today]] the house of Israel will restore to me the kingdom of my father.
 
 ## v4
 

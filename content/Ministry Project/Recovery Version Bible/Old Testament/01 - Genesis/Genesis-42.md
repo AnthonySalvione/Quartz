@@ -4,11 +4,11 @@ Now when Jacob saw that there was grain in Egypt, Jacob said to his sons, Why do
 
 ## v2
 
-And he said, I have now heard that there is grain in Egypt; go down there, and buy grain for us from there, that we may live and not die.
+And he said, I have now heard that there is grain in Egypt; [[Genesis-42.fn#Footnote 2.1 — go|go]] down there, and buy grain for us from there, that we may live and not die.
 
 ## v3
 
-So Joseph’s ten brothers went down to buy grain from Egypt.
+So Joseph’s ten [[Genesis-42.fn#Footnote 3.1 — brothers|brothers]] went down to buy grain from Egypt.
 
 ## v4
 
@@ -32,7 +32,7 @@ And Joseph recognized his brothers, but they did not recognize him.
 
 ## v9
 
-And Joseph remembered the dreams that he had dreamed about them, and he said to them, You are spies; you have come to see the nakedness of the land.
+And Joseph remembered the dreams that he had dreamed about them, and he [[Genesis-42.fn#Footnote 9.1 — said|said]] to them, You are spies; you have come to see the nakedness of the land.
 
 ## v10
 
@@ -64,7 +64,7 @@ Send one of you to get your brother while you remain bound, that your words may 
 
 ## v17
 
-And he put them all together in custody three days.
+And he put them all together in [[Genesis-42.fn#Footnote 17.1 — custody|custody]] three days.
 
 ## v18
 
@@ -92,7 +92,7 @@ And they did not know that Joseph understood, for there was an interpreter betwe
 
 ## v24
 
-And he turned away from them and wept. Then he returned to them and spoke to them. And he took Simeon from among them and bound him before their eyes.
+And he turned away from them and wept. Then he returned to them and spoke to them. And he took [[Genesis-42.fn#Footnote 24.1 — Simeon|Simeon]] from among them and bound him before their eyes.
 
 ## v25
 

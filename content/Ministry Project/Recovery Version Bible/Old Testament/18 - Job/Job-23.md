@@ -4,7 +4,7 @@ Then Job answered and said,
 
 ## v2
 
-Today also my complaint is bitter;  
+Today also my complaint is [[Job-23.fn#Footnote 2.1 — bitter|bitter]];  
 My stroke is heavy because of my groaning.
 
 ## v3
@@ -34,13 +34,13 @@ So I would be delivered forever from my Judge.
 
 ## v8
 
-Behold, I go forward, but He is not there;  
-And backward, but I do not perceive Him;
+Behold, I go [[Job-23.fn#Footnote 8.1 — forward|forward]], but He is not there;  
+And [[Job-23.fn#Footnote 8.1 — forward|backward]], but I do not perceive Him;
 
 ## v9
 
-To the left, where He acts, but I cannot look on Him;  
-He hides Himself on the right, so I cannot see Him.
+To the [[Job-23.fn#Footnote 9.1 — left|left]], where He acts, but I cannot look on Him;  
+He hides Himself on the [[Job-23.fn#Footnote 9.1 — left|right]], so I cannot see Him.
 
 ## v10
 
@@ -55,7 +55,7 @@ I have kept His way and have not turned aside.
 ## v12
 
 As for the commandment of His lips, I have not turned back from it;  
-I have treasured the words of His mouth more than my apportioned food.
+I have treasured the words of His mouth [[Job-23.fn#Footnote 12.1 — more|more]] than my apportioned food.
 
 ## v13
 

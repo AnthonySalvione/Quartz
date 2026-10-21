@@ -4,11 +4,11 @@ And Miriam and Aaron spoke against Moses because of the Cushite woman whom he ha
 
 ## v2
 
-And they said, Has Jehovah indeed spoken only through Moses? Has He not also spoken through us? And Jehovah heard it.
+And they said, [[Numbers-12.fn#Footnote 2.1 — Has|Has]] Jehovah indeed spoken only through Moses? Has He not also spoken through us? And Jehovah heard it.
 
 ## v3
 
-Now the man Moses was very meek, more than anyone else who was on the face of the earth.
+Now the man Moses was very [[Numbers-12.fn#Footnote 3.1 — meek|meek]], more than anyone else who was on the face of the earth.
 
 ## v4
 
@@ -16,16 +16,16 @@ And suddenly Jehovah spoke to Moses and to Aaron and to Miriam, You three come o
 
 ## v5
 
-Then Jehovah came down in a pillar of cloud and stood at the entrance of the tent, and called Aaron and Miriam. And when they had both come forward,
+Then Jehovah [[Numbers-12.fn#Footnote 5.1 — came|came]] down in a pillar of cloud and stood at the entrance of the tent, and called Aaron and Miriam. And when they had both come forward,
 
 ## v6
 
 He said, Hear now My words:  
-If there is a prophet among you, / I, Jehovah, will make Myself known to him in a vision; / I will speak with him in a dream.
+If there is a [[Numbers-12.fn#Footnote 6.1 — prophet|prophet]] among you, / I, Jehovah, will make Myself known to him in a vision; / I will speak with him in a dream.
 
 ## v7
 
-My servant Moses is not so; / He is faithful in all My house.
+My servant Moses is not so; / [[Numbers-12.fn#Footnote 7.1 — He|He]] is faithful in all My house.
 
 ## v8
 
@@ -38,7 +38,7 @@ And the anger of Jehovah was kindled against them, and He departed.
 
 ## v10
 
-And when the cloud had departed from over the tent; there Miriam was, leprous, as white as snow. And Aaron turned toward Miriam, and there she was, leprous.
+And when the cloud had departed from over the tent; there Miriam was, [[Numbers-12.fn#Footnote 10.1 — leprous|leprous]], as white as snow. And Aaron turned toward Miriam, and there she was, leprous.
 
 ## v11
 
@@ -50,7 +50,7 @@ Please do not let her be like one dead, whose flesh is half consumed when he com
 
 ## v13
 
-And Moses cried to Jehovah, saying, Please heal her, O God, please.
+And Moses cried to Jehovah, saying, [[Numbers-12.fn#Footnote 13.1 — Please|Please]] heal her, O God, please.
 
 ## v14
 

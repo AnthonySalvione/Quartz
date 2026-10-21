@@ -20,7 +20,7 @@ But as one was felling a beam, the axe head fell into the water; and he cried ou
 
 ## v6
 
-And the man of God said, Where did it fall? And he showed him the place. And he cut down a stick and threw it there and made the iron float.
+And the man of God said, Where did it fall? And he showed him the place. And he cut down a stick and threw it there and made the iron [[2 Kings-06.fn#Footnote 6.1 — float|float]].
 
 ## v7
 
@@ -36,7 +36,7 @@ And the man of God sent word to the king of Israel, saying, Beware that you do n
 
 ## v10
 
-And the king of Israel sent word to the place that the man of God told him about. So the king alerted the place and put it on guard not merely once or twice.
+And the king of Israel sent word to the place that the man of God told him about. [[2 Kings-06.fn#Footnote 10.1 — So|So]] the king alerted [[2 Kings-06.fn#Footnote 10.2 — the|the]] place and put it on guard not merely once or twice.
 
 ## v11
 
@@ -68,7 +68,7 @@ And Elisha prayed and said, O Jehovah, open his eyes that he may see. And Jehova
 
 ## v18
 
-And when the Syrians came down to him, Elisha prayed to Jehovah and said, Strike this nation with blindness. And He struck them with blindness according to Elisha’s word.
+And when the [[2 Kings-06.fn#Footnote 18.1 — Syrians|Syrians]] came down to him, Elisha prayed to Jehovah and said, Strike this nation with blindness. And He struck them with blindness according to Elisha’s word.
 
 ## v19
 
@@ -88,7 +88,7 @@ And he said, You shall not strike them. Would you strike those whom you have tak
 
 ## v23
 
-Then he prepared a great feast for them; and when they had eaten and drunk, he sent them away, and they went to their master. And the bands of Syria no longer came into the land of Israel.
+Then he prepared a great [[2 Kings-06.fn#Footnote 23.1 — feast|feast]] for them; and when they had eaten and drunk, he sent them away, and they went to their master. And the bands of Syria no longer came into the land of Israel.
 
 ## v24
 
@@ -96,7 +96,7 @@ And after this Ben-hadad the king of Syria gathered all his army and went up and
 
 ## v25
 
-And there was a great famine in Samaria; and they besieged it until the head of a donkey was sold for eighty pieces of silver and a fourth part of a kab of doves’ dung was sold for five pieces of silver.
+And there was a great famine in Samaria; and they besieged it until the head of a donkey was sold for eighty pieces of silver and a fourth part of a [[2 Kings-06.fn#Footnote 25.1 — kab|kab]] of doves’ dung was sold for five pieces of silver.
 
 ## v26
 
@@ -128,4 +128,4 @@ Now Elisha was sitting in his house, and the elders were sitting with him. And t
 
 ## v33
 
-While he was still talking with them, the king came down to him and said, This evil is from Jehovah; why should I wait for Jehovah any longer?
+While he was still talking with them, the [[2 Kings-06.fn#Footnote 33.1 — king|king]] came down to him and said, This evil is from Jehovah; why should I wait for Jehovah any longer?

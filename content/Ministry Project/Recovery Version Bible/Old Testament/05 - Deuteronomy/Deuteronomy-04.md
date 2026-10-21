@@ -1,6 +1,6 @@
 ## v1
 
-And now, O Israel, listen to the statutes and the ordinances which I am teaching you to do, in order that you may live and go in and possess the land which Jehovah, the God of your fathers, is giving you.
+And now, O Israel, listen to the [[Deuteronomy-04.fn#Footnote 1.1 — statutes|statutes]] and the [[Deuteronomy-04.fn#Footnote 1.1 — statutes|ordinances]] which I am teaching you to do, in order that you may live and go in and possess the land which Jehovah, the God of your fathers, is giving you.
 
 ## v2
 
@@ -24,7 +24,7 @@ Keep and do them therefore; for this will be your wisdom and prudence in the sig
 
 ## v7
 
-For what great nation is there that has a god so near to it as Jehovah our God is whenever we call upon Him?
+For what great nation is there that has a god so near to it as Jehovah our God is whenever we [[Deuteronomy-04.fn#Footnote 7.1 — call|call]] upon Him?
 
 ## v8
 
@@ -48,7 +48,7 @@ And Jehovah spoke to you from the midst of the fire. The sound of words could yo
 
 ## v13
 
-And He declared to you His covenant, which He commanded you to do, the Ten Commandments; and He wrote them upon two tablets of stone.
+And He declared to you His covenant, which He commanded you to do, the Ten [[Deuteronomy-04.fn#Footnote 13.1 — Commandments|Commandments]]; and He wrote them upon two tablets of stone.
 
 ## v14
 
@@ -96,7 +96,7 @@ For Jehovah your God is a consuming fire, a jealous God.
 
 ## v25
 
-When you have brought forth children and grandchildren and have languished in the land, and you have spoiled yourselves by making an idol, the form of anything, and have done that which is evil in the sight of Jehovah your God so as to anger Him;
+When you have brought forth children and grandchildren and have [[Deuteronomy-04.fn#Footnote 25.1 — languished|languished]] in the land, and you have spoiled yourselves by making an idol, the form of anything, and have done that which is evil in the sight of Jehovah your God so as to anger Him;
 
 ## v26
 
@@ -156,11 +156,11 @@ Know therefore today and bring it to heart that Jehovah is God in heaven above a
 
 ## v40
 
-Therefore keep His statutes and His commandments, which I am commanding you today, that it may go well with you and with your children after you, so that you may extend your days upon the land which Jehovah your God is giving you forever.
+Therefore keep His statutes and His commandments, which I am commanding you today, that it may go well with you and with your children after you, so that you may extend your days upon the land which Jehovah your God is giving you [[Deuteronomy-04.fn#Footnote 40.1 — forever|forever]].
 
 ## v41
 
-Then Moses set apart three cities across the Jordan toward the rising of the sun,
+Then Moses set apart three [[Deuteronomy-04.fn#Footnote 41.1 — cities|cities]] across the Jordan toward the rising of the sun,
 
 ## v42
 
@@ -188,8 +188,8 @@ And they possessed his land and the land of Og the king of Bashan, the two kings
 
 ## v48
 
-From Aroer, which is on the edge of the valley of the Arnon, even unto Mount Sirion, that is, Hermon,
+From Aroer, which is on the edge of the valley of the Arnon, even unto Mount [[Deuteronomy-04.fn#Footnote 48.1 — Sirion|Sirion]], that is, Hermon,
 
 ## v49
 
-And all the Arabah across the Jordan on the east even to the sea of the Arabah at the foot of the slopes of Pisgah.
+And all the Arabah across the Jordan on the east even to the [[Deuteronomy-04.fn#Footnote 49.1 — sea|sea]] of the Arabah at the foot of the slopes of Pisgah.

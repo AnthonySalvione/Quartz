@@ -1,0 +1,46 @@
+---
+Category:
+  - Praise of the Lord
+Subcategory:
+  - His Kingdom
+Lyricist:
+  - Charles Silvester Horne
+Melody:
+  - Charles Hutchinson Gabriel
+---
+# Sing we the King who is coming to reign
+## Stanza 1
+Sing we the King who is coming to reign,
+Glory to Jesus, the Lamb that was slain;
+Righteousness, peace then His empire shall bring,
+Joy to the nations when Jesus is King.
+
+## Chorus
+	Come let us sing: Praise to our King,
+	Jesus our King, Jesus our King:
+	This is our song, who to Jesus belong:
+	Glory to Jesus, to Jesus our King.
+
+## Stanza 2
+All men shall dwell in His marvelous light,
+Races long severed His love shall unite,
+Justice and truth from His scepter shall spring,
+Wrong shall be ended when Jesus is King.
+
+## Stanza 3
+All shall be well in His kingdom of peace,
+Freedom shall flourish and wisdom increase,
+Foe shall be friend when His triumph we sing,
+Sword shall be sickle when Jesus is King.
+
+## Stanza 4
+Knowledge and fear of the Lord then shall be
+As the deep waters that cover the sea;
+All things shall be in the splendor of spring
+And all harmonious when Jesus is King.
+
+## Stanza 5
+Kingdom of Christ, for thy coming we pray,
+Hasten, O Father, the dawn of the day
+When this new song Thy creation shall sing,
+Satan is vanquished and Jesus is King.

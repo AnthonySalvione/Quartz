@@ -3,7 +3,7 @@ Author: Luke
 ---
 ## v1
 
-Now there were some present at the same time who reported to Him concerning the Galileans whose blood Pilate had mixed with their sacrifices.
+[[Luke-13.fn#Footnote 1.1 — Now|Now]] there were some present at the same time who reported to Him concerning the Galileans whose blood Pilate had mixed with their sacrifices.
 
 ## v2
 
@@ -23,11 +23,11 @@ No, I tell you; but unless you repent, you shall all similarly perish.
 
 ## v6
 
-And He told this parable: A certain man had a fig tree planted in his vineyard. And he came seeking fruit on it and did not find any.
+[[Luke-13.fn#Footnote 6.1 — And|And]] He told [[Luke-13.fn#Footnote 6.2 — this|this]] parable: A certain man had a fig tree planted in his vineyard. And he came seeking fruit on it and did not find any.
 
 ## v7
 
-And he said to the vinedresser, Behold, for three years I have come seeking fruit on this fig tree, and I have not found any. Cut it down therefore. Why does it also make the ground useless?
+And he said to the vinedresser, Behold, for three years I have come seeking fruit on this fig tree, and I have not found any. Cut it down therefore. Why does it also [[Luke-13.fn#Footnote 7.1 — make|make]] the ground useless?
 
 ## v8
 
@@ -43,7 +43,7 @@ And He was teaching in one of the synagogues on the Sabbath.
 
 ## v11
 
-And behold, there was a woman who had a spirit of infirmity eighteen years, and she was bent double and could not stand erect at all.
+And behold, there was a woman who had a [[Luke-13.fn#Footnote 11.1 — spirit|spirit]] of infirmity eighteen years, and she was [[Luke-13.fn#Footnote 11.2 — bent|bent]] double and could not stand erect at all.
 
 ## v12
 
@@ -55,15 +55,15 @@ And He laid His hands on her, and instantly she was made erect and began to glor
 
 ## v14
 
-But the ruler of the synagogue, being indignant because Jesus had healed on the Sabbath, answered and said to the crowd, There are six days in which man should work; therefore, come on them and be healed, and not on the Sabbath day.
+But the ruler of the synagogue, being [[Luke-13.fn#Footnote 14.1 — indignant|indignant]] because Jesus had healed on the Sabbath, answered and said to the crowd, There are six days in which man should work; therefore, come on them and be healed, and not on the Sabbath day.
 
 ## v15
 
-But the Lord answered him and said, Hypocrites! Does not each of you on the Sabbath untie his ox or his donkey from the manger and lead it away and water it?
+But the Lord answered him and said, [[Luke-13.fn#Footnote 15.1 — Hypocrites|Hypocrites]]! Does not each of you on the Sabbath untie his ox or his donkey from the manger and lead it away and water it?
 
 ## v16
 
-And this woman, being a daughter of Abraham whom Satan has bound, behold, for eighteen years, should she not have been released from this bond on the Sabbath day?
+And this woman, being a [[Luke-13.fn#Footnote 16.1 — daughter|daughter]] of Abraham whom [[Luke-13.fn#Footnote 16.2 — Satan|Satan]] has bound, behold, for eighteen years, should she not have been released from this bond on the [[Luke-13.fn#Footnote 16.3 — Sabbath|Sabbath]] day?
 
 ## v17
 
@@ -71,7 +71,7 @@ And when He said these things, all those opposing Him were put to shame, and all
 
 ## v18
 
-He said therefore, What is the kingdom of God like, and to what shall I liken it?
+[[Luke-13.fn#Footnote 18.1 — He|He]] said therefore, What is the kingdom of God like, and to what shall I liken it?
 
 ## v19
 
@@ -95,7 +95,7 @@ And someone said to Him, Lord, are there only a few who are being saved?
 
 ## v24
 
-And He said to them, Struggle to enter through the narrow door, because many, I tell you, will seek to enter, yet will not be able.
+And He said to them, Struggle to enter through the [[Luke-13.fn#Footnote 24.1 — narrow|narrow]] door, because many, I tell you, will seek to enter, yet will not be [[Luke-13.fn#Footnote 24.2 — able|able]].
 
 ## v25
 
@@ -111,7 +111,7 @@ And He will say, I tell you, I do not know where you are from. Go away from Me, 
 
 ## v28
 
-There will be weeping and gnashing of teeth there when you see Abraham and Isaac and Jacob and all the prophets in the kingdom of God, but you being cast outside.
+There will be [[Luke-13.fn#Footnote 28.1 — weeping|weeping]] and gnashing of teeth there when you see Abraham and Isaac and Jacob and all the prophets in the [[Luke-13.fn#Footnote 28.2 — kingdom|kingdom]] of God, but you being cast outside.
 
 ## v29
 
@@ -119,24 +119,24 @@ And they will come from the east and the west, and from the north and the south,
 
 ## v30
 
-And behold, there are some last who will be first, and there are some first who will be last.
+And behold, there are some [[Luke-13.fn#Footnote 30.1 — last|last]] who will be first, and there are some [[Luke-13.fn#Footnote 30.2 — first|first]] who will be last.
 
 ## v31
 
-In the same hour some Pharisees came up, saying to Him, Get out and go from here, for Herod wants to kill You.
+In the same hour some Pharisees came up, saying to Him, Get out and go from here, for Herod wants to [[Luke-13.fn#Footnote 31.1 — kill|kill]] You.
 
 ## v32
 
-And He said to them, Go and tell that fox, Behold, I cast out demons and accomplish healings today and tomorrow, and on the third day I am perfected.
+And He said to them, Go and tell that fox, Behold, I cast out demons and accomplish healings [[Luke-13.fn#Footnote 32.1 — today|today]] and tomorrow, and on the third day I [[Luke-13.fn#Footnote 32.2 — am|am]] perfected.
 
 ## v33
 
-However, I must journey today and tomorrow and on the following day because it is not acceptable for a prophet to perish outside of Jerusalem.
+However, I [[Luke-13.fn#Footnote 33.1 — must|must]] journey today and tomorrow and on the following day because it is not acceptable for a prophet to perish outside of Jerusalem.
 
 ## v34
 
-Jerusalem, Jerusalem, who kills the prophets and stones those who are sent to her! How often I desired to gather your children together, the way a hen gathers her own brood under her wings, and you would not!
+Jerusalem, Jerusalem, who [[Luke-13.fn#Footnote 34.1 — kills|kills]] the prophets and stones those who are sent to her! How often I desired to gather your children together, the way a hen gathers her own brood under her wings, and you would not!
 
 ## v35
 
-Behold, your house is left to you. And I say to you, You shall by no means see Me until the time comes when you say, Blessed is He who comes in the name of the Lord!
+Behold, your [[Luke-13.fn#Footnote 35.1 — house|house]] is left to you. And I say to you, You shall by no means see Me until the time comes when you say, Blessed is He who comes in the name of the Lord!

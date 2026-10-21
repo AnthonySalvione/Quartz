@@ -4,7 +4,7 @@ Then the people of the land took Jehoahaz the son of Josiah and made him king in
 
 ## v2
 
-Joahaz was twenty-three years old when he began to reign, and he reigned three months in Jerusalem.
+[[2 Chronicles-36.fn#Footnote 2.1 — Joahaz|Joahaz]] was twenty-three years old when he began to reign, and he reigned three months in Jerusalem.
 
 ## v3
 
@@ -40,7 +40,7 @@ And at the turn of the year King Nebuchadnezzar sent men and brought him to Baby
 
 ## v11
 
-Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem.
+[[2 Chronicles-36.fn#Footnote 11.1 — Zedekiah|Zedekiah]] was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem.
 
 ## v12
 
@@ -56,7 +56,7 @@ Moreover all the leaders of the priests and the people acted exceedingly unfaith
 
 ## v15
 
-And Jehovah, the God of their fathers, sent word to them day after day through His messengers because He had compassion on His people and on His dwelling place.
+And Jehovah, the God of their fathers, sent word to them [[2 Chronicles-36.fn#Footnote 15.1 — day|day]] after day through His messengers because He had compassion on His people and on His dwelling place.
 
 ## v16
 

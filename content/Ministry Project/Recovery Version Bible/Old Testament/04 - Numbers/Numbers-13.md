@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Send men to spy out the land of Canaan, which I am giving to the children of Israel; one man from each of their fathers’ tribes you shall send, every one a leader among them.
+[[Numbers-13.fn#Footnote 2.1 — Send|Send]] men to spy out the [[Numbers-13.fn#Footnote 2.2 — land|land]] of Canaan, which I am giving to the children of Israel; one man from each of their fathers’ tribes you shall send, every one a leader among them.
 
 ## v3
 
@@ -60,7 +60,7 @@ From the tribe of Gad, Geuel the son of Machi.
 
 ## v16
 
-These are the names of the men whom Moses sent to spy out the land. And Moses called Hoshea the son of Nun Joshua.
+These are the names of the men whom Moses sent to spy out the land. And Moses called [[Numbers-13.fn#Footnote 16.1 — Hoshea|Hoshea]] the son of Nun [[Numbers-13.fn#Footnote 16.2 — Joshua|Joshua]].
 
 ## v17
 
@@ -80,11 +80,11 @@ And whether the land is fat or lean; whether there are trees in it or not. There
 
 ## v21
 
-So they went up and spied out the land from the wilderness of Zin to Rehob, near the entrance of Hamath.
+So they went up and spied out the land from the wilderness of Zin to Rehob, near the [[Numbers-13.fn#Footnote 21.1 — entrance|entrance]] of Hamath.
 
 ## v22
 
-And when they had gone up through the Negev, they came to Hebron; and Ahiman, Sheshai, and Talmai, the descendants of Anak, were there. (Now Hebron was built seven years before Zoan in Egypt.)
+And when they had gone up through the Negev, they came to Hebron; and Ahiman, Sheshai, and Talmai, the descendants of [[Numbers-13.fn#Footnote 22.1 — Anak|Anak]], were there. (Now Hebron was built seven years before Zoan in Egypt.)
 
 ## v23
 
@@ -92,7 +92,7 @@ Then they came to the Valley of Eshcol, and from there they cut down a branch wi
 
 ## v24
 
-That place was called the Valley of Eshcol, because of the cluster which the children of Israel cut down from there.
+That place was called the Valley of [[Numbers-13.fn#Footnote 24.1 — Eshcol|Eshcol]], because of the cluster which the children of Israel cut down from there.
 
 ## v25
 
@@ -128,4 +128,4 @@ And they brought to the children of Israel an evil report of the land which they
 
 ## v33
 
-And there we saw the Nephilim (the descendants of Anak are part of the Nephilim); and we were like grasshoppers in our own sight, and so we were in their sight.
+And there we saw the [[Numbers-13.fn#Footnote 33.1 — Nephilim|Nephilim]] (the descendants of Anak are part of the Nephilim); and we were like grasshoppers in our own sight, and so we were in their sight.

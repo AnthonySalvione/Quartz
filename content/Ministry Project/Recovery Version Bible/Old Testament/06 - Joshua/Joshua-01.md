@@ -1,18 +1,18 @@
 ## v1
 
-After the death of Moses the servant of Jehovah, Jehovah spoke to Joshua the son of Nun, Moses’ attendant, saying,
+[[Joshua-01.fn#Footnote 1.1 — After|After]] the death of Moses the servant of Jehovah, Jehovah spoke to [[Joshua-01.fn#Footnote 1.2 — Joshua|Joshua]] the son of Nun, Moses’ attendant, saying,
 
 ## v2
 
-Moses My servant is dead; now then arise, and cross over this Jordan, you and all this people, into the land which I am giving to them, to the children of Israel.
+Moses My servant is dead; now then arise, and cross over this Jordan, you and all this people, into the [[Joshua-01.fn#Footnote 2.1 — land|land]] which I am giving to them, to the children of Israel.
 
 ## v3
 
-Every place on which the sole of your foot treads I have given to you, as I promised Moses.
+Every place on which the sole of your foot [[Joshua-01.fn#Footnote 3.1 — treads|treads]] I have given to you, as I promised Moses.
 
 ## v4
 
-From the wilderness and this Lebanon even to the great river, the river Euphrates, all the land of the Hittites, and to the Great Sea toward the setting of the sun will be your territory.
+From the wilderness and this Lebanon even to the great river, the river Euphrates, all the land of the Hittites, and to the [[Joshua-01.fn#Footnote 4.1 — Great|Great]] Sea toward the setting of the sun will be your territory.
 
 ## v5
 
@@ -28,7 +28,7 @@ Only be strong and very courageous, being certain to do according to all the law
 
 ## v8
 
-This book of the law shall not depart from your mouth, but you shall muse upon it day and night so that you may be certain to do according to all that is written in it. For then you will make your way prosperous and then you will have success.
+This book of the law shall not depart from your mouth, but you shall [[Joshua-01.fn#Footnote 8.1 — muse|muse]] upon it day and night so that you may be certain to do according to all that is written in it. For then you will make your way prosperous and then you will have success.
 
 ## v9
 
@@ -44,7 +44,7 @@ Go through the midst of the camp, and command the people, saying, Prepare provis
 
 ## v12
 
-And to the Reubenites and the Gadites and the half-tribe of Manasseh Joshua spoke, saying,
+And to the [[Joshua-01.fn#Footnote 12.1 — Reubenites|Reubenites]] and the Gadites and the half-tribe of Manasseh Joshua spoke, saying,
 
 ## v13
 
@@ -64,7 +64,7 @@ And they answered Joshua, saying, All that you have commanded us we will do, and
 
 ## v17
 
-As in all things we listened to Moses, so we will listen to you. Only may Jehovah your God be with you, as He was with Moses.
+As in all things we listened to Moses, so we will listen to [[Joshua-01.fn#Footnote 17.1 — you|you]]. Only may Jehovah your God be with you, as He was with Moses.
 
 ## v18
 

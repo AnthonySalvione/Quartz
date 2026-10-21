@@ -8,7 +8,7 @@ Even previously, when Saul was king over us, it was you who led out and brought 
 
 ## v3
 
-And all the elders of Israel came to the king at Hebron. And King David made a covenant with them in Hebron before Jehovah, and they anointed David king over Israel.
+And all the elders of Israel came to the king at Hebron. And King David made a covenant with them in Hebron before Jehovah, and they anointed David [[2 Samuel-05.fn#Footnote 3.1 — king|king]] over Israel.
 
 ## v4
 
@@ -32,11 +32,11 @@ And David said on that day, Whoever would strike the Jebusites, let him go up to
 
 ## v9
 
-So David dwelt in the stronghold and called it the city of David. And David built all around from the Millo and inward.
+So David dwelt in the stronghold and called it the city of David. And David built all around from the [[2 Samuel-05.fn#Footnote 9.1 — Millo|Millo]] and inward.
 
 ## v10
 
-And David became greater and greater; and Jehovah the God of hosts was with him.
+And David became greater and greater; and Jehovah the God of hosts was [[2 Samuel-05.fn#Footnote 10.1 — with|with]] him.
 
 ## v11
 
@@ -48,7 +48,7 @@ And David perceived that Jehovah had established him as king over Israel and tha
 
 ## v13
 
-And David took more concubines and wives from Jerusalem after he came from Hebron, and more sons and daughters were born to David.
+And David took more [[2 Samuel-05.fn#Footnote 13.1 — concubines|concubines]] and wives from Jerusalem after he came from Hebron, and more sons and daughters were born to David.
 
 ## v14
 
@@ -76,11 +76,11 @@ Then David inquired of Jehovah, saying, Shall I go up against the Philistines? W
 
 ## v20
 
-So David came to Baal-perazim, and David struck them there. And he said, Jehovah has broken forth upon my enemies before me like the breaking forth of a flood. Therefore he called the name of that place Baal-perazim.
+So David came to Baal-perazim, and David struck them there. And he said, Jehovah has broken forth upon my enemies before me like the breaking forth of a flood. Therefore he called the name of that place [[2 Samuel-05.fn#Footnote 20.1 — Baal-perazim|Baal-perazim]].
 
 ## v21
 
-And the Philistines left their images there, and David and his men carried them away.
+And [[2 Samuel-05.fn#Footnote 21.1 — the|the]] Philistines left their images there, and David and his men carried them away.
 
 ## v22
 
@@ -96,4 +96,4 @@ And when you hear the sound of marching in the tops of the balsam trees, then yo
 
 ## v25
 
-And David did as Jehovah had commanded him, and he struck down the Philistines from Gibeon until you come to Gezer.
+And David did as Jehovah had commanded him, and he struck down the Philistines from [[2 Samuel-05.fn#Footnote 25.1 — Gibeon|Gibeon]] until you come to Gezer.

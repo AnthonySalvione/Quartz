@@ -16,7 +16,7 @@ And he commanded Judah to pursue Jehovah, the God of their fathers, and perform 
 
 ## v5
 
-And from all the cities of Judah he removed the high places and the incense altars. And the kingdom was quiet before him.
+And from all the cities of Judah he removed the [[2 Chronicles-14.fn#Footnote 5.1 — high|high]] places and the incense altars. And the kingdom was quiet before him.
 
 ## v6
 
@@ -32,7 +32,7 @@ And Asa had an army of three hundred thousand from Judah who bore shields and sp
 
 ## v9
 
-And Zerah the Cushite went out to them with an army of one million men and three hundred chariots, and he came to Mareshah.
+And Zerah the [[2 Chronicles-14.fn#Footnote 9.1 — Cushite|Cushite]] went out to them with an army of one million men and three hundred chariots, and he came to Mareshah.
 
 ## v10
 
@@ -48,7 +48,7 @@ And Jehovah struck the Cushites before Asa and before Judah, and the Cushites fl
 
 ## v13
 
-And Asa and the people who were with him pursued them as far as Gerar; and so many of the Cushites fell that they could not recover, for they were shattered before Jehovah and before His army. And they carried away very much spoil.
+And Asa and the people who were with him pursued them as far as Gerar; and so many of the Cushites fell that [[2 Chronicles-14.fn#Footnote 13.1 — they|they]] could not recover, for they were shattered before Jehovah and before His army. And they carried away very much spoil.
 
 ## v14
 

@@ -4,7 +4,7 @@ And when all this was finished, all Israel who were present went out to the citi
 
 ## v2
 
-And Hezekiah appointed the divisions of the priests and the Levites by their divisions, each of the priests and the Levites according to his service, for the burnt offering and for the peace offerings, to minister and give thanks and praise in the gates of the temple of Jehovah.
+And Hezekiah [[2 Chronicles-31.fn#Footnote 2.1 — appointed|appointed]] the divisions of the priests and the Levites by their divisions, each of the priests and the Levites according to his service, for the burnt offering and for the peace offerings, to minister and give thanks and praise in the gates of the [[2 Chronicles-31.fn#Footnote 2.2 — temple|temple]] of Jehovah.
 
 ## v3
 

@@ -4,7 +4,7 @@ And at the end of the twenty years in which Solomon had built the house of Jehov
 
 ## v2
 
-Solomon built the cities which Huram had given to him and settled the children of Israel there.
+[[2 Chronicles-08.fn#Footnote 2.1 — Solomon|Solomon]] built the cities which Huram had given to him and settled the children of Israel there.
 
 ## v3
 
@@ -64,7 +64,7 @@ So all the work of Solomon was carried out, from the day of the foundation of th
 
 ## v17
 
-Then Solomon went to Ezion-geber and to Eloth on the shore of the sea, in the land of Edom.
+Then Solomon went to Ezion-geber and to Eloth on the shore of the [[2 Chronicles-08.fn#Footnote 17.1 — sea|sea]], in the land of Edom.
 
 ## v18
 

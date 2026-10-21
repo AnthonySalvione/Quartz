@@ -1,14 +1,14 @@
 ## v1
 
-Then Jehovah spoke to Moses and to Aaron, saying to them,
+[[Leviticus-11.fn#Footnote 1.1 — Then|Then]] Jehovah spoke to Moses and to Aaron, saying to them,
 
 ## v2
 
-Speak to the children of Israel, saying, These are the animals which you may eat among all the beasts that are on the earth.
+Speak to the children of Israel, saying, These are the animals which you may [[Leviticus-11.fn#Footnote 2.1 — eat|eat]] among all the beasts that are on the earth.
 
 ## v3
 
-Whatever has a divided hoof, that is, has its hoof split in two, and chews the cud among the beasts, that you may eat.
+Whatever [[Leviticus-11.fn#Footnote 3.1 — has|has]] a divided hoof, that is, has its hoof split in two, and chews the cud among the beasts, that you may eat.
 
 ## v4
 
@@ -32,7 +32,7 @@ You shall not eat of their flesh, nor shall you touch their carcasses; they are 
 
 ## v9
 
-These you may eat of all that are in the water: anything in the water that has fins and scales, in the seas or in the rivers; these you may eat.
+These you may eat of all that are in the water: anything in the water that has [[Leviticus-11.fn#Footnote 9.1 — fins|fins]] and scales, in the seas or in the rivers; these you may eat.
 
 ## v10
 
@@ -48,7 +48,7 @@ Anything in the water that does not have fins or scales is an abomination to you
 
 ## v13
 
-And these you shall regard as an abomination among the birds; they shall not be eaten; they are an abomination: the great vulture and the bearded vulture and the black vulture
+And these you shall regard as an abomination among the [[Leviticus-11.fn#Footnote 13.1 — birds|birds]]; they shall not be eaten; they are an abomination: the great vulture and the bearded vulture and the black vulture
 
 ## v14
 
@@ -76,11 +76,11 @@ And the stork; the heron of every kind and the hoopoe and the bat.
 
 ## v20
 
-All flying insects that go on all fours are an abomination to you.
+All [[Leviticus-11.fn#Footnote 20.1 — flying|flying]] insects that go on all fours are an abomination to you.
 
 ## v21
 
-Yet these you may eat of all flying insects that go on all fours, which have legs above their feet with which to leap on the earth;
+Yet these you may eat of all flying insects that go on all fours, which have [[Leviticus-11.fn#Footnote 21.1 — legs|legs]] above their feet with which to leap on the earth;
 
 ## v22
 
@@ -96,7 +96,7 @@ And by these you shall become unclean; whoever touches their carcass shall be un
 
 ## v25
 
-And whoever carries any part of their carcass shall wash his clothes and be unclean until the evening.
+And whoever carries any part of their carcass shall [[Leviticus-11.fn#Footnote 25.1 — wash|wash]] his clothes and be unclean until the evening.
 
 ## v26
 
@@ -112,7 +112,7 @@ And the one who carries their carcass shall wash his clothes and be unclean unti
 
 ## v29
 
-And these are unclean to you among the swarming things that swarm on the earth: the weasel and the mouse and the great lizard of every kind,
+And these are unclean to you among the [[Leviticus-11.fn#Footnote 29.1 — swarming|swarming]] things that swarm on the earth: the weasel and the mouse and the great lizard of every kind,
 
 ## v30
 
@@ -120,19 +120,19 @@ And the gecko and the land crocodile and the lizard and the sand lizard and the 
 
 ## v31
 
-These are unclean to you among all the swarming things; whoever touches them when they are dead shall be unclean until the evening.
+These are unclean to you among all the swarming things; whoever touches them when they are [[Leviticus-11.fn#Footnote 31.1 — dead|dead]] shall be unclean [[Leviticus-11.fn#Footnote 31.2 — until|until]] the evening.
 
 ## v32
 
-And anything on which one of them may fall when they are dead shall be unclean, whether it is any article of wood or clothing or skin or sackcloth; any article which is used for any work must be put into water, and it shall be unclean until the evening; then it shall be clean.
+And anything on which one of them may fall when they are dead shall be unclean, whether it is any article of wood or clothing or skin or sackcloth; any article which is used for any work must be put into [[Leviticus-11.fn#Footnote 32.1 — water|water]], and it shall be unclean until the evening; then it shall be clean.
 
 ## v33
 
-And any earthen vessel into which any of them falls, whatever is in it shall be unclean, and the vessel you shall break.
+And any earthen vessel into which any of them falls, whatever is in it shall be unclean, and the [[Leviticus-11.fn#Footnote 33.1 — vessel|vessel]] you shall break.
 
 ## v34
 
-Any food that could be eaten shall be unclean if water from such a vessel comes upon it, and any liquid that may be drunk shall be unclean if it was in any such vessel.
+Any [[Leviticus-11.fn#Footnote 34.1 — food|food]] that could be eaten shall be unclean if water from such a vessel comes upon it, and any [[Leviticus-11.fn#Footnote 34.1 — food|liquid]] that may be drunk shall be unclean if it was in any such vessel.
 
 ## v35
 
@@ -140,11 +140,11 @@ And everything on which part of their carcass falls shall be unclean — an oven
 
 ## v36
 
-Nevertheless a spring or a cistern collecting water shall be clean, but whatever touches their carcass shall be unclean.
+Nevertheless a [[Leviticus-11.fn#Footnote 36.1 — spring|spring]] or a cistern collecting water shall be clean, but whatever touches their carcass shall be unclean.
 
 ## v37
 
-And if any part of their carcass falls on any seed for sowing, which is to be sown, it is clean.
+And if any part of their carcass falls on any [[Leviticus-11.fn#Footnote 37.1 — seed|seed]] for sowing, which is to be sown, it is clean.
 
 ## v38
 
@@ -184,4 +184,4 @@ This is the law of the beast and of the bird, and of every living animal that mo
 
 ## v47
 
-To make a distinction between the unclean and the clean, and between the animal that may be eaten and the animal that may not be eaten.
+To make a distinction between the unclean and the [[Leviticus-11.fn#Footnote 47.1 — clean|clean]], and between the animal that may be eaten and the animal that may not be eaten.

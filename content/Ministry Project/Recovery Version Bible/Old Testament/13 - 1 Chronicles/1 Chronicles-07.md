@@ -36,7 +36,7 @@ And they were enrolled by genealogy by their generations, the heads of their fat
 
 ## v10
 
-And the son of Jediael: Bilhan; and the sons of Bilhan: Jeush and Benjamin and Ehud and Chenaanah and Zethan and Tarshish and Ahishahar.
+And the [[1 Chronicles-07.fn#Footnote 10.1 — son|son]] of Jediael: Bilhan; and the sons of Bilhan: Jeush and Benjamin and Ehud and Chenaanah and Zethan and Tarshish and Ahishahar.
 
 ## v11
 
@@ -88,7 +88,7 @@ And Ephraim their father mourned many days, and his brothers came to comfort him
 
 ## v23
 
-And he went in to his wife, and she conceived and bore a son; and he called his name Beriah, for it was when misfortune was in his house.
+And he went in to his wife, and she conceived and bore a son; and he called his name [[1 Chronicles-07.fn#Footnote 23.1 — Beriah|Beriah]], for it was when misfortune was in his house.
 
 ## v24
 
@@ -108,11 +108,11 @@ Nun his son, Joshua his son.
 
 ## v28
 
-And their possession and dwelling places were Bethel and its villages, and Naaran to the east, and Gezer to the west and its villages, and Shechem and its villages as far as to Ayyah and its villages.
+And their possession and dwelling places were Bethel and its villages, and Naaran to the east, and Gezer to the west and its villages, and Shechem and its villages as far as to [[1 Chronicles-07.fn#Footnote 28.1 — Ayyah|Ayyah]] and its villages.
 
 ## v29
 
-And in the hands of the children of Manasseh were Beth-shean and its villages, Taanach and its villages, Megiddo and its villages, Dor and its villages. In these dwelt the children of Joseph the son of Israel.
+And [[1 Chronicles-07.fn#Footnote 29.1 — in|in]] the hands of the children of Manasseh were Beth-shean and its villages, Taanach and its villages, Megiddo and its villages, Dor and its villages. In these dwelt the children of Joseph the son of Israel.
 
 ## v30
 
@@ -132,7 +132,7 @@ And the sons of Japhlet: Pasach and Bimhal and Ashvath; these are the sons of Ja
 
 ## v34
 
-And the sons of Shemer: Ahi and Rohgah and Jehubbah and Aram.
+And the sons of [[1 Chronicles-07.fn#Footnote 34.1 — Shemer|Shemer]]: Ahi and Rohgah and Jehubbah and Aram.
 
 ## v35
 
@@ -140,7 +140,7 @@ And the sons of his brother Helem: Zophah and Imna and Shelesh and Amal.
 
 ## v36
 
-The sons of Zophah: Suah and Harnepher and Shual and Beri and Imrah,
+The [[1 Chronicles-07.fn#Footnote 36.1 — sons|sons]] of Zophah: Suah and Harnepher and Shual and Beri and Imrah,
 
 ## v37
 

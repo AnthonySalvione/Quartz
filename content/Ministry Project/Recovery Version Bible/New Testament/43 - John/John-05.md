@@ -7,39 +7,39 @@ After these things there was a feast of the Jews, and Jesus went up to Jerusalem
 
 ## v2
 
-Now there is in Jerusalem near the Sheep Gate a pool, which is called in Hebrew Bethesda, having five porticoes.
+Now there is in Jerusalem near the [[John-05.fn#Footnote 2.1 — Sheep|Sheep]] Gate a pool, which is called in Hebrew [[John-05.fn#Footnote 2.2 — Bethesda|Bethesda]], having [[John-05.fn#Footnote 2.3 — five|five]] porticoes.
 
 ## v3
 
-In these lay a multitude of those who were sick, blind, lame, and withered, waiting for the moving of the water.
+[[John-05.fn#Footnote 3.1 — In|In]] these lay a multitude of those who were sick, blind, lame, and withered, [[John-05.fn#Footnote 3.2 — waiting|waiting]] for the moving of the water.
 
 ## v4
 
-For an angel went down from time to time in the pool and stirred up the water; the first then to step in after the stirring up of the water was made well of whatever disease he was being held by.
+For an [[John-05.fn#Footnote 4.1 — angel|angel]] went down from time to time in the pool and stirred up the water; the first then to step in after the [[John-05.fn#Footnote 4.2 — stirring|stirring]] up of the water was made [[John-05.fn#Footnote 4.3 — well|well]] of whatever disease he was being held by.
 
 ## v5
 
-And a certain man was there, who had been thirty-eight years in his sickness.
+And a certain [[John-05.fn#Footnote 5.1 — man|man]] was there, who had been thirty-eight years in his sickness.
 
 ## v6
 
-When Jesus saw this one lying there and knew that he had already been a long time in that condition, He said to him, Do you want to get well?
+When Jesus saw this one lying there and knew that he had already been a long time in that condition, [[John-05.fn#Footnote 6.1 — He|He]] said to him, Do you want to get well?
 
 ## v7
 
-The sick man answered Him, Sir, I have no one to put me into the pool when the water is stirred up; but while I am coming, another steps down before me.
+The sick man answered Him, [[John-05.fn#Footnote 7.1 — Sir|Sir]], [[John-05.fn#Footnote 7.2 — I|I]] have no one to put me into the pool when the water is stirred up; but while I am coming, another steps down before me.
 
 ## v8
 
-Jesus said to him, Rise, take up your mat and walk.
+Jesus said to him, Rise, take up your [[John-05.fn#Footnote 8.1 — mat|mat]] and walk.
 
 ## v9
 
-And immediately the man became well, and he took up his mat and walked. Now it was the Sabbath on that day;
+And immediately the man [[John-05.fn#Footnote 9.1 — became|became]] well, and he [[John-05.fn#Footnote 9.2 — took|took]] up his mat and walked. Now it was the Sabbath on that day;
 
 ## v10
 
-Therefore the Jews said to the one who had been healed, It is the Sabbath, and it is not lawful for you to take up your mat.
+Therefore the Jews said to the one who had been healed, It is the Sabbath, and [[John-05.fn#Footnote 10.1 — it|it]] is not lawful for you to take up your mat.
 
 ## v11
 
@@ -55,7 +55,7 @@ But he who had been healed did not know who it was, for Jesus had withdrawn, the
 
 ## v14
 
-After these things Jesus found him in the temple and said to him, Behold, you have become well; sin no more so that nothing worse happens to you.
+After these things Jesus found him in the temple and said to him, Behold, you have become well; [[John-05.fn#Footnote 14.1 — sin|sin]] no more so that nothing worse happens to you.
 
 ## v15
 
@@ -63,15 +63,15 @@ The man went away and told the Jews that Jesus was the One who made him well.
 
 ## v16
 
-And because of this the Jews persecuted Jesus and sought to kill Him, because He did these things on the Sabbath.
+And because of this the Jews persecuted Jesus [[John-05.fn#Footnote 16.1 — and|and]] sought to kill Him, because He did these things on the Sabbath.
 
 ## v17
 
-But Jesus answered them, My Father is working until now, and I also am working.
+But Jesus answered them, My Father is [[John-05.fn#Footnote 17.1 — working|working]] until now, and I also am working.
 
 ## v18
 
-Because of this therefore the Jews sought all the more to kill Him, because He not only broke the Sabbath but also called God His own Father, making Himself equal with God.
+Because of this therefore the Jews [[John-05.fn#Footnote 18.1 — sought|sought]] all the more to kill Him, because He not only broke the Sabbath but also called God His own Father, making Himself [[John-05.fn#Footnote 18.2 — equal|equal]] with God.
 
 ## v19
 
@@ -95,11 +95,11 @@ In order that all may honor the Son even as they honor the Father. He who does n
 
 ## v24
 
-Truly, truly, I say to you, He who hears My word and believes Him who sent Me has eternal life, and does not come into judgment but has passed out of death into life.
+Truly, truly, I say to you, He who hears My word and believes Him who sent Me has [[John-05.fn#Footnote 24.1 — eternal|eternal]] life, and does not come into [[John-05.fn#Footnote 24.2 — judgment|judgment]] but has passed out of [[John-05.fn#Footnote 24.3 — death|death]] into life.
 
 ## v25
 
-Truly, truly, I say to you, An hour is coming, and it is now, when the dead will hear the voice of the Son of God, and those who hear will live.
+Truly, truly, I say to you, An hour is coming, and it is now, when the [[John-05.fn#Footnote 25.1 — dead|dead]] will hear the voice of the Son of God, and those who hear will [[John-05.fn#Footnote 25.1 — dead|live]].
 
 ## v26
 
@@ -107,15 +107,15 @@ For just as the Father has life in Himself, so He gave to the Son to also have l
 
 ## v27
 
-And He gave Him authority to execute judgment because He is the Son of Man.
+And He gave Him authority to execute judgment because He is the [[John-05.fn#Footnote 27.1 — Son|Son]] of Man.
 
 ## v28
 
-Do not marvel at this, for an hour is coming in which all in the tombs will hear His voice
+Do not marvel at this, for an hour is coming in which [[John-05.fn#Footnote 28.1 — all|all]] in the tombs will hear His voice
 
 ## v29
 
-And will come forth: those who have done good, to the resurrection of life; and those who have practiced evil, to the resurrection of judgment.
+And will come forth: those who have done good, to the [[John-05.fn#Footnote 29.1 — resurrection|resurrection]] of life; and those who have [[John-05.fn#Footnote 29.2 — practiced|practiced]] evil, to the [[John-05.fn#Footnote 29.3 — resurrection|resurrection]] of [[John-05.fn#Footnote 29.4 — judgment|judgment]].
 
 ## v30
 
@@ -131,7 +131,7 @@ There is another who testifies concerning Me, and I know that the testimony whic
 
 ## v33
 
-You have sent people to John, and he has testified to the truth.
+You have sent people to John, and he has testified to the [[John-05.fn#Footnote 33.1 — truth|truth]].
 
 ## v34
 
@@ -143,11 +143,11 @@ He was the lamp that was burning and shining, and you were willing to exult for 
 
 ## v36
 
-But I have the testimony which is greater than that of John, for the works which the Father has given Me to finish, the works themselves which I do, testify concerning Me that the Father has sent Me.
+But I have the testimony which is greater than that of John, for the works which the Father has given Me to finish, the works themselves which I do, testify concerning Me that the Father has [[John-05.fn#Footnote 36.1 — sent|sent]] Me.
 
 ## v37
 
-And the Father who sent Me, He has testified concerning Me. You have neither heard His voice at any time, nor have you seen His form,
+And the Father who sent Me, He has [[John-05.fn#Footnote 37.1 — testified|testified]] concerning Me. You have neither heard His voice at any time, nor have you seen His form,
 
 ## v38
 
@@ -155,11 +155,11 @@ And you do not have His word abiding in you, for Him whom He sent, this One you 
 
 ## v39
 
-You search the Scriptures, because you think that in them you have eternal life; and it is these that testify concerning Me.
+You [[John-05.fn#Footnote 39.1 — search|search]] the Scriptures, because you think that in them you have eternal life; and it is these that testify concerning Me.
 
 ## v40
 
-Yet you are not willing to come to Me that you may have life.
+Yet you are not willing to [[John-05.fn#Footnote 40.1 — come|come]] to Me that you may have life.
 
 ## v41
 
@@ -171,7 +171,7 @@ But I know you, that you do not have the love of God in yourselves.
 
 ## v43
 
-I have come in the name of My Father, and you do not receive Me; if another comes in his own name, you will receive him.
+I have come [[John-05.fn#Footnote 43.1 — in|in]] the name of My Father, and you do not receive Me; if another comes in his own name, you will receive him.
 
 ## v44
 

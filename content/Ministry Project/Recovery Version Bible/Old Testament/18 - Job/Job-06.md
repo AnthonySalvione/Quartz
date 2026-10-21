@@ -1,10 +1,10 @@
 ## v1
 
-Then Job answered and said,
+Then Job [[Job-06.fn#Footnote 1.1 — answered|answered]] and said,
 
 ## v2
 
-Oh that my vexation were weighed indeed,  
+Oh that my [[Job-06.fn#Footnote 2.1 — vexation|vexation]] were weighed indeed,  
 And that my ruin were lifted onto the scales together with it!
 
 ## v3
@@ -47,7 +47,7 @@ That He would release His hand and cut me off!
 
 Then there would still be comfort for me;  
 And I would exult, even in writhing pain that does not spare,  
-That I did not deny the words of the Holy One.
+That I did not [[Job-06.fn#Footnote 10.1 — deny|deny]] the words of the Holy One.
 
 ## v11
 

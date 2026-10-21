@@ -20,7 +20,7 @@ And they shall divide it into seven portions: Judah shall stay at his border on 
 
 ## v6
 
-And you shall describe the land in seven portions and bring the description here to me; then I will cast lots for you here before Jehovah our God.
+And you shall describe the land in seven portions and bring the description here to me; then I will [[Joshua-18.fn#Footnote 6.1 — cast|cast]] lots for you here before Jehovah our God.
 
 ## v7
 
@@ -60,7 +60,7 @@ The south side was from the limit of Kiriath-jearim, and the border went from th
 
 ## v16
 
-And the border went down to the limit of the mountain that is before the Valley of Ben-hinnom, which is north of the valley of the Rephaim; and it went down into the Valley of Hinnom, to the southern side of the Jebusite slope, and went down to En-rogel,
+And the border went down to the limit of the mountain that is before the [[Joshua-18.fn#Footnote 16.1 — Valley|Valley]] of Ben-hinnom, which is north of the valley of the Rephaim; and it went down into the Valley of Hinnom, to the southern side of the Jebusite slope, and went down to En-rogel,
 
 ## v17
 
@@ -108,4 +108,4 @@ And Rekem and Irpeel and Taralah
 
 ## v28
 
-And Zelah, Haeleph, and that of the Jebusite (this is Jerusalem), Gibeath, Kiriath: fourteen cities with their villages. This was the inheritance of the children of Benjamin according to their families.
+And Zelah, Haeleph, and that of the Jebusite (this is [[Joshua-18.fn#Footnote 28.1 — Jerusalem|Jerusalem]]), Gibeath, Kiriath: fourteen cities with their villages. This was the inheritance of the children of Benjamin according to their families.

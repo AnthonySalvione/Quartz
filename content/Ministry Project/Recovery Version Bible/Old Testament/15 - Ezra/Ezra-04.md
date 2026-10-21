@@ -1,6 +1,6 @@
 ## v1
 
-Now when the adversaries of Judah and Benjamin heard that the children of the captivity were building a temple to Jehovah the God of Israel,
+Now when the [[Ezra-04.fn#Footnote 1.1 — adversaries|adversaries]] of Judah and Benjamin heard that the children of the captivity were building a temple to Jehovah the God of Israel,
 
 ## v2
 
@@ -28,7 +28,7 @@ And in the days of Artaxerxes, Bishlam, Mithredath, Tabeel, and the rest of his 
 
 ## v8
 
-Rehum the chancellor and Shimshai the scribe wrote a letter against Jerusalem to Artaxerxes the king as follows:
+[[Ezra-04.fn#Footnote 8.1 — Rehum|Rehum]] the chancellor and Shimshai the scribe wrote a letter against Jerusalem to Artaxerxes the king as follows:
 
 ## v9
 
@@ -52,7 +52,7 @@ Now let it be known to the king that if this city is rebuilt and the walls are f
 
 ## v14
 
-Now because we eat the salt of the palace, and it is not fitting for us to see the king’s dishonor, we therefore have sent this letter to inform the king,
+Now because [[Ezra-04.fn#Footnote 14.1 — we|we]] eat the salt of the palace, and it is not fitting for us to see the king’s dishonor, we therefore have sent this letter to inform the king,
 
 ## v15
 

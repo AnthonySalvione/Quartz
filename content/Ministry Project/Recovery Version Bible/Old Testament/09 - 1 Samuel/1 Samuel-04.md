@@ -8,7 +8,7 @@ And the Philistines arrayed themselves against Israel; and when the battle sprea
 
 ## v3
 
-And when the people came to the camp, the elders of Israel said, Why has Jehovah struck us down today before the Philistines? Let us take for ourselves the Ark of the Covenant of Jehovah from Shiloh that it may come into our midst, and thus save us from the hand of our enemies.
+And when the people came to the camp, the elders of Israel said, Why has Jehovah struck us down today before the Philistines? Let us take for ourselves the [[1 Samuel-04.fn#Footnote 3.1 — Ark|Ark]] of the Covenant of Jehovah from Shiloh that it may come into our midst, and thus save us from the hand of our enemies.
 
 ## v4
 
@@ -40,7 +40,7 @@ And the Philistines fought, and Israel was struck down; and every man fled to hi
 
 ## v11
 
-And the Ark of God was taken, and the two sons of Eli, Hophni and Phinehas, died.
+And the Ark of God was [[1 Samuel-04.fn#Footnote 11.1 — taken|taken]], and the two sons of Eli, Hophni and Phinehas, died.
 
 ## v12
 
@@ -68,7 +68,7 @@ And he who brought the news answered and said, Israel fled before the Philistine
 
 ## v18
 
-And when he mentioned the Ark of God, Eli fell from off his seat backward by the side of the gate. And he broke his neck and died, for he was an old man and heavy. And he had judged Israel forty years.
+And when he mentioned the Ark of God, [[1 Samuel-04.fn#Footnote 18.1 — Eli|Eli]] fell from off his seat backward by the side of the gate. And he broke his neck and [[1 Samuel-04.fn#Footnote 18.2 — died|died]], for he was an old man and heavy. And he had judged Israel forty years.
 
 ## v19
 
@@ -80,7 +80,7 @@ And around the time that she died, the women who stood around her said, Do not f
 
 ## v21
 
-And she named the child Ichabod, meaning, The glory has departed from Israel, because the Ark of God had been taken and because of her father-in-law and her husband.
+And she named the child [[1 Samuel-04.fn#Footnote 21.1 — Ichabod|Ichabod]], [[1 Samuel-04.fn#Footnote 21.2 — meaning|meaning]], The glory has departed from Israel, because the Ark of God had been taken and because of her father-in-law and her husband.
 
 ## v22
 

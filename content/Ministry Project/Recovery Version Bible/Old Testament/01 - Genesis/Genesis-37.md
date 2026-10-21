@@ -1,14 +1,14 @@
 ## v1
 
-And Jacob dwelt in the land where his father had sojourned, in the land of Canaan.
+And [[Genesis-37.fn#Footnote 1.1 — Jacob|Jacob]] dwelt in the land where his father had sojourned, in the land of Canaan.
 
 ## v2
 
-These are the generations of Jacob. Joseph, when he was seventeen years old, was shepherding the flock with his brothers while he was still a youth, with the sons of Bilhah and with the sons of Zilpah, his father’s wives. And Joseph brought an evil report of them to their father.
+These are the generations of Jacob. [[Genesis-37.fn#Footnote 2.1 — Joseph|Joseph]], when he was seventeen years old, was [[Genesis-37.fn#Footnote 2.2 — shepherding|shepherding]] the flock with his brothers while he was still a youth, with the sons of Bilhah and with the sons of Zilpah, his father’s wives. And Joseph brought an evil report of them to their father.
 
 ## v3
 
-Now Israel loved Joseph more than all his sons because he was the son of his old age, and he had made him a coat of many colors.
+Now Israel loved Joseph [[Genesis-37.fn#Footnote 3.1 — more|more]] than all his sons because he was the son of his old age, and he had made him a coat of many colors.
 
 ## v4
 
@@ -16,7 +16,7 @@ And when his brothers saw that their father loved him more than all his brothers
 
 ## v5
 
-Then Joseph had a dream; and when he told it to his brothers, they hated him even more.
+Then Joseph had a [[Genesis-37.fn#Footnote 5.1 — dream|dream]]; and when he told it to his brothers, they hated him even more.
 
 ## v6
 
@@ -48,7 +48,7 @@ Then his brothers went to shepherd their father’s flock in Shechem.
 
 ## v13
 
-And Israel said to Joseph, Your brothers are now shepherding the flock in Shechem. Come, and I will send you to them. And he said to him, Here I am.
+And Israel said to Joseph, Your brothers are now shepherding the flock in Shechem. Come, and I will [[Genesis-37.fn#Footnote 13.1 — send|send]] you to them. And he said to him, Here I am.
 
 ## v14
 
@@ -68,7 +68,7 @@ And the man said, They have moved on from here; for I heard them say, Let us go 
 
 ## v18
 
-And when they saw him from a distance and before he came near to them, they conspired against him to put him to death.
+And when they saw him from a distance and before he came near to them, they [[Genesis-37.fn#Footnote 18.1 — conspired|conspired]] against him to put him to death.
 
 ## v19
 
@@ -108,7 +108,7 @@ Come, and let us sell him to the Ishmaelites, and let our hand not be on him; fo
 
 ## v28
 
-So when some Midianite traders passed by, they pulled Joseph up, lifting him out of the pit, and they sold Joseph to the Ishmaelites for twenty pieces of silver. And these brought Joseph into Egypt.
+So when some [[Genesis-37.fn#Footnote 28.1 — Midianite|Midianite]] traders passed by, they pulled Joseph up, lifting him out of the pit, and they sold Joseph to the [[Genesis-37.fn#Footnote 28.1 — Midianite|Ishmaelites]] for twenty pieces of silver. And these brought Joseph into Egypt.
 
 ## v29
 
@@ -136,8 +136,8 @@ And Jacob tore his garments and put sackcloth upon his loins and mourned for his
 
 ## v35
 
-And all his sons and all his daughters rose up to comfort him; but he refused to be comforted and said, Surely I will go down to Sheol to my son, mourning. Thus his father wept for him.
+And all his sons and all his daughters rose up to comfort him; but he refused to be comforted and said, Surely I will go down to [[Genesis-37.fn#Footnote 35.1 — Sheol|Sheol]] to my son, mourning. Thus his father wept for him.
 
 ## v36
 
-Meanwhile the Midianites had sold him in Egypt to Potiphar, an official of Pharaoh, the captain of the guard.
+Meanwhile the Midianites had [[Genesis-37.fn#Footnote 36.1 — sold|sold]] him in Egypt to Potiphar, an official of Pharaoh, the captain of the guard.

@@ -1,0 +1,56 @@
+---
+Category:
+  - Fullness of the Spirit
+Subcategory:
+  - As the Living Water
+Lyricist:
+  - Albert Benjamin Simpson
+Melody:
+  - George Coles Stebbins
+---
+# Fainting in the desert
+## Stanza 1
+Fainting in the desert,
+Israel's thousands stand
+At the rock of Kadesh.
+Hark! The Lord's command,
+Speak to the Rock,
+Bid the waters flow,
+Strike not its bosom
+Opened long ago,
+Speak to the Rock,
+Till the waters flow.
+
+## Chorus
+	Speak to the Rock,
+	Bid the waters flow,
+	Doubt not the Spirit,
+	Given long ago;
+	Take what He waiteth,
+	Freely to bestow,
+	Drink till its fulness
+	All Thy being know.
+
+## Stanza 2
+Blessed Rock of Ages,
+Thou art open still;
+Thy blest Holy Spirit
+All our being fill;
+Still Thou dost say,
+Wherefore struggle so?
+Call for the Spirit,
+Whisper soft and low,
+Speak to the Rock
+Bid the waters flow.
+
+## Stanza 3
+Oh, for trust more simple,
+Fully to believe;
+Oh, for hearts more childlike,
+Freely to receive;
+E'en as a babe,
+On its mother's breast,
+So on Thy bosom
+Let my spirit rest,
+Filled with Thy life,
+With Thy blessing blest.

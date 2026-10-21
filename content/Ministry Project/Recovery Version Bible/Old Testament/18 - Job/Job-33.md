@@ -130,7 +130,7 @@ He will return to the days of his youth.
 
 He will pray to God, and He will accept him,  
 So that he sees His face with joyous shouting;  
-And God restores to man his righteousness.
+And [[Job-33.fn#Footnote 26.1 — God|God]] restores to man his righteousness.
 
 ## v27
 

@@ -1,6 +1,6 @@
 ## v1
 
-Then all Israel gathered themselves to David at Hebron, saying, Here we are, your bone and your flesh.
+[[1 Chronicles-11.fn#Footnote 1.1 — Then|Then]] all Israel gathered themselves to David at Hebron, saying, Here we are, your bone and your flesh.
 
 ## v2
 
@@ -80,7 +80,7 @@ And Abishai the brother of Joab was chief of the three. And he brandished his sp
 
 ## v21
 
-He was honored among the two of the thirty, and he became their leader; but he did not attain to the three.
+He was honored among the two of the [[1 Chronicles-11.fn#Footnote 21.1 — thirty|thirty]], and he became their leader; but he did not attain to the three.
 
 ## v22
 
@@ -104,7 +104,7 @@ And the mighty men of the armies were: Asahel the brother of Joab; Elhanan the s
 
 ## v27
 
-Shammoth the Harodite; Helez the Pelonite;
+Shammoth the [[1 Chronicles-11.fn#Footnote 27.1 — Harodite|Harodite]]; Helez the Pelonite;
 
 ## v28
 

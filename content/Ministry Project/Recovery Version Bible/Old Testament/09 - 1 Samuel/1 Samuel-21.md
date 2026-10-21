@@ -20,7 +20,7 @@ And David answered the priest and said to him, Women have indeed been kept from 
 
 ## v6
 
-So the priest gave him what was holy, for there was no bread there except the bread of the Presence, which was taken from before Jehovah, to be replaced by hot bread at the time it was taken.
+So the priest gave him what was holy, for there was no bread there except the [[1 Samuel-21.fn#Footnote 6.1 — bread|bread]] of the Presence, which was taken from before Jehovah, to be replaced by hot bread at the time it was taken.
 
 ## v7
 

@@ -268,7 +268,7 @@ Besides their male servants and their female servants, of whom there were seven 
 
 ## v68
 
-Their horses were seven hundred thirty-six; their mules, two hundred forty-five;
+[[Nehemiah-07.fn#Footnote 68.1 — Their|Their]] horses were seven hundred thirty-six; their mules, two hundred forty-five;
 
 ## v69
 

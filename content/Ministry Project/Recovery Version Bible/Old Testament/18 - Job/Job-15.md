@@ -79,7 +79,7 @@ How much less a man who drinks wrong like water!
 
 ## v17
 
-I will tell you; hear me;  
+[[Job-15.fn#Footnote 17.1 — I|I]] will tell you; hear me;  
 And what I have seen, that will I recount,
 
 ## v18
@@ -141,7 +141,7 @@ Which were appointed to become heaps.
 ## v29
 
 He will not be rich, and his wealth will not endure;  
-Nor will his produce bend down to the earth.
+Nor will [[Job-15.fn#Footnote 29.1 — his|his]] produce bend down to the earth.
 
 ## v30
 

@@ -1,6 +1,6 @@
 ## v1
 
-And the two angels came to Sodom in the evening, and Lot was sitting in the gate of Sodom. And when Lot saw them, he rose up to meet them and bowed with his face to the ground.
+And the two angels came to Sodom in the evening, and Lot was sitting in the gate of Sodom. And when [[Genesis-19.fn#Footnote 1.1 — Lot|Lot]] saw them, he rose up to meet them and bowed with his face to the ground.
 
 ## v2
 
@@ -16,7 +16,7 @@ But before they lay down, the men of the city, the men of Sodom, surrounded the 
 
 ## v5
 
-And they called to Lot and said to him, Where are the men who came to you tonight? Bring them out to us that we may know them.
+And they called to Lot and said to him, Where are the men who came to you tonight? Bring them out to us that we may [[Genesis-19.fn#Footnote 5.1 — know|know]] them.
 
 ## v6
 
@@ -28,7 +28,7 @@ And he said, Please, my brothers, do not act so wickedly.
 
 ## v8
 
-I have here two daughters who have not known a man. Please, let me bring them out to you, and do to them as is fitting in your eyes; only do not do anything to these men, inasmuch as they have come under the shelter of my roof.
+I have here two [[Genesis-19.fn#Footnote 8.1 — daughters|daughters]] who have not known a man. Please, let me bring them out to you, and do to them as is fitting in your eyes; only do not do anything to these men, inasmuch as they have come under the shelter of my roof.
 
 ## v9
 
@@ -40,7 +40,7 @@ But the men stretched out their hand and brought Lot into the house to them and 
 
 ## v11
 
-And they struck the men who were at the entrance of the house with blindness, both small and great, so that they wearied themselves trying to find the entrance.
+And they struck the men who were at the entrance of the house with [[Genesis-19.fn#Footnote 11.1 — blindness|blindness]], both small and great, so that they wearied themselves trying to find the entrance.
 
 ## v12
 
@@ -60,7 +60,7 @@ And when the morning dawned, the angels urged Lot, saying, Rise up; take your wi
 
 ## v16
 
-But he lingered; so the men seized his hand and the hand of his wife and the hand of his two daughters, Jehovah being merciful to him, and they brought him out and set him outside the city.
+But he [[Genesis-19.fn#Footnote 16.1 — lingered|lingered]]; so the men seized his hand and the hand of his wife and the hand of his two daughters, Jehovah being merciful to him, and they brought him out and set him outside the city.
 
 ## v17
 
@@ -76,7 +76,7 @@ Even though Your servant has found favor in Your sight, and You have magnified Y
 
 ## v20
 
-Here, this city is nearby to flee to, and it is a little one. Please let me escape there — is it not a little one? — and I shall live.
+Here, this city is nearby to flee to, and it is a little one. Please let me escape there — is it not a little one? — and [[Genesis-19.fn#Footnote 20.1 — I|I]] shall live.
 
 ## v21
 
@@ -84,7 +84,7 @@ And He said to him, I now grant you this request also, that I will not overthrow
 
 ## v22
 
-Hurry, escape there; for I cannot do anything until you arrive there. Therefore the name of the city was called Zoar.
+Hurry, escape there; for I cannot do anything until you arrive there. Therefore the name of the city was called [[Genesis-19.fn#Footnote 22.1 — Zoar|Zoar]].
 
 ## v23
 
@@ -100,7 +100,7 @@ And He overthrew those cities and all the plain and all the inhabitants of the c
 
 ## v26
 
-But his wife looked back from behind him, and she became a pillar of salt.
+But his wife looked back from behind him, and she became a [[Genesis-19.fn#Footnote 26.1 — pillar|pillar]] of salt.
 
 ## v27
 
@@ -124,7 +124,7 @@ And the firstborn said to the younger, Our father is old, and there is not a man
 
 ## v32
 
-Come, let us make our father drink wine; and let us lie with him, that we may preserve alive seed from our father.
+Come, let us make our father drink wine; and let us lie with him, that we may preserve alive [[Genesis-19.fn#Footnote 32.1 — seed|seed]] from our father.
 
 ## v33
 
@@ -144,8 +144,8 @@ Thus both the daughters of Lot became pregnant by their father.
 
 ## v37
 
-And the firstborn bore a son and called his name Moab; he is the father of the Moabites to this day.
+And the firstborn bore a son and called his name [[Genesis-19.fn#Footnote 37.1 — Moab|Moab]]; he is the father of the [[Genesis-19.fn#Footnote 37.2 — Moabites|Moabites]] to this day.
 
 ## v38
 
-And the younger, she also bore a son and called his name Ben-ammi; he is the father of the children of Ammon to this day.
+And the younger, she also bore a son and called his name [[Genesis-19.fn#Footnote 38.1 — Ben-ammi|Ben-ammi]]; he is the father of the children of Ammon to this day.

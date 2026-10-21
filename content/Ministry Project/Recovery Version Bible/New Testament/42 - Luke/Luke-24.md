@@ -3,7 +3,7 @@ Author: Luke
 ---
 ## v1
 
-Now on the first day of the week, at early dawn, they came to the tomb, bringing the spices which they had prepared.
+Now on the [[Luke-24.fn#Footnote 1.1 — first|first]] day of the week, at early dawn, [[Luke-24.fn#Footnote 1.2 — they|they]] [[Luke-24.fn#Footnote 1.3 — came|came]] to the tomb, bringing the spices which they had prepared.
 
 ## v2
 
@@ -15,7 +15,7 @@ But when they entered, they did not find the body of the Lord Jesus.
 
 ## v4
 
-And while they stood perplexed about this, behold, two men stood by them in dazzling clothing.
+And while they stood perplexed about this, behold, two men stood by them in [[Luke-24.fn#Footnote 4.1 — dazzling|dazzling]] clothing.
 
 ## v5
 
@@ -23,7 +23,7 @@ And they became frightened and bowed their faces to the ground, and the men said
 
 ## v6
 
-He is not here but has been raised. Remember how He spoke to you while He was still in Galilee,
+He is not here but has been [[Luke-24.fn#Footnote 6.1 — raised|raised]]. Remember how He spoke to you while He was still in Galilee,
 
 ## v7
 
@@ -39,11 +39,11 @@ And returning from the tomb, they reported all these things to the eleven and to
 
 ## v10
 
-Now they were Mary the Magdalene and Joanna and Mary the mother of James and the rest of the women with them, who told these things to the apostles.
+Now they were Mary the Magdalene and Joanna and [[Luke-24.fn#Footnote 10.1 — Mary|Mary]] the mother of James and the rest of the women with them, who told these things to the apostles.
 
 ## v11
 
-And these words appeared to them as nonsense, and they did not believe them.
+And these words appeared [[Luke-24.fn#Footnote 11.1 — to|to]] them as [[Luke-24.fn#Footnote 11.2 — nonsense|nonsense]], and they did not believe them.
 
 ## v12
 
@@ -51,7 +51,7 @@ But Peter rose up and ran to the tomb; and stooping to look in, he saw the linen
 
 ## v13
 
-And behold, two of them were going on the same day to a village named Emmaus, which was sixty stadia away from Jerusalem.
+And behold, two of them were going on the same day to a village named Emmaus, which was sixty [[Luke-24.fn#Footnote 13.1 — stadia|stadia]] away from Jerusalem.
 
 ## v14
 
@@ -59,7 +59,7 @@ And they were talking to each other concerning all these things which had occurr
 
 ## v15
 
-And while they were talking and discussing, Jesus Himself drew near and went with them.
+And while they were talking and discussing, Jesus Himself drew near and [[Luke-24.fn#Footnote 15.1 — went|went]] with them.
 
 ## v16
 
@@ -75,7 +75,7 @@ And one of them, Cleopas by name, answered and said to Him, Do You alone dwell a
 
 ## v19
 
-And He said to them, What things? And they said to Him, The things concerning Jesus the Nazarene, who was a Prophet powerful in work and word before God and all the people;
+And He [[Luke-24.fn#Footnote 19.1 — said|said]] to them, What things? And they said to Him, The things concerning Jesus the Nazarene, who was a [[Luke-24.fn#Footnote 19.2 — Prophet|Prophet]] powerful in work and word before God and all the people;
 
 ## v20
 
@@ -99,15 +99,15 @@ And some of those with us went to the tomb and found it even as the women also s
 
 ## v25
 
-And He said to them, O foolish and slow of heart to believe in all that the prophets have spoken!
+And He said to them, O [[Luke-24.fn#Footnote 25.1 — foolish|foolish]] and slow of heart to believe in all that the prophets have spoken!
 
 ## v26
 
-Was it not necessary for the Christ to suffer these things and enter into His glory?
+Was it not necessary for the Christ to suffer these things and [[Luke-24.fn#Footnote 26.1 — enter|enter]] into His glory?
 
 ## v27
 
-And beginning from Moses and from all the prophets, He explained to them clearly in all the Scriptures the things concerning Himself.
+And beginning from Moses and from all the prophets, He explained to them clearly in [[Luke-24.fn#Footnote 27.1 — all|all]] the Scriptures the things concerning Himself.
 
 ## v28
 
@@ -123,7 +123,7 @@ And as He reclined at table with them, He took the loaf and blessed it, and havi
 
 ## v31
 
-And their eyes were opened, and they recognized Him; and He disappeared from them.
+And their eyes were [[Luke-24.fn#Footnote 31.1 — opened|opened]], and they recognized Him; and [[Luke-24.fn#Footnote 31.2 — He|He]] disappeared from them.
 
 ## v32
 
@@ -131,7 +131,7 @@ And they said to one another, Was not our heart burning within us while He was s
 
 ## v33
 
-And they rose up that very hour and returned to Jerusalem, and they found the eleven and those with them assembled together,
+And they rose up that very hour and returned to [[Luke-24.fn#Footnote 33.1 — Jerusalem|Jerusalem]], and they found the eleven and those with them assembled together,
 
 ## v34
 
@@ -147,7 +147,7 @@ And as they were speaking these things, He Himself stood in their midst and said
 
 ## v37
 
-But they were terrified and became frightened and thought they beheld a spirit.
+But they were terrified and became frightened and thought they beheld a [[Luke-24.fn#Footnote 37.1 — spirit|spirit]].
 
 ## v38
 
@@ -155,7 +155,7 @@ And He said to them, Why are you troubled, and why do doubts arise in your heart
 
 ## v39
 
-See My hands and My feet, that it is I Myself. Touch Me and see, for a spirit does not have flesh and bones as you behold Me having.
+See My hands and My feet, that it is I Myself. Touch Me and see, for a spirit does not have [[Luke-24.fn#Footnote 39.1 — flesh|flesh]] and bones as you behold Me having.
 
 ## v40
 
@@ -163,7 +163,7 @@ And when He had said this, He showed them His hands and His feet.
 
 ## v41
 
-And while they still did not believe for joy and were marveling, He said to them, Do you have anything here to eat?
+And while they still [[Luke-24.fn#Footnote 41.1 — did|did]] not believe for joy and were marveling, He said to them, Do you have anything here to eat?
 
 ## v42
 
@@ -175,11 +175,11 @@ And He took it and ate before them.
 
 ## v44
 
-And He said to them, These are My words which I spoke to you while I was still with you, that all the things written in the Law of Moses and the Prophets and Psalms concerning Me must be fulfilled.
+And He said to them, These are My words which I spoke to you while I was still with you, that all the things written in the [[Luke-24.fn#Footnote 44.1 — Law|Law]] of Moses and the Prophets and Psalms concerning Me must be fulfilled.
 
 ## v45
 
-Then He opened their mind to understand the Scriptures;
+Then He [[Luke-24.fn#Footnote 45.1 — opened|opened]] their mind to understand the Scriptures;
 
 ## v46
 
@@ -187,7 +187,7 @@ And He said to them, Thus it is written, that the Christ would suffer and rise u
 
 ## v47
 
-And that repentance for forgiveness of sins would be proclaimed in His name to all the nations, beginning from Jerusalem.
+And that repentance for [[Luke-24.fn#Footnote 47.1 — forgiveness|forgiveness]] of sins would be proclaimed in His name to all the nations, beginning from Jerusalem.
 
 ## v48
 
@@ -195,15 +195,15 @@ You are witnesses of these things.
 
 ## v49
 
-And behold, I send forth the promise of My Father upon you; but as for you, stay in the city until you put on power from on high.
+And behold, I send forth the [[Luke-24.fn#Footnote 49.1 — promise|promise]] of My Father upon you; but as for you, [[Luke-24.fn#Footnote 49.2 — stay|stay]] in the city until you [[Luke-24.fn#Footnote 49.3 — put|put]] on power from on high.
 
 ## v50
 
-And He led them out as far as Bethany, and He lifted up His hands and blessed them.
+And He led them out as far as [[Luke-24.fn#Footnote 50.1 — Bethany|Bethany]], and He lifted up His hands and blessed them.
 
 ## v51
 
-And while He blessed them, He parted from them and was carried up into heaven.
+And while He blessed them, He parted from them and was [[Luke-24.fn#Footnote 51.1 — carried|carried]] up into heaven.
 
 ## v52
 
@@ -211,4 +211,4 @@ And they worshipped Him and returned to Jerusalem with great joy,
 
 ## v53
 
-And were continually in the temple, blessing God.
+And were continually in the temple, blessing [[Luke-24.fn#Footnote 53.1 — God|God]].

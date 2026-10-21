@@ -40,7 +40,7 @@ One man of you chases a thousand, for it is Jehovah your God who fights for you,
 
 ## v11
 
-Be very careful therefore for yourselves, that you love Jehovah your God.
+Be very careful therefore for yourselves, that you [[Joshua-23.fn#Footnote 11.1 — love|love]] Jehovah your God.
 
 ## v12
 

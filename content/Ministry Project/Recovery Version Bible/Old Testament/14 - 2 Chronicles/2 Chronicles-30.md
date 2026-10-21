@@ -1,6 +1,6 @@
 ## v1
 
-Hezekiah sent word to all Israel and Judah and also wrote letters to Ephraim and Manasseh telling them to come to the house of Jehovah in Jerusalem to hold the Passover to Jehovah the God of Israel.
+Hezekiah sent word to [[2 Chronicles-30.fn#Footnote 1.1 — all|all]] Israel and Judah and also wrote letters to Ephraim and Manasseh telling them to come to the house of Jehovah in Jerusalem to hold the Passover to Jehovah the God of Israel.
 
 ## v2
 
@@ -16,7 +16,7 @@ And the matter seemed right in the sight of the king and in the sight of all the
 
 ## v5
 
-So they established a decree to send a proclamation throughout all Israel, from Beer-sheba to Dan, telling them to come to hold the Passover to Jehovah the God of Israel in Jerusalem; for they had not held it for a long time, as it was decreed in writing.
+So they established a decree to send a proclamation throughout all Israel, from Beer-sheba to Dan, telling them to come to hold the Passover to Jehovah the God of Israel in Jerusalem; for they had not held it [[2 Chronicles-30.fn#Footnote 5.1 — for|for]] a long time, as it was decreed in writing.
 
 ## v6
 
@@ -76,7 +76,7 @@ Who has set his heart to seek after God, after Jehovah, the God of his fathers, 
 
 ## v20
 
-And Jehovah heard Hezekiah and healed the people.
+And Jehovah heard Hezekiah and [[2 Chronicles-30.fn#Footnote 20.1 — healed|healed]] the people.
 
 ## v21
 

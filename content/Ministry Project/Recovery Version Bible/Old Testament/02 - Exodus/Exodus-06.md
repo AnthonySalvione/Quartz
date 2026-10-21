@@ -1,6 +1,6 @@
 ## v1
 
-And Jehovah said to Moses, Now you will see what I will do to Pharaoh; for because of a mighty hand he will let them go, and because of a mighty hand he will drive them out of his land.
+And [[Exodus-06.fn#Footnote 1.1 — Jehovah|Jehovah]] said to Moses, Now you will see what I will do to Pharaoh; for because of a mighty hand he will let them go, and because of a mighty hand he will drive them out of his land.
 
 ## v2
 
@@ -8,7 +8,7 @@ And God spoke to Moses and said to him, I am Jehovah.
 
 ## v3
 
-And I appeared to Abraham, to Isaac, and to Jacob as the All-sufficient God; but by My name Jehovah I did not make Myself known to them.
+And I appeared to Abraham, to Isaac, and to Jacob as the [[Exodus-06.fn#Footnote 3.1 — All-sufficient|All-sufficient]] God; but by My name [[Exodus-06.fn#Footnote 3.2 — Jehovah|Jehovah]] I did not make Myself known to them.
 
 ## v4
 
@@ -28,7 +28,7 @@ And I will take you to Myself as My people, and I will be your God; and you shal
 
 ## v8
 
-And I will bring you to the land which I swore to give to Abraham, to Isaac, and to Jacob; and I will give it to you as a possession. I am Jehovah.
+And I will bring you to the land which I [[Exodus-06.fn#Footnote 8.1 — swore|swore]] to give to Abraham, to Isaac, and to Jacob; and I will give it to you as a possession. I am Jehovah.
 
 ## v9
 
@@ -52,7 +52,7 @@ And Jehovah spoke to Moses and to Aaron and gave them a charge for the children 
 
 ## v14
 
-These are the heads of their fathers’ houses. The sons of Reuben, the firstborn of Israel: Hanoch and Pallu, Hezron and Carmi; these are the families of Reuben.
+[[Exodus-06.fn#Footnote 14.1 — These|These]] are the heads of their fathers’ houses. The sons of Reuben, the firstborn of Israel: Hanoch and Pallu, Hezron and Carmi; these are the families of Reuben.
 
 ## v15
 

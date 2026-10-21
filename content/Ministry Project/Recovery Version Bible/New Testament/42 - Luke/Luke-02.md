@@ -7,7 +7,7 @@ And in those days a decree went out from Caesar Augustus for a census to be take
 
 ## v2
 
-This was the first census, which took place when Quirinius governed Syria.
+This was the [[Luke-02.fn#Footnote 2.1 — first|first]] census, which took place when Quirinius governed Syria.
 
 ## v3
 
@@ -15,7 +15,7 @@ And all went to be registered, each to his own city.
 
 ## v4
 
-And Joseph also went up from Galilee out of the city of Nazareth into Judea, to David’s city, which is called Bethlehem, because he was of the house and family of David,
+And Joseph also went up from Galilee out of the city of Nazareth into Judea, to David’s city, which is called Bethlehem, because he was of the [[Luke-02.fn#Footnote 4.1 — house|house]] and family of David,
 
 ## v5
 
@@ -27,11 +27,11 @@ And while they were there, the days were fulfilled for her to bear,
 
 ## v7
 
-And she bore her firstborn son; and she wrapped Him in swaddling clothes and laid Him in a manger because there was no place for them in the inn.
+And she [[Luke-02.fn#Footnote 7.1 — bore|bore]] her firstborn son; and she wrapped Him in swaddling clothes and laid Him in a [[Luke-02.fn#Footnote 7.2 — manger|manger]] because there was no place for them in the inn.
 
 ## v8
 
-And there were shepherds in the same region, spending their nights in the fields and keeping watch over their flock by night.
+And there were [[Luke-02.fn#Footnote 8.1 — shepherds|shepherds]] in the same region, spending their nights in the fields and keeping watch over their flock by night.
 
 ## v9
 
@@ -47,19 +47,19 @@ Because today a Savior has been born to you in David’s city, who is Christ the
 
 ## v12
 
-And this will be the sign to you: you will find a baby wrapped in swaddling clothes and lying in a manger.
+And this will be the [[Luke-02.fn#Footnote 12.1 — sign|sign]] to you: you will find a [[Luke-02.fn#Footnote 12.2 — baby|baby]] wrapped in swaddling clothes and lying in a manger.
 
 ## v13
 
-And suddenly there was with the angel a multitude of the heavenly army, praising God and saying,
+And suddenly there was with the angel a multitude of the heavenly army, [[Luke-02.fn#Footnote 13.1 — praising|praising]] God and saying,
 
 ## v14
 
-Glory in the highest places to God, and on earth peace among men of His good pleasure.
+[[Luke-02.fn#Footnote 14.1 — Glory|Glory]] in the highest places to God, and on earth [[Luke-02.fn#Footnote 14.1 — Glory|peace]] among [[Luke-02.fn#Footnote 14.2 — men|men]] of His good pleasure.
 
 ## v15
 
-And when the angels departed from them into heaven, the shepherds spoke to one another, Let us go then to Bethlehem and see this thing that has happened, which the Lord has made known to us.
+And when the angels departed from them into heaven, the shepherds spoke to one another, Let us go then to Bethlehem and see this [[Luke-02.fn#Footnote 15.1 — thing|thing]] that has happened, which the Lord has made known to us.
 
 ## v16
 
@@ -95,11 +95,11 @@ And when the days for their purification according to the law of Moses were fulf
 
 ## v24
 
-And to give a sacrifice according to what is said in the law of the Lord: A pair of turtledoves or two young doves.
+And to give a sacrifice according to what is said in the [[Luke-02.fn#Footnote 24.1 — law|law]] of the Lord: [[Luke-02.fn#Footnote 24.2 — A|A]] pair of turtledoves or two young doves.
 
 ## v25
 
-And behold, there was a man in Jerusalem whose name was Simeon. And this man was righteous and devout, waiting for the consolation of Israel, and the Holy Spirit was upon him.
+And behold, there was a man in Jerusalem whose name was Simeon. And this man was [[Luke-02.fn#Footnote 25.1 — righteous|righteous]] and devout, waiting for the [[Luke-02.fn#Footnote 25.2 — consolation|consolation]] of Israel, and the Holy Spirit was upon him.
 
 ## v26
 
@@ -119,7 +119,7 @@ Now You release Your slave, Master, according to Your word, in peace;
 
 ## v30
 
-For my eyes have seen Your salvation,
+For my eyes have seen Your [[Luke-02.fn#Footnote 30.1 — salvation|salvation]],
 
 ## v31
 
@@ -127,7 +127,7 @@ Which You have prepared before the face of all the peoples,
 
 ## v32
 
-A light for revelation to the Gentiles and the glory of Your people Israel.
+A [[Luke-02.fn#Footnote 32.1 — light|light]] for revelation to the Gentiles and the glory of Your people Israel.
 
 ## v33
 
@@ -135,11 +135,11 @@ And His father and mother marveled at the things being spoken about Him.
 
 ## v34
 
-And Simeon blessed them and said to Mary His mother, Behold, this One is appointed for the falling and rising up of many in Israel and for a sign spoken against —
+And Simeon blessed them and said to Mary His mother, Behold, this One is [[Luke-02.fn#Footnote 34.1 — appointed|appointed]] for the falling and rising up of many in Israel and for a [[Luke-02.fn#Footnote 34.2 — sign|sign]] spoken against —
 
 ## v35
 
-And a sword will pierce through your own soul also — so that the reasonings of many hearts may be revealed.
+And a [[Luke-02.fn#Footnote 35.1 — sword|sword]] will pierce through your own soul also — so that the reasonings of many hearts may be [[Luke-02.fn#Footnote 35.2 — revealed|revealed]].
 
 ## v36
 
@@ -147,19 +147,19 @@ And there was one Anna, a prophetess, a daughter of Phanuel, of the tribe of Ash
 
 ## v37
 
-And she was a widow up to the age of eighty-four, who did not depart from the temple, serving God with fastings and petitions night and day.
+[[Luke-02.fn#Footnote 37.1 — And|And]] she was a widow up to the age of eighty-four, who did not depart from the temple, [[Luke-02.fn#Footnote 37.2 — serving|serving]] God with fastings and petitions night and day.
 
 ## v38
 
-And at that very hour she came up and returned thanks to God, and spoke concerning Him to all those waiting for the redemption of Jerusalem.
+And at that very hour she came up and returned thanks to God, and spoke concerning Him to all those waiting for the [[Luke-02.fn#Footnote 38.1 — redemption|redemption]] [[Luke-02.fn#Footnote 38.2 — of|of]] Jerusalem.
 
 ## v39
 
-And when they had finished all things according to the law of the Lord, they returned into Galilee, to their own city, Nazareth.
+And when they had finished all things according to the law of the Lord, they returned into Galilee, to their own city, [[Luke-02.fn#Footnote 39.1 — Nazareth|Nazareth]].
 
 ## v40
 
-And the little child grew and became strong, being filled with wisdom, and the grace of God was upon Him.
+And the little child [[Luke-02.fn#Footnote 40.1 — grew|grew]] and became strong, being filled with [[Luke-02.fn#Footnote 40.2 — wisdom|wisdom]], and the [[Luke-02.fn#Footnote 40.3 — grace|grace]] of God was upon Him.
 
 ## v41
 
@@ -167,7 +167,7 @@ And His parents went year by year to Jerusalem at the Feast of the Passover.
 
 ## v42
 
-And when He became twelve years old, they went up according to the custom of the feast.
+And when He became [[Luke-02.fn#Footnote 42.1 — twelve|twelve]] years old, they went up according to the [[Luke-02.fn#Footnote 42.2 — custom|custom]] of the feast.
 
 ## v43
 
@@ -191,11 +191,11 @@ And all those who heard Him were amazed at His understanding and His answers.
 
 ## v48
 
-And when they saw Him, they were astounded; and His mother said to Him, Child, why have You treated us like this? Behold, Your father and I, being greatly distressed, have been seeking You.
+And when they saw Him, they were astounded; and His mother said to Him, Child, why have You treated us like this? Behold, Your father and I, being [[Luke-02.fn#Footnote 48.1 — greatly|greatly]] distressed, have been seeking You.
 
 ## v49
 
-And He said to them, Why is it that you were seeking Me? Did you not know that I must be in the things of My Father?
+And He said to them, Why is it that you were seeking Me? Did you not know that I [[Luke-02.fn#Footnote 49.1 — must|must]] be [[Luke-02.fn#Footnote 49.2 — in|in]] the things of [[Luke-02.fn#Footnote 49.3 — My|My]] Father?
 
 ## v50
 
@@ -203,8 +203,8 @@ And they did not understand the word which He spoke to them.
 
 ## v51
 
-And He went down with them and came to Nazareth, and was subject to them. And His mother carefully kept all these things in her heart.
+And He went down with them and came to Nazareth, and was [[Luke-02.fn#Footnote 51.1 — subject|subject]] to them. And His mother carefully kept all these things in her heart.
 
 ## v52
 
-And Jesus advanced in wisdom and stature and in the grace manifested in Him before God and men.
+And Jesus advanced in wisdom and [[Luke-02.fn#Footnote 52.1 — stature|stature]] and in the [[Luke-02.fn#Footnote 52.2 — grace|grace]] manifested in Him before God and men.

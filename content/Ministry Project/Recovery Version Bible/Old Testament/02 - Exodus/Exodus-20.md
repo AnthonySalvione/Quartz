@@ -1,18 +1,18 @@
 ## v1
 
-And God spoke all these words, saying,
+And God spoke all these [[Exodus-20.fn#Footnote 1.1 — words|words]], saying,
 
 ## v2
 
-I am Jehovah your God, who brought you out of the land of Egypt, out of the slave house;
+I am [[Exodus-20.fn#Footnote 2.1 — Jehovah|Jehovah]] your God, who brought you out of the land of Egypt, out of the slave house;
 
 ## v3
 
-You shall have no other gods before Me.
+You shall have no other gods [[Exodus-20.fn#Footnote 3.1 — before|before]] Me.
 
 ## v4
 
-You shall not make for yourself an idol, nor the form of anything that is in heaven above or on the earth beneath or in the water beneath the earth.
+You shall not make for yourself an [[Exodus-20.fn#Footnote 4.1 — idol|idol]], nor the [[Exodus-20.fn#Footnote 4.2 — form|form]] of anything that is in heaven above or on the earth beneath or in the water beneath the earth.
 
 ## v5
 
@@ -20,7 +20,7 @@ You shall not bow down to them, and you shall not serve them; for I, Jehovah you
 
 ## v6
 
-Yet showing lovingkindness to thousands of generations of those who love Me and keep My commandments.
+Yet showing lovingkindness to [[Exodus-20.fn#Footnote 6.1 — thousands|thousands]] of generations of those who [[Exodus-20.fn#Footnote 6.2 — love|love]] Me and keep My commandments.
 
 ## v7
 
@@ -28,7 +28,7 @@ You shall not take the name of Jehovah your God in vain, for Jehovah will not ho
 
 ## v8
 
-Remember the Sabbath day so as to sanctify it.
+Remember the [[Exodus-20.fn#Footnote 8.1 — Sabbath|Sabbath]] day so as to sanctify it.
 
 ## v9
 
@@ -36,7 +36,7 @@ Six days you shall labor and do all your work,
 
 ## v10
 
-But the seventh day is a Sabbath to Jehovah your God; you shall not do any work, you nor your son nor your daughter, your male servant nor your female servant, nor your cattle nor the sojourner with you, who is within your gates.
+But the seventh day is a Sabbath [[Exodus-20.fn#Footnote 10.1 — to|to]] Jehovah your God; you shall not do any work, you nor your son nor your daughter, your male servant nor your female servant, nor your cattle nor the sojourner with you, who is within your gates.
 
 ## v11
 
@@ -44,11 +44,11 @@ For in six days Jehovah made heaven and earth, the sea and all that is in them, 
 
 ## v12
 
-Honor your father and your mother, that your days may be extended upon the land which Jehovah your God is giving you.
+Honor your father and your mother, that your days may be extended upon the land which [[Exodus-20.fn#Footnote 12.1 — Jehovah|Jehovah]] your God is giving you.
 
 ## v13
 
-You shall not kill.
+[[Exodus-20.fn#Footnote 13.1 — You|You]] shall not kill.
 
 ## v14
 
@@ -64,11 +64,11 @@ You shall not testify with false testimony against your neighbor.
 
 ## v17
 
-You shall not covet your neighbor’s house; you shall not covet your neighbor’s wife, nor his male servant, nor his female servant, nor his ox, nor his donkey, nor anything that belongs to your neighbor.
+You shall not [[Exodus-20.fn#Footnote 17.1 — covet|covet]] your neighbor’s house; you shall not covet your neighbor’s wife, nor his male servant, nor his female servant, nor his ox, nor his donkey, nor anything that belongs to your neighbor.
 
 ## v18
 
-And all the people witnessed the thunder and the flashes of lightning and the sound of the trumpet and the mountain smoking; and when the people witnessed it, they trembled and stood at a distance.
+And all the people witnessed the thunder and the flashes of lightning and the sound of the trumpet and the mountain smoking; and when the people witnessed it, they [[Exodus-20.fn#Footnote 18.1 — trembled|trembled]] and stood at a distance.
 
 ## v19
 
@@ -84,20 +84,20 @@ And the people stood at a distance, and Moses drew near to the deep darkness whe
 
 ## v22
 
-And Jehovah said to Moses, Thus shall you say to the children of Israel, You yourselves have seen that I have spoken to you from heaven.
+And Jehovah said to Moses, [[Exodus-20.fn#Footnote 22.1 — Thus|Thus]] shall you say to the children of Israel, You yourselves have seen that I have [[Exodus-20.fn#Footnote 22.2 — spoken|spoken]] to you from heaven.
 
 ## v23
 
-You shall not make other gods besides Me; gods of silver or gods of gold, you shall not make for yourselves.
+You shall not make other gods besides Me; gods of [[Exodus-20.fn#Footnote 23.1 — silver|silver]] or gods of [[Exodus-20.fn#Footnote 23.1 — silver|gold]], you shall not make for yourselves.
 
 ## v24
 
-An altar of earth you shall make for Me, and you shall sacrifice on it your burnt offerings and your peace offerings, your sheep and your oxen; in every place where I cause My name to be remembered, I will come to you and bless you.
+An [[Exodus-20.fn#Footnote 24.1 — altar|altar]] of [[Exodus-20.fn#Footnote 24.2 — earth|earth]] you shall make for Me, and you shall [[Exodus-20.fn#Footnote 24.1 — altar|sacrifice]] on it your burnt offerings and your peace offerings, your sheep and your oxen; in every place where I cause My [[Exodus-20.fn#Footnote 24.3 — name|name]] to be remembered, I will [[Exodus-20.fn#Footnote 24.4 — come|come]] to you and [[Exodus-20.fn#Footnote 24.4 — come|bless]] you.
 
 ## v25
 
-And if you make Me an altar of stone, you shall not build it of hewn stones; for if you lift up your tool upon them, you have polluted them.
+And if you make Me an altar of stone, you shall not build it of hewn stones; for if you lift up your tool upon them, you have [[Exodus-20.fn#Footnote 25.1 — polluted|polluted]] them.
 
 ## v26
 
-Neither shall you go up by steps to My altar, so that your nakedness may not be uncovered on it.
+Neither shall you go up by [[Exodus-20.fn#Footnote 26.1 — steps|steps]] to My altar, so that your [[Exodus-20.fn#Footnote 26.2 — nakedness|nakedness]] may not be uncovered on it.

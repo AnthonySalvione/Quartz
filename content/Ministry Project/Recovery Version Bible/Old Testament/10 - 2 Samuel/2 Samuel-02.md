@@ -12,7 +12,7 @@ And David brought up his men who were with him, each man with his household; and
 
 ## v4
 
-And the men of Judah came, and there they anointed David king over the house of Judah. And they told David, saying, It is the men of Jabesh-gilead who have buried Saul.
+And the men of Judah came, and there they [[2 Samuel-02.fn#Footnote 4.1 — anointed|anointed]] David king over the house of Judah. And they told David, saying, It is the men of Jabesh-gilead who have buried Saul.
 
 ## v5
 
@@ -20,7 +20,7 @@ And David sent messengers to the men of Jabesh-gilead and said to them, Blessed 
 
 ## v6
 
-And now may Jehovah show kindness and faithfulness to you; and I also will repay you for this good, because you have done this thing.
+And now may Jehovah show kindness and faithfulness to you; and I also will [[2 Samuel-02.fn#Footnote 6.1 — repay|repay]] you for this good, because you have done this thing.
 
 ## v7
 
@@ -28,7 +28,7 @@ And now may your hands be strong, and you be valiant; for your master Saul is de
 
 ## v8
 
-But Abner the son of Ner, the captain of Saul’s army, took Ish-bosheth the son of Saul and brought him over to Mahanaim.
+But Abner the son of Ner, the captain of Saul’s army, took [[2 Samuel-02.fn#Footnote 8.1 — Ish-bosheth|Ish-bosheth]] the son of Saul and brought him over to Mahanaim.
 
 ## v9
 
@@ -112,7 +112,7 @@ And Joab blew the trumpet, and all the people stood still; and they pursued afte
 
 ## v29
 
-And Abner and his men walked all that night through the Arabah. And they crossed over the Jordan and went through all the Bithron, and they came to Mahanaim.
+And Abner and his men walked all that night through the Arabah. And they crossed over the Jordan and went through all the [[2 Samuel-02.fn#Footnote 29.1 — Bithron|Bithron]], and they came to Mahanaim.
 
 ## v30
 

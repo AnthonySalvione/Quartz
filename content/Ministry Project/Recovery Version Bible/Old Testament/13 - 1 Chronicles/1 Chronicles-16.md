@@ -8,7 +8,7 @@ And when David finished offering up the burnt offerings and the peace offerings,
 
 ## v3
 
-And he apportioned to everyone of Israel, to both men and women, to each one, a loaf of bread and a portion of meat and a cake of raisins.
+And he apportioned to everyone of Israel, to both men and women, to each one, a loaf of bread and a [[1 Chronicles-16.fn#Footnote 3.1 — portion|portion]] of meat and a cake of raisins.
 
 ## v4
 
@@ -84,7 +84,7 @@ The portion of your inheritance;
 ## v19
 
 When you were men few in number,  
-Indeed very few and strangers in the land;
+Indeed very few and strangers in [[1 Chronicles-16.fn#Footnote 19.1 — the|the]] land;
 
 ## v20
 
@@ -181,11 +181,11 @@ So there before the Ark of the Covenant of Jehovah he left Asaph and his brother
 
 ## v38
 
-As well as Obed-edom and his sixty-eight relatives, with Obed-edom the son of Jeduthun and Hosah as gatekeepers;
+As well as Obed-edom and his sixty-eight [[1 Chronicles-16.fn#Footnote 38.1 — relatives|relatives]], with Obed-edom the son of Jeduthun and Hosah as gatekeepers;
 
 ## v39
 
-And Zadok the priest and his brothers the priests before the tabernacle of Jehovah in the high place which was at Gibeon,
+And Zadok the priest and his brothers the priests before the [[1 Chronicles-16.fn#Footnote 39.1 — tabernacle|tabernacle]] of Jehovah in the high place which was at Gibeon,
 
 ## v40
 

@@ -1,0 +1,41 @@
+---
+Category:
+  - Praise of the Lord
+Subcategory:
+  - His Suffering
+Lyricist:
+  - M. W. Biggs
+  - Witness Lee
+Melody:
+  - Margaret Jenkins Harris
+---
+# Lord, we treasure with affection
+## Stanza 1
+Lord, we treasure with affection
+All Thy path of sorrow here,
+And those closing scenes of anguish
+To our hearts Thyself endear.
+
+## Chorus
+	Praise Thee, Savior! Praise Thee, Savior!
+	Praise Thee, Lord, for sinners slain!
+	Give Thee glory! Give Thee glory!
+	Give Thee glory for the life we gain!
+
+## Stanza 2
+Deep Thy sorrow then, Lord Jesus,
+Deeper far than thought can reach;
+Grief intense and suff’rings holy,
+Far beyond all tongues to teach.
+
+## Stanza 3
+None could follow there, blest Savior,
+When redemption’s work was done;
+For those suff’rings, deep, unfathomed,
+Were, Lord Jesus, Thine alone!
+
+## Stanza 4
+Thou didst measure then sin’s distance,
+Darkness, wrath and curse were Thine;
+Man-betrayed, by God forsaken;
+Thus we learn Thy love divine!

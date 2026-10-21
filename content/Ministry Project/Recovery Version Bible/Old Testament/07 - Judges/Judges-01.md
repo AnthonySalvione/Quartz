@@ -1,6 +1,6 @@
 ## v1
 
-And after the death of Joshua, the children of Israel inquired of Jehovah, saying, Who will go up for us first against the Canaanites, in order to fight against them?
+[[Judges-01.fn#Footnote 1.1 — And|And]] after the death of Joshua, the children of Israel [[Judges-01.fn#Footnote 1.2 — inquired|inquired]] of Jehovah, saying, Who will go up for us first against the Canaanites, in order to fight against them?
 
 ## v2
 
@@ -64,7 +64,7 @@ And the children of the Kenite, Moses’ father-in-law, went up from the city of
 
 ## v17
 
-Then Judah went with Simeon his brother and struck the Canaanites who inhabited Zephath; and they utterly destroyed it. And they called the name of the city Hormah.
+Then Judah went with Simeon his brother and struck the Canaanites who inhabited Zephath; and they [[Judges-01.fn#Footnote 17.1 — utterly|utterly]] destroyed it. And they called the name of the city [[Judges-01.fn#Footnote 17.2 — Hormah|Hormah]].
 
 ## v18
 
@@ -76,11 +76,11 @@ And Jehovah was with Judah. And they took possession of the hill country, but th
 
 ## v20
 
-And they gave Hebron to Caleb, as Moses had spoken; and he dispossessed the three sons of Anak from there.
+And they gave Hebron to Caleb, as Moses had spoken; and he dispossessed the three sons of [[Judges-01.fn#Footnote 20.1 — Anak|Anak]] from there.
 
 ## v21
 
-But the Jebusites, who dwelt in Jerusalem, the children of Benjamin did not dispossess; thus the Jebusites dwell with the children of Benjamin in Jerusalem to this day.
+[[Judges-01.fn#Footnote 21.1 — But|But]] the Jebusites, who dwelt in Jerusalem, the children of Benjamin did not dispossess; thus the Jebusites dwell with the children of Benjamin in Jerusalem to this day.
 
 ## v22
 

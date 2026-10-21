@@ -29,7 +29,7 @@ Saul has struck down his thousands; / But David, his ten thousands.
 
 ## v8
 
-And Saul was very angry, for this saying displeased him. And he said, They ascribe ten thousands to David, but to me they ascribe only thousands. And what more can he have except the kingdom?
+And Saul was very [[1 Samuel-18.fn#Footnote 8.1 — angry|angry]], for this saying displeased him. And he said, They ascribe ten thousands to David, but to me they ascribe only thousands. And what more can he have except the kingdom?
 
 ## v9
 
@@ -41,7 +41,7 @@ Then on the next day an evil spirit from God rushed upon Saul; and he prophesied
 
 ## v11
 
-Then Saul threw the spear; for he said, I will strike David even to the wall. But David fled from him twice.
+Then Saul threw the spear; for he said, I will strike David even to the wall. But David [[1 Samuel-18.fn#Footnote 11.1 — fled|fled]] from him twice.
 
 ## v12
 

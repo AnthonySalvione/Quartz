@@ -7,11 +7,11 @@ And Agrippa said to Paul, You are permitted to speak for yourself. Then Paul str
 
 ## v2
 
-Concerning all the things which I am accused of by the Jews, King Agrippa, I consider myself blessed that I am to make my defense before you today,
+Concerning all the things which I am accused of by the Jews, King Agrippa, I consider myself blessed that I am to make my [[Acts-26.fn#Footnote 2.1 — defense|defense]] before you today,
 
 ## v3
 
-Especially since you are familiar with all the customs and questions among the Jews; therefore I beg you to listen to me patiently.
+[[Acts-26.fn#Footnote 3.1 — Especially|Especially]] since you are [[Acts-26.fn#Footnote 3.2 — familiar|familiar]] with all the customs and questions among the Jews; therefore I beg you to listen to me patiently.
 
 ## v4
 
@@ -19,7 +19,7 @@ The manner of my life from youth, which from the beginning was among my own nati
 
 ## v5
 
-Since they have previously known about me from the first, if they were willing to testify, that according to the strictest sect of our religion I lived as a Pharisee.
+Since they have previously known about me from the first, if they were willing to testify, that according to the strictest sect of our [[Acts-26.fn#Footnote 5.1 — religion|religion]] I lived as a Pharisee.
 
 ## v6
 
@@ -43,7 +43,7 @@ Which also I did in Jerusalem; and I both shut up many of the saints in prison w
 
 ## v11
 
-And in all the synagogues I punished them often and tried to compel them to blaspheme; and being exceedingly enraged at them, I persecuted them even as far as foreign cities.
+And in all the synagogues I punished them often and tried to compel them to blaspheme; and being exceedingly enraged at them, I persecuted them even as far as [[Acts-26.fn#Footnote 11.1 — foreign|foreign]] cities.
 
 ## v12
 
@@ -55,15 +55,15 @@ At midday, on the way, I saw, O king, a light from heaven beyond the brightness 
 
 ## v14
 
-And when we all fell to the ground, I heard a voice saying to me in the Hebrew dialect, Saul, Saul, why are you persecuting Me? It is hard for you to kick against the goads.
+And when we all fell to the ground, I heard a voice saying to me in the Hebrew dialect, Saul, Saul, why are you persecuting [[Acts-26.fn#Footnote 14.1 — Me|Me]]? It is hard for you to kick against the [[Acts-26.fn#Footnote 14.2 — goads|goads]].
 
 ## v15
 
-And I said, Who are You, Lord? And the Lord said, I am Jesus, whom you persecute.
+And I said, Who are You, [[Acts-26.fn#Footnote 15.1 — Lord|Lord]]? And the Lord said, I am Jesus, whom you persecute.
 
 ## v16
 
-But rise up and stand on your feet; for I have appeared to you for this purpose, to appoint you as a minister and a witness both of the things in which you have seen Me and of the things in which I will appear to you;
+But rise up and stand on your feet; for I have appeared to you for this purpose, to appoint you as a minister and a [[Acts-26.fn#Footnote 16.1 — witness|witness]] both of the things in which you have seen Me and of the things in which I will appear to you;
 
 ## v17
 
@@ -71,11 +71,11 @@ Delivering you from the people and from the Gentiles, to whom I send you,
 
 ## v18
 
-To open their eyes, to turn them from darkness to light and from the authority of Satan to God, that they may receive forgiveness of sins and an inheritance among those who have been sanctified by faith in Me.
+To [[Acts-26.fn#Footnote 18.1 — open|open]] their eyes, to turn them from [[Acts-26.fn#Footnote 18.2 — darkness|darkness]] to light and from the [[Acts-26.fn#Footnote 18.3 — authority|authority]] of Satan [[Acts-26.fn#Footnote 18.4 — to|to]] God, that they may receive [[Acts-26.fn#Footnote 18.5 — forgiveness|forgiveness]] of sins and [[Acts-26.fn#Footnote 18.6 — an|an]] inheritance among those who have been [[Acts-26.fn#Footnote 18.7 — sanctified|sanctified]] by faith in Me.
 
 ## v19
 
-Therefore, King Agrippa, I was not disobedient to the heavenly vision,
+Therefore, King Agrippa, I was not disobedient to the heavenly [[Acts-26.fn#Footnote 19.1 — vision|vision]],
 
 ## v20
 
@@ -87,15 +87,15 @@ Because of these things certain Jews seized me while I was in the temple and tri
 
 ## v22
 
-Having therefore obtained the help which is from God, I have stood unto this day, testifying both to small and great, saying nothing apart from the things which both the prophets and Moses have said would take place,
+Having therefore obtained the [[Acts-26.fn#Footnote 22.1 — help|help]] which is from God, I have stood unto this day, testifying both to small and great, saying nothing apart from the things which both the prophets and Moses have said would take place,
 
 ## v23
 
-That the Christ would suffer and that He, being the first to rise from the dead, would announce light both to the people and to the Gentiles.
+That the Christ would suffer and that He, being the first [[Acts-26.fn#Footnote 23.1 — to|to]] rise from the dead, would announce [[Acts-26.fn#Footnote 23.2 — light|light]] both to the people and to the Gentiles.
 
 ## v24
 
-And as he was saying these things in his defense, Festus said with a loud voice, You are insane, Paul. Much learning is driving you insane.
+And as he was saying these things in his defense, Festus said with a loud voice, You are [[Acts-26.fn#Footnote 24.1 — insane|insane]], Paul. Much learning is driving you [[Acts-26.fn#Footnote 24.1 — insane|insane]].
 
 ## v25
 
@@ -103,7 +103,7 @@ But Paul said, I am not insane, most excellent Festus, but I am uttering words o
 
 ## v26
 
-For the king knows about these things, to whom also I speak freely, for I am persuaded that none of these things have escaped his notice; for this has not been done in a corner.
+For the king [[Acts-26.fn#Footnote 26.1 — knows|knows]] about these things, to whom also I speak [[Acts-26.fn#Footnote 26.2 — freely|freely]], for I am persuaded that none of these things have escaped his notice; for this has not been done in a corner.
 
 ## v27
 
@@ -127,4 +127,4 @@ And when they had withdrawn, they spoke to one another, saying, This man is doin
 
 ## v32
 
-And Agrippa said to Festus, This man could have been released, had he not appealed to Caesar.
+And Agrippa said to Festus, [[Acts-26.fn#Footnote 32.1 — This|This]] man could have been released, had he [[Acts-26.fn#Footnote 32.2 — not|not]] appealed to Caesar.

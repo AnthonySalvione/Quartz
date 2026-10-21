@@ -20,7 +20,7 @@ But afterward David’s heart smote him because he had cut off a corner of Saul�
 
 ## v6
 
-And he said to his men, Jehovah forbid that I should do such a thing to my lord, Jehovah’s anointed, as stretch out my hand against him; for he is Jehovah’s anointed.
+And he said to his men, [[1 Samuel-24.fn#Footnote 6.1 — Jehovah|Jehovah]] forbid that I should do such a thing to my lord, Jehovah’s anointed, as stretch out my hand against him; for he is Jehovah’s anointed.
 
 ## v7
 
@@ -36,7 +36,7 @@ And David said to Saul, Why do you listen to men’s words that say, David now s
 
 ## v10
 
-Just this day your eyes have seen that Jehovah gave you into my hand today in the cave. And though some told me to kill you, I spared you and said, I will not stretch out my hand against my lord, for he is Jehovah’s anointed.
+Just this day your eyes have seen that Jehovah gave you into my hand today in the cave. And though some told me to kill you, [[1 Samuel-24.fn#Footnote 10.1 — I|I]] spared you and said, I will not stretch out my hand against my lord, for he is Jehovah’s anointed.
 
 ## v11
 
@@ -60,7 +60,7 @@ May Jehovah then be Judge and decide between me and you. And may He see and plea
 
 ## v16
 
-And when David finished speaking these words to Saul, Saul said, Is this your voice, my son David? And Saul lifted up his voice and wept.
+And when David finished speaking these words to Saul, Saul said, Is this your voice, my son David? And Saul lifted up his voice and [[1 Samuel-24.fn#Footnote 16.1 — wept|wept]].
 
 ## v17
 

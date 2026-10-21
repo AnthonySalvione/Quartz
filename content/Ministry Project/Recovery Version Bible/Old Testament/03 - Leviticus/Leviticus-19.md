@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Speak to all the assembly of the children of Israel, and say to them, You shall be holy, for I, Jehovah your God, am holy.
+Speak to all the assembly of the children of Israel, and say to them, You shall be [[Leviticus-19.fn#Footnote 2.1 — holy|holy]], for I, Jehovah your God, am holy.
 
 ## v3
 
@@ -16,11 +16,11 @@ Do not turn to idols or make for yourselves molten gods; I am Jehovah your God.
 
 ## v5
 
-And when you offer a sacrifice of peace offerings to Jehovah, you shall sacrifice it so that you may be accepted.
+And when you offer a sacrifice of [[Leviticus-19.fn#Footnote 5.1 — peace|peace]] offerings to Jehovah, you shall sacrifice it so that you may be accepted.
 
 ## v6
 
-It shall be eaten on the day you sacrifice it, or on the next day, but what remains until the third day shall be burned with fire.
+It shall be eaten on the [[Leviticus-19.fn#Footnote 6.1 — day|day]] you sacrifice it, or on the next day, but what remains until the third day shall be burned with fire.
 
 ## v7
 
@@ -32,7 +32,7 @@ And whoever eats it will bear his own iniquity, because he has profaned what is 
 
 ## v9
 
-And when you reap the harvest of your land, you shall not wholly reap the corners of your field, nor shall you gather the gleanings of your harvest.
+And when you [[Leviticus-19.fn#Footnote 9.1 — reap|reap]] the harvest of your land, you shall not wholly reap the corners of your field, nor shall you gather the gleanings of your harvest.
 
 ## v10
 
@@ -60,7 +60,7 @@ You shall do no unrighteousness in judgment; you shall not respect the person of
 
 ## v16
 
-You shall not go around as a slanderer among your people, nor shall you profit by the blood of your neighbor; I am Jehovah.
+You shall not go around as a slanderer among your people, nor shall you [[Leviticus-19.fn#Footnote 16.1 — profit|profit]] by the blood of your neighbor; I am Jehovah.
 
 ## v17
 
@@ -72,7 +72,7 @@ You shall not take vengeance nor bear any grudge against the children of your pe
 
 ## v19
 
-You shall keep My statutes. You shall not let your cattle breed with a different kind; you shall not sow your field with two kinds of seed, nor shall a garment made of two kinds of material come upon you.
+You shall keep My statutes. You shall not let your [[Leviticus-19.fn#Footnote 19.1 — cattle|cattle]] breed with a different kind; you shall not sow your field with two kinds of [[Leviticus-19.fn#Footnote 19.1 — cattle|seed]], nor shall a [[Leviticus-19.fn#Footnote 19.1 — cattle|garment]] made of two kinds of material come upon you.
 
 ## v20
 
@@ -88,7 +88,7 @@ And the priest shall make expiation for him before Jehovah with the ram of the t
 
 ## v23
 
-And when you come into the land and plant all kinds of trees for food, then you shall count their fruit as unharvestable. Three years it shall be unharvestable to you; it shall not be eaten.
+And when you come into the land and plant all kinds of trees for food, then you shall count their fruit as [[Leviticus-19.fn#Footnote 23.1 — unharvestable|unharvestable]]. Three years it shall be [[Leviticus-19.fn#Footnote 23.1 — unharvestable|unharvestable]] to you; it shall not be eaten.
 
 ## v24
 

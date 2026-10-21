@@ -1,6 +1,12 @@
-david dong
-hymn 559, 1273
-
+---
+speaker:
+  - David Dong
+hymn:
+  - "[[Hymn-559]]"
+  - "[[Hymn-1273]]"
+reading:
+class: Body of Christ
+---
 GROUP D COME PRESENT TO US.
 
 Ezra - this week we come to the overcomers in the church. Last week was the degredation. The degredation is something that cuts off the root of the life of the church. This is a black background, but among this background there is a call to overcome. In this message there are different meanings of overcoming. Revelation 2:17 - the degredation of the church to overcome. 1 John 5 - overcoming is something that we begin with our beliving. When we believe inthe Lord we ovefcame the world. This whole world is against the Lord. In the second message, we see four aspects of the overcomers. Rev. 19 - the dead overcomers are the manchild, this manchild is to fight against satan in the heavenlies. The living overcomers become the fristfruits, these firstfruits are for the satisfaction of god, and all overcomers become the bride of christ to be in the millenial kingdom. We are also the warriars to fight against Satan at the end ofth age.

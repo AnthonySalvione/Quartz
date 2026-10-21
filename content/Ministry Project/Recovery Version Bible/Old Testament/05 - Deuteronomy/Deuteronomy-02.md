@@ -24,7 +24,7 @@ You shall buy food from them with money, that you may eat; and you shall also ob
 
 ## v7
 
-For Jehovah your God has blessed you in all your doings; He knows your journeying through this great wilderness. These forty years Jehovah your God has been with you; you have not lacked a thing.
+For Jehovah your God has [[Deuteronomy-02.fn#Footnote 7.1 — blessed|blessed]] you in all your doings; He knows your journeying through this great wilderness. These forty years Jehovah your God has been with you; you have not lacked a thing.
 
 ## v8
 
@@ -36,11 +36,11 @@ And Jehovah said to me, Do not harass Moab, nor engage them in battle, for I wil
 
 ## v10
 
-(The Emim dwelt there before that, a people great and numerous and as tall as the Anakim;
+(The Emim dwelt there before that, a people great and numerous and as tall as the [[Deuteronomy-02.fn#Footnote 10.1 — Anakim|Anakim]];
 
 ## v11
 
-They were considered Rephaim, as were the Anakim, but the Moabites called them Emim.
+They were considered [[Deuteronomy-02.fn#Footnote 11.1 — Rephaim|Rephaim]], as were the Anakim, but the Moabites called them Emim.
 
 ## v12
 
@@ -52,7 +52,7 @@ Now rise up and cross over the brook Zered. And we crossed over the brook Zered.
 
 ## v14
 
-And the time that we spent in going from Kadesh-barnea until we crossed over the brook Zered was thirty-eight years, until all the generation of the men of war was consumed from the midst of the camp, as Jehovah had sworn to them.
+And the time that we spent in going from Kadesh-barnea until we crossed over the brook Zered was thirty-eight years, until all the generation of the men of war was [[Deuteronomy-02.fn#Footnote 14.1 — consumed|consumed]] from the midst of the camp, as Jehovah had sworn to them.
 
 ## v15
 
@@ -92,7 +92,7 @@ And the Avvim, who dwell in the villages as far as Gaza, the Caphtorim, who came
 
 ## v24
 
-Rise up; set out and cross over the valley of the Arnon. See, I have given into your hand Sihon the Amorite, the king of Heshbon, and his land. Begin to possess it, and engage him in battle.
+Rise up; set out and cross over the valley of the Arnon. See, I have given into your hand Sihon the [[Deuteronomy-02.fn#Footnote 24.1 — Amorite|Amorite]], the king of Heshbon, and his land. Begin to possess it, and engage him in battle.
 
 ## v25
 
@@ -116,7 +116,7 @@ As the children of Esau, who dwell in Seir, and the Moabites, who dwell in Ar, d
 
 ## v30
 
-But Sihon the king of Heshbon would not let us pass through his land, for Jehovah your God hardened his spirit and made his heart obstinate for the purpose of delivering him into your hand, as he is today.
+But Sihon the king of Heshbon would not let us pass through [[Deuteronomy-02.fn#Footnote 30.1 — his|his]] land, for Jehovah your God [[Deuteronomy-02.fn#Footnote 30.2 — hardened|hardened]] his spirit and made his heart obstinate for the purpose of delivering him into your hand, as he is today.
 
 ## v31
 
@@ -132,7 +132,7 @@ And Jehovah our God delivered him up before us, and we slew him and his sons and
 
 ## v34
 
-And we captured all his cities at that time, and utterly destroyed every city — men, women, and children; we left no survivors.
+And we captured all his cities at that time, and [[Deuteronomy-02.fn#Footnote 34.1 — utterly|utterly]] destroyed every city — men, women, and children; we left no survivors.
 
 ## v35
 

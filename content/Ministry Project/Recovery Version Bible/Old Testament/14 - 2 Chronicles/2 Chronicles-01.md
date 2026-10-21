@@ -1,6 +1,6 @@
 ## v1
 
-And Solomon the son of David was strengthened in his kingdom, and Jehovah his God was with him and magnified him exceedingly.
+And [[2 Chronicles-01.fn#Footnote 1.1 — Solomon|Solomon]] the son of David was strengthened in his kingdom, and Jehovah his God was with him and magnified him exceedingly.
 
 ## v2
 
@@ -48,7 +48,7 @@ Wisdom and knowledge are granted to you; and riches and wealth and honor I will 
 
 ## v13
 
-Then Solomon came to Jerusalem from the high place that was in Gibeon, from the Tent of Meeting; and he reigned over Israel.
+Then Solomon came to Jerusalem [[2 Chronicles-01.fn#Footnote 13.1 — from|from]] the high place that was in Gibeon, from the Tent of Meeting; and he reigned over Israel.
 
 ## v14
 

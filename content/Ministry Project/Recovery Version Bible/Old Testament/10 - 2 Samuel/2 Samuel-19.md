@@ -40,7 +40,7 @@ But Absalom, whom we anointed as king over us, is dead in battle. Now therefore 
 
 ## v11
 
-And King David sent word to Zadok and to Abiathar the priests, saying, Speak to the elders of Judah, saying, Why are you the last to bring the king back to his house, seeing that the word of all Israel has come to the king?
+And King David sent word to Zadok and to Abiathar the priests, saying, Speak to the elders of Judah, saying, Why are you the last to bring the king back to his house, seeing that the word of all Israel has come to the [[2 Samuel-19.fn#Footnote 11.1 — king|king]]?
 
 ## v12
 
@@ -104,7 +104,7 @@ And he said, O my lord the king, my servant deceived me; for your servant said, 
 
 ## v27
 
-And Ziba slandered your servant before my lord the king. But my lord the king is like an angel of God; therefore do what is good in your sight.
+And [[2 Samuel-19.fn#Footnote 27.1 — Ziba|Ziba]] slandered your servant before my lord the king. But my lord the king is like an angel of God; therefore do what is good in your sight.
 
 ## v28
 

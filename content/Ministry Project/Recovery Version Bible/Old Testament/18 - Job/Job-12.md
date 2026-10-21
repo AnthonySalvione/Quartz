@@ -15,8 +15,8 @@ And who does not know things like these?
 
 ## v4
 
-I have become a laughingstock to my friends,  
-I, who have called out to God and He answers me.  
+I have become a laughingstock to [[Job-12.fn#Footnote 4.1 — my|my]] friends,  
+I, who have called out to God and He answers [[Job-12.fn#Footnote 4.2 — me|me]].  
 The righteous man, the perfect man, is a laughingstock.
 
 ## v5
@@ -28,7 +28,7 @@ It is prepared for those whose foot slips.
 
 The tents of robbers prosper,  
 And those who provoke God have security,  
-Those who carry their god in their own might.
+Those who carry their god in their own [[Job-12.fn#Footnote 6.1 — might|might]].
 
 ## v7
 
@@ -47,8 +47,8 @@ That the hand of Jehovah has done this,
 
 ## v10
 
-In whose hand is the life of every living thing  
-And the breath of all flesh of man?
+In whose hand is the [[Job-12.fn#Footnote 10.1 — life|life]] of every living thing  
+And the [[Job-12.fn#Footnote 10.1 — life|breath]] of all flesh of man?
 
 ## v11
 

@@ -3,7 +3,7 @@ Author: Luke
 ---
 ## v1
 
-And Jesus, full of the Holy Spirit, returned from the Jordan and was led by the Spirit in the wilderness, while being tempted for forty days by the devil.
+And [[Luke-04.fn#Footnote 1.1 — Jesus|Jesus]], full of the [[Luke-04.fn#Footnote 1.2 — Holy|Holy]] Spirit, returned from the Jordan and was led [[Luke-04.fn#Footnote 1.3 — by|by]] the Spirit in the wilderness, while being tempted for forty days by the devil.
 
 ## v2
 
@@ -15,7 +15,7 @@ And the devil said to Him, If You are the Son of God, speak to this stone that i
 
 ## v4
 
-And Jesus answered him, It is written, “Man shall not live on bread alone.”
+And Jesus answered him, It is written, “Man shall not live on bread [[Luke-04.fn#Footnote 4.1 — alone|alone]].”
 
 ## v5
 
@@ -23,7 +23,7 @@ And he led Him up and showed Him all the kingdoms of the inhabited earth in a mo
 
 ## v6
 
-And the devil said to Him, To You I will give all this authority and their glory, because to me it has been delivered, and to whomever I want I give it.
+And the devil said to Him, To You I will give all this authority and their glory, because to me it [[Luke-04.fn#Footnote 6.1 — has|has]] been delivered, and to whomever I want I give it.
 
 ## v7
 
@@ -31,11 +31,11 @@ If You therefore worship before me, it shall all be Yours.
 
 ## v8
 
-And Jesus answered and said to him, It is written, “You shall worship the Lord your God, and Him only shall you serve.”
+And Jesus answered and said to [[Luke-04.fn#Footnote 8.1 — him|him]], It is written, “You shall worship the Lord your God, and Him only shall you [[Luke-04.fn#Footnote 8.2 — serve|serve]].”
 
 ## v9
 
-And he led Him into Jerusalem and set Him on the wing of the temple and said to Him, If You are the Son of God, cast Yourself down from here;
+And he led Him into Jerusalem and set Him on the [[Luke-04.fn#Footnote 9.1 — wing|wing]] of the temple and said to Him, If You are the Son of God, cast Yourself down from here;
 
 ## v10
 
@@ -47,19 +47,19 @@ And on their hands they shall bear You up, lest You strike Your foot against a s
 
 ## v12
 
-And Jesus answered and said to him, It is said, “You shall not test the Lord your God.”
+And Jesus answered and said to him, It is said, “You shall not [[Luke-04.fn#Footnote 12.1 — test|test]] the Lord your God.”
 
 ## v13
 
-And when the devil had concluded every temptation, he went away from Him until an opportune time.
+And when the devil had concluded every temptation, he went away from Him [[Luke-04.fn#Footnote 13.1 — until|until]] an opportune time.
 
 ## v14
 
-And Jesus returned in the power of the Spirit into Galilee. And reports about Him went out through all the surrounding region.
+And Jesus returned in the power of the [[Luke-04.fn#Footnote 14.1 — Spirit|Spirit]] into Galilee. And [[Luke-04.fn#Footnote 14.2 — reports|reports]] about Him went out through all the surrounding region.
 
 ## v15
 
-And He taught in their synagogues and was glorified by all.
+And He [[Luke-04.fn#Footnote 15.1 — taught|taught]] in their [[Luke-04.fn#Footnote 15.2 — synagogues|synagogues]] and was [[Luke-04.fn#Footnote 15.3 — glorified|glorified]] by all.
 
 ## v16
 
@@ -71,11 +71,11 @@ And the scroll of the prophet Isaiah was handed to Him. And He unrolled the scro
 
 ## v18
 
-“The Spirit of the Lord is upon Me, because He has anointed Me to announce the gospel to the poor; He has sent Me to proclaim release to the captives, and recovery of sight to the blind, to send away in release those who are oppressed,
+“The [[Luke-04.fn#Footnote 18.1 — Spirit|Spirit]] of the Lord is upon Me, because He has anointed Me to [[Luke-04.fn#Footnote 18.2 — announce|announce]] the gospel to the [[Luke-04.fn#Footnote 18.3 — poor|poor]]; He has sent Me to proclaim release to the [[Luke-04.fn#Footnote 18.4 — captives|captives]], and [[Luke-04.fn#Footnote 18.5 — recovery|recovery]] of sight to the [[Luke-04.fn#Footnote 18.6 — blind|blind]], to send away in release those who are [[Luke-04.fn#Footnote 18.7 — oppressed|oppressed]],
 
 ## v19
 
-To proclaim the acceptable year of the Lord, the year of jubilee.”
+To proclaim the [[Luke-04.fn#Footnote 19.1 — acceptable|acceptable]] year of the Lord, the year of jubilee.”
 
 ## v20
 
@@ -87,7 +87,7 @@ And He began to say to them, Today this Scripture has been fulfilled in your hea
 
 ## v22
 
-And all bore witness to Him and marveled at the words of grace proceeding out of His mouth, and they said, Is not this Joseph’s son?
+And all bore witness to Him and marveled at the [[Luke-04.fn#Footnote 22.1 — words|words]] of grace proceeding out of His mouth, and they said, Is not this [[Luke-04.fn#Footnote 22.2 — Joseph’s|Joseph’s]] son?
 
 ## v23
 
@@ -103,7 +103,7 @@ But in truth I say to you, There were many widows in Israel in the days of Elija
 
 ## v26
 
-And to none of them was Elijah sent, except to the city of Sarepta of Sidon, to a woman who was a widow.
+And to none of them was Elijah sent, except to the city of [[Luke-04.fn#Footnote 26.1 — Sarepta|Sarepta]] of Sidon, to a [[Luke-04.fn#Footnote 26.2 — woman|woman]] who was a widow.
 
 ## v27
 
@@ -119,7 +119,7 @@ And they rose up and cast Him out of the city and led Him to the brow of the hil
 
 ## v30
 
-But He, passing through their midst, went away.
+But He, [[Luke-04.fn#Footnote 30.1 — passing|passing]] through their midst, went away.
 
 ## v31
 
@@ -127,15 +127,15 @@ And He came down to Capernaum, a city of Galilee. And He taught them on the Sabb
 
 ## v32
 
-And they were astounded at His teaching, because His word was with authority.
+And they were astounded at His teaching, because His word was with [[Luke-04.fn#Footnote 32.1 — authority|authority]].
 
 ## v33
 
-And in the synagogue there was a man who had a spirit of an unclean demon, and he cried out with a loud voice,
+And in the synagogue there was a man who had a [[Luke-04.fn#Footnote 33.1 — spirit|spirit]] of an unclean demon, and he cried out with a loud voice,
 
 ## v34
 
-Ah! What do we have to do with You, Jesus, Nazarene? Have You come to destroy us? I know who You are — the Holy One of God.
+[[Luke-04.fn#Footnote 34.1 — Ah|Ah]]! [[Luke-04.fn#Footnote 34.2 — What|What]] do we have to do with You, Jesus, Nazarene? Have You come to destroy us? I know who You are — the Holy One of God.
 
 ## v35
 
@@ -143,15 +143,15 @@ And Jesus rebuked him, saying, Be quiet and come out from him. And throwing him 
 
 ## v36
 
-And amazement came upon all, and they spoke to one another, saying, What is this word? For with authority and power He orders the unclean spirits, and they come out.
+And amazement came upon all, and they spoke to one another, saying, What is this word? For with [[Luke-04.fn#Footnote 36.1 — authority|authority]] and power He orders the unclean spirits, and they come out.
 
 ## v37
 
-And reports went out concerning Him into every place of the surrounding region.
+And [[Luke-04.fn#Footnote 37.1 — reports|reports]] went out concerning Him into every place of the surrounding region.
 
 ## v38
 
-And He rose up and went from the synagogue and entered into the house of Simon. And Simon’s mother-in-law was suffering with a high fever, and they asked Him concerning her.
+And He rose up and went from the synagogue and entered into the house of Simon. And [[Luke-04.fn#Footnote 38.1 — Simon’s|Simon’s]] mother-in-law was [[Luke-04.fn#Footnote 38.2 — suffering|suffering]] with a high [[Luke-04.fn#Footnote 38.3 — fever|fever]], and they asked Him concerning her.
 
 ## v39
 
@@ -171,8 +171,8 @@ And when day came, He departed and went into a deserted place. And the crowds so
 
 ## v43
 
-But He said to them, I must announce the gospel of the kingdom of God to the other cities also, because for this I was sent.
+But He said to them, I must [[Luke-04.fn#Footnote 43.1 — announce|announce]] the gospel of the [[Luke-04.fn#Footnote 43.2 — kingdom|kingdom]] of God to the other cities also, because for [[Luke-04.fn#Footnote 43.3 — this|this]] I was sent.
 
 ## v44
 
-And He preached in the synagogues of Judea.
+And He [[Luke-04.fn#Footnote 44.1 — preached|preached]] in the synagogues of [[Luke-04.fn#Footnote 44.2 — Judea|Judea]].

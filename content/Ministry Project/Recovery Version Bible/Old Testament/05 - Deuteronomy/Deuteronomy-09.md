@@ -4,7 +4,7 @@ Hear, O Israel! You are about to cross over the Jordan this day in order to ente
 
 ## v2
 
-A people great and tall, the children of the Anakim, whom you know about and of whom you have heard it said, Who can stand before the children of Anak?
+A people great and tall, the children of the [[Deuteronomy-09.fn#Footnote 2.1 — Anakim|Anakim]], whom you know about and of whom you have heard it said, Who can stand before the children of Anak?
 
 ## v3
 
@@ -24,7 +24,7 @@ Know therefore that it is not because of your righteousness that Jehovah your Go
 
 ## v7
 
-Remember; do not forget that you made Jehovah your God furious in the wilderness; from the day that you came forth from the land of Egypt until you came to this place, you have been rebellious against Jehovah.
+Remember; do not forget that [[Deuteronomy-09.fn#Footnote 7.1 — you|you]] made Jehovah your God furious in the wilderness; from the day that you came forth from the land of Egypt until you came to this place, you have been rebellious against Jehovah.
 
 ## v8
 

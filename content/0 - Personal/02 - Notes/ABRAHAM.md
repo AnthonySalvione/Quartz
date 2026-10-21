@@ -1,0 +1,1 @@
+Wow, in chapter 18 of Genesis, when Jehovah was 'negotiating' with Abraham about saving Lot... the Lord only responded and said he would do what Abraham had proposed - 50, 40, 10, whatever number Abraham mentioned, that was as far as God would go. God is bound to our prayers.

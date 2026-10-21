@@ -1,6 +1,6 @@
 ## v1
 
-And when Adoni-zedek the king of Jerusalem heard that Joshua had taken Ai and had utterly destroyed it (as he had done to Jericho and its king, so did he do to Ai and its king), and that the inhabitants of Gibeon had made peace with Israel and were among them,
+[[Joshua-10.fn#Footnote 1.1 — And|And]] when Adoni-zedek the king of Jerusalem heard that Joshua had taken Ai and had utterly destroyed it (as he had done to Jericho and its king, so did he do to Ai and its king), and that the inhabitants of Gibeon had made peace with Israel and were among them,
 
 ## v2
 

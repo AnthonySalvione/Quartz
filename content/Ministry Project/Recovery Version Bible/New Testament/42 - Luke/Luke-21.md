@@ -3,11 +3,11 @@ Author: Luke
 ---
 ## v1
 
-And He looked up and saw the rich casting their gifts into the treasury.
+And He looked up and [[Luke-21.fn#Footnote 1.1 — saw|saw]] the rich casting their [[Luke-21.fn#Footnote 1.2 — gifts|gifts]] into the treasury.
 
 ## v2
 
-And He saw a certain impoverished widow casting there two lepta.
+And He saw a certain [[Luke-21.fn#Footnote 2.1 — impoverished|impoverished]] widow casting there two lepta.
 
 ## v3
 
@@ -19,7 +19,7 @@ For all these out of their surplus have cast in something into the gifts, but sh
 
 ## v5
 
-And as some were speaking about the temple, that it was adorned with beautiful stones and consecrated offerings, He said,
+[[Luke-21.fn#Footnote 5.1 — And|And]] as some were speaking about the temple, that it was adorned with [[Luke-21.fn#Footnote 5.2 — beautiful|beautiful]] stones and [[Luke-21.fn#Footnote 5.3 — consecrated|consecrated]] offerings, He said,
 
 ## v6
 
@@ -63,7 +63,7 @@ For I will give you a mouth and wisdom which all those opposing you will not be 
 
 ## v16
 
-And you will be delivered up even by parents and brothers and relatives and friends, and they will put some of you to death.
+And you will be [[Luke-21.fn#Footnote 16.1 — delivered|delivered]] up even by parents and brothers and relatives and friends, and they will put some of you to death.
 
 ## v17
 
@@ -75,11 +75,11 @@ Yet a hair of your head shall by no means perish.
 
 ## v19
 
-In your endurance you will possess your souls.
+In your endurance you will [[Luke-21.fn#Footnote 19.1 — possess|possess]] your souls.
 
 ## v20
 
-But when you see Jerusalem surrounded by armies, then know that her desolation has drawn near.
+[[Luke-21.fn#Footnote 20.1 — But|But]] when you see Jerusalem surrounded by armies, then know that her desolation has drawn near.
 
 ## v21
 
@@ -91,11 +91,11 @@ Because these are days of vengeance, that all the things written may be fulfille
 
 ## v23
 
-Woe to those who are pregnant and to those nursing babies in those days, for there will be great distress upon the land and wrath to this people.
+Woe to those who are pregnant and to those nursing babies in those days, for there will be great [[Luke-21.fn#Footnote 23.1 — distress|distress]] upon the land and wrath to this people.
 
 ## v24
 
-And they will fall by the edge of the sword and will be led captive into all the nations; and Jerusalem will be trampled by the Gentiles until the times of the Gentiles are fulfilled.
+And they will fall by the edge of the sword and will be led captive into all the [[Luke-21.fn#Footnote 24.1 — nations|nations]]; and Jerusalem will be trampled by the Gentiles until the times of the Gentiles are fulfilled.
 
 ## v25
 
@@ -103,7 +103,7 @@ And there will be signs in the sun and moon and stars, and upon the earth anguis
 
 ## v26
 
-Men fainting from fear and expectation of the things coming upon the inhabited earth, for the powers of the heavens will be shaken.
+Men [[Luke-21.fn#Footnote 26.1 — fainting|fainting]] from fear and expectation of the things coming upon the [[Luke-21.fn#Footnote 26.2 — inhabited|inhabited]] earth, for the powers of the heavens will be shaken.
 
 ## v27
 
@@ -111,7 +111,7 @@ And then they will see the Son of Man coming in a cloud with power and great glo
 
 ## v28
 
-And when these things begin to happen, stand erect and lift up your heads, because your redemption is drawing near.
+[[Luke-21.fn#Footnote 28.1 — And|And]] when these things begin to happen, stand erect and lift up your heads, because your redemption is drawing near.
 
 ## v29
 
@@ -135,15 +135,15 @@ Heaven and earth shall pass away, but My words shall by no means pass away.
 
 ## v34
 
-But take heed to yourselves lest perhaps your hearts be weighed down with debauchery and drunkenness and the anxieties of life, and that day come upon you suddenly as a snare.
+But take heed to yourselves lest perhaps your hearts be weighed down with [[Luke-21.fn#Footnote 34.1 — debauchery|debauchery]] and drunkenness and the anxieties of life, and that day come upon you [[Luke-21.fn#Footnote 34.2 — suddenly|suddenly]] as a snare.
 
 ## v35
 
-For it will come in upon all those dwelling on the face of all the earth.
+For it will come in upon all those [[Luke-21.fn#Footnote 35.1 — dwelling|dwelling]] on the face of all the earth.
 
 ## v36
 
-But be watchful at every time, beseeching that you would prevail to escape all these things which are about to happen and stand before the Son of Man.
+But be watchful at every time, beseeching that you would [[Luke-21.fn#Footnote 36.1 — prevail|prevail]] to [[Luke-21.fn#Footnote 36.2 — escape|escape]] [[Luke-21.fn#Footnote 36.3 — all|all]] these things which are about to happen and [[Luke-21.fn#Footnote 36.4 — stand|stand]] before the Son of Man.
 
 ## v37
 

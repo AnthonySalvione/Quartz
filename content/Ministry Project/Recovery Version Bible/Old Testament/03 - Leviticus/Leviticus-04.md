@@ -4,19 +4,19 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Speak to the children of Israel, saying, If anyone sins without intent in any of the things which Jehovah has commanded not to be done and does any one of them,
+Speak to the children of Israel, saying, If anyone [[Leviticus-04.fn#Footnote 2.1 — sins|sins]] without intent in any of the things which Jehovah has commanded not to be done and does any one of them,
 
 ## v3
 
-If the anointed priest sins so as to bring guilt on the people, then let him present a bull of the herd without blemish to Jehovah for a sin offering for his sin that he committed.
+If the anointed priest sins so as to bring guilt on the people, then let him present a [[Leviticus-04.fn#Footnote 3.1 — bull|bull]] of the herd without [[Leviticus-04.fn#Footnote 3.2 — blemish|blemish]] to Jehovah [[Leviticus-04.fn#Footnote 3.3 — for|for]] a [[Leviticus-04.fn#Footnote 3.4 — sin|sin]] offering for his sin that he committed.
 
 ## v4
 
-And he shall bring the bull to the entrance of the Tent of Meeting before Jehovah, and he shall lay his hand on the head of the bull and slaughter the bull before Jehovah.
+And he shall bring the bull to the entrance of the Tent of Meeting before Jehovah, and he shall [[Leviticus-04.fn#Footnote 4.1 — lay|lay]] his hand on the head of the bull and slaughter the bull [[Leviticus-04.fn#Footnote 4.2 — before|before]] Jehovah.
 
 ## v5
 
-And the anointed priest shall take some of the blood of the bull and bring it into the Tent of Meeting,
+And the anointed priest shall take some of the [[Leviticus-04.fn#Footnote 5.1 — blood|blood]] of the bull and bring it into the Tent of Meeting,
 
 ## v6
 
@@ -28,7 +28,7 @@ And the priest shall put some of the blood on the horns of the altar of fragrant
 
 ## v8
 
-And all the fat of the bull of the sin offering he shall take off from it: the fat that covers the inward parts and all the fat that is upon the inward parts,
+And all the [[Leviticus-04.fn#Footnote 8.1 — fat|fat]] of the bull of the sin offering he shall take off from it: the fat that covers the inward parts and all the fat that is upon the inward parts,
 
 ## v9
 
@@ -36,15 +36,15 @@ And the two kidneys and the fat that is on them, which is on the loins, and the 
 
 ## v10
 
-As it is taken off from the ox of the sacrifice of peace offerings; and the priest shall burn them on the altar of burnt offering.
+As it is taken off from the ox of the sacrifice of peace offerings; and the priest shall [[Leviticus-04.fn#Footnote 10.1 — burn|burn]] them on the altar of burnt offering.
 
 ## v11
 
-And the skin of the bull and all its flesh with its head and with its legs, and the rest of its inward parts and its dung,
+And the [[Leviticus-04.fn#Footnote 11.1 — skin|skin]] of the bull and all its flesh with its head and with its legs, and the rest of its inward parts and its dung,
 
 ## v12
 
-That is, all the rest of the bull he shall bring out to a clean place outside the camp, where the ashes are poured out, and burn it on wood with fire; where the ashes are poured out it shall be burned.
+That is, all the rest of the bull he shall bring out to a clean place outside the camp, where the [[Leviticus-04.fn#Footnote 12.1 — ashes|ashes]] are poured out, and burn it on wood with fire; where the ashes are poured out it shall be burned.
 
 ## v13
 
@@ -56,7 +56,7 @@ And when the sin which they have committed becomes known, the congregation shall
 
 ## v15
 
-And the elders of the assembly shall lay their hands on the head of the bull before Jehovah, and one shall slaughter the bull before Jehovah.
+And the [[Leviticus-04.fn#Footnote 15.1 — elders|elders]] of the assembly shall lay their hands on the head of the bull before Jehovah, and one shall slaughter the bull before Jehovah.
 
 ## v16
 

@@ -4,7 +4,7 @@ And the rulers of the people dwelt in Jerusalem, and the rest of the people cast
 
 ## v2
 
-And the people blessed all the men who offered themselves willingly to dwell in Jerusalem.
+And the people [[Nehemiah-11.fn#Footnote 2.1 — blessed|blessed]] all the men who offered themselves willingly to dwell in Jerusalem.
 
 ## v3
 

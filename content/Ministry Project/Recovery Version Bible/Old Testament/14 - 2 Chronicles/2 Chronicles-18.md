@@ -8,7 +8,7 @@ And after a number of years he came down to Ahab in Samaria. And Ahab slaughtere
 
 ## v3
 
-And Ahab the king of Israel said to Jehoshaphat the king of Judah, Will you go with me to Ramoth-gilead? And Jehoshaphat said to him, I will be as you are; my people will be as your people; we will be with you in battle.
+And Ahab the king of Israel said to Jehoshaphat the king of Judah, Will you go with me to Ramoth-gilead? And [[2 Chronicles-18.fn#Footnote 3.1 — Jehoshaphat|Jehoshaphat]] said to him, I will be as you are; my people will be as your people; we will be with you in battle.
 
 ## v4
 

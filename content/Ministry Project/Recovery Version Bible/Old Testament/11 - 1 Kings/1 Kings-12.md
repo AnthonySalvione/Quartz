@@ -12,7 +12,7 @@ And they sent word to him and called him), Jeroboam and all the congregation of 
 
 ## v4
 
-Your father made our yoke hard. Now therefore make the hard service of your father and his heavy yoke that he put upon us lighter, and we will serve you.
+Your father made our [[1 Kings-12.fn#Footnote 4.1 — yoke|yoke]] hard. Now therefore make the hard service of your father and his heavy yoke that he put upon us lighter, and we will serve you.
 
 ## v5
 
@@ -104,11 +104,11 @@ And Jeroboam said in his heart, Now the kingdom will return to the house of Davi
 
 ## v27
 
-If this people go up to make sacrifices in the house of Jehovah at Jerusalem, the heart of this people will return to their lord, to Rehoboam the king of Judah; and they will slay me and return to Rehoboam the king of Judah.
+If this people go up to make sacrifices in the house of Jehovah at Jerusalem, the heart of this people will [[1 Kings-12.fn#Footnote 27.1 — return|return]] to their lord, to Rehoboam the king of Judah; and they will slay me and return to Rehoboam the king of Judah.
 
 ## v28
 
-And the king took counsel and made two calves of gold. And he said to them, It is too much for you to go up to Jerusalem. Behold your gods, O Israel, who brought you up out of the land of Egypt!
+And the king took counsel and made two [[1 Kings-12.fn#Footnote 28.1 — calves|calves]] of gold. And he said to them, It is too much for you to go up to Jerusalem. Behold your gods, O Israel, who brought you up out of the land of Egypt!
 
 ## v29
 
@@ -116,11 +116,11 @@ And he set one in Bethel, and he put the other one in Dan.
 
 ## v30
 
-And this thing became a sin; and the people went to worship the one as far as Dan.
+And this thing became a [[1 Kings-12.fn#Footnote 30.1 — sin|sin]]; and the people went to worship the one as far as Dan.
 
 ## v31
 
-And he made a house of high places and appointed priests from among the people who were not from the sons of Levi.
+And he made a [[1 Kings-12.fn#Footnote 31.1 — house|house]] of [[1 Kings-12.fn#Footnote 31.2 — high|high]] places and appointed priests from among the people who were not from the sons of Levi.
 
 ## v32
 

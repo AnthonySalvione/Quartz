@@ -28,7 +28,7 @@ And when Hiram heard Solomon’s words, he rejoiced greatly and said, Blessed be
 
 ## v8
 
-And Hiram sent word to Solomon, saying, I have heard the message which you have sent me. I will do all your desire concerning cedar timber and cypress timber.
+And Hiram sent word to Solomon, saying, I have heard the message which you have sent me. I will do all your desire concerning [[1 Kings-05.fn#Footnote 8.1 — cedar|cedar]] timber and [[1 Kings-05.fn#Footnote 8.1 — cedar|cypress]] timber.
 
 ## v9
 
@@ -40,7 +40,7 @@ So Hiram gave Solomon cedar timber and cypress timber, all that he desired.
 
 ## v11
 
-And Solomon gave Hiram twenty thousand cors of wheat as food for his household and twenty cors of the finest oil; this did Solomon give to Hiram year by year.
+And Solomon gave Hiram twenty thousand [[1 Kings-05.fn#Footnote 11.1 — cors|cors]] of wheat as food for his household and twenty cors of the finest oil; this did Solomon give to Hiram year by year.
 
 ## v12
 

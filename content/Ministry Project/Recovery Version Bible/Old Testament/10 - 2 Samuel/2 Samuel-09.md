@@ -24,7 +24,7 @@ And Mephibosheth the son of Jonathan, the son of Saul, came to David and fell on
 
 ## v7
 
-And David said to him, Do not be afraid, for I will surely show kindness to you for the sake of Jonathan your father; and I will restore to you all the land of your father Saul, and you will eat food at my table continually.
+And David said to him, Do not be afraid, for I will surely show [[2 Samuel-09.fn#Footnote 7.1 — kindness|kindness]] to you for the sake of Jonathan your father; and I will restore to you all the land of your father Saul, and you will eat food at my table continually.
 
 ## v8
 

@@ -1,0 +1,50 @@
+---
+Category:
+  - Fullness of the Spirit
+Subcategory:
+  - As the Fire
+Lyricist:
+  - Delia T. White
+Melody:
+  - William James Kirkpatrick
+---
+# God Sent His mighty pow'r
+## Stanza 1
+God Sent His mighty pow'r
+To this poor, sinful heart,
+To keep me every hour,
+And needful grace impart;
+And since His Spirit came,
+To take supreme control,
+The love-enkindled flame
+Is burning in my soul.
+
+## Chorus
+	'Tis burning in my soul,
+	'Tis burning in my soul;
+	The fire of heav'nly love is
+	burning in my soul;
+	The Holy Spirit came,
+	All glory to His name!
+	The fire of heav'nly love is
+	burning in my soul.
+
+## Stanza 2
+Before the cross I bow,
+Upon the altar lay
+A willing off'ring now,
+My all from day to day.
+My Savior paid the price,
+My name He sweetly calls;
+Upon the sacrifice
+The fire from heaven falls.
+
+## Stanza 3
+No good that I have done,
+His promise I embrace;
+Accepted in the Son,
+He saves me by His grace.
+All glory be to God!
+Let hallelujahs roll;
+His love is shed abroad,
+The fire is in my soul.

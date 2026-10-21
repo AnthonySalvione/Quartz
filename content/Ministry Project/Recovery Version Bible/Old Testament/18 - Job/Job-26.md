@@ -15,7 +15,7 @@ And have plentifully declared sound knowledge!
 ## v4
 
 To whom have you uttered words?  
-And whose spirit has come forth from you?
+And whose [[Job-26.fn#Footnote 4.1 — spirit|spirit]] has come forth from you?
 
 ## v5
 
@@ -24,13 +24,13 @@ Beneath the waters, and those who inhabit them.
 
 ## v6
 
-Sheol is naked before Him,  
-And Abaddon has no covering.
+[[Job-26.fn#Footnote 6.1 — Sheol|Sheol]] is naked before Him,  
+And [[Job-26.fn#Footnote 6.2 — Abaddon|Abaddon]] has no covering.
 
 ## v7
 
 He stretches out the north over the void;  
-He hangs the earth upon nothing.
+He hangs the earth upon [[Job-26.fn#Footnote 7.1 — nothing|nothing]].
 
 ## v8
 
@@ -55,11 +55,11 @@ And were astounded at His rebuke.
 ## v12
 
 By His power He stilled the sea,  
-And by His understanding He struck down Rahab.
+And by His understanding He struck down [[Job-26.fn#Footnote 12.1 — Rahab|Rahab]].
 
 ## v13
 
-By His Spirit the heavens became beauty;  
+By His [[Job-26.fn#Footnote 13.1 — Spirit|Spirit]] the heavens became beauty;  
 His hand pierced the fleeing serpent.
 
 ## v14

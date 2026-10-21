@@ -8,11 +8,11 @@ For if you refuse to let them go and still retain them,
 
 ## v3
 
-Then the hand of Jehovah is going to be on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very severe pestilence.
+Then the hand of Jehovah is going to be on your livestock which are in the field, on the horses, on the donkeys, on the camels, on the herds, and on the flocks with a very severe [[Exodus-09.fn#Footnote 3.1 — pestilence|pestilence]].
 
 ## v4
 
-And Jehovah will make a distinction between the livestock of Israel and the livestock of Egypt, so that nothing will die of all that belongs to the children of Israel.
+And Jehovah will make a [[Exodus-09.fn#Footnote 4.1 — distinction|distinction]] between the livestock of Israel and the livestock of Egypt, so that nothing will die of all that belongs to the children of Israel.
 
 ## v5
 
@@ -28,7 +28,7 @@ And Pharaoh sent to inquire, and indeed there was not so much as one of the live
 
 ## v8
 
-Then Jehovah said to Moses and to Aaron, Take handfuls of ashes from a furnace, and let Moses sprinkle it toward heaven in the sight of Pharaoh.
+Then Jehovah said to Moses and to Aaron, Take handfuls of [[Exodus-09.fn#Footnote 8.1 — ashes|ashes]] from a furnace, and let Moses sprinkle it toward heaven in the sight of Pharaoh.
 
 ## v9
 
@@ -44,7 +44,7 @@ And the magicians could not stand before Moses because of the boils, for the boi
 
 ## v12
 
-And Jehovah hardened Pharaoh’s heart, and he did not listen to them, just as Jehovah had spoken to Moses.
+And Jehovah [[Exodus-09.fn#Footnote 12.1 — hardened|hardened]] Pharaoh’s heart, and he did not listen to them, just as Jehovah had spoken to Moses.
 
 ## v13
 
@@ -52,7 +52,7 @@ Then Jehovah said to Moses, Rise up early in the morning, and present yourself b
 
 ## v14
 
-For this time I am going to send all My plagues against you and on your servants and on your people, so that you may know that there is no one like Me in all the earth.
+For this time I am going to send all My plagues against [[Exodus-09.fn#Footnote 14.1 — you|you]] and on your servants and on your people, so that you may know that there is no one like Me in all the earth.
 
 ## v15
 
@@ -60,7 +60,7 @@ For if by now I had stretched out My hand and struck you and your people with pe
 
 ## v16
 
-But indeed for this cause I have made you stand, to show you My power and to have My name proclaimed throughout all the earth.
+But indeed for this cause I have [[Exodus-09.fn#Footnote 16.1 — made|made]] you stand, to show you My power and to have My name proclaimed throughout all the earth.
 
 ## v17
 
@@ -68,7 +68,7 @@ You are still exalting yourself against My people by not letting them go.
 
 ## v18
 
-Tomorrow about this time I am going to cause very heavy hail to fall, such as has never occurred in Egypt since the day it was founded even until now.
+Tomorrow about this time I am going to cause very heavy [[Exodus-09.fn#Footnote 18.1 — hail|hail]] to fall, such as has never occurred in Egypt since the day it was founded even until now.
 
 ## v19
 
@@ -108,7 +108,7 @@ And Pharaoh sent a messenger and called for Moses and Aaron; and he said to them
 
 ## v28
 
-Entreat Jehovah, for there has been enough of God’s thunder and hail; and I will let you go, and you shall stay no longer.
+Entreat Jehovah, for there has been enough of God’s thunder and hail; and [[Exodus-09.fn#Footnote 28.1 — I|I]] will let you go, and you shall stay no longer.
 
 ## v29
 

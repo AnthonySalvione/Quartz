@@ -8,7 +8,7 @@ And the name of his firstborn son was Joel, and the name of his second was Abija
 
 ## v3
 
-But his sons did not follow in his ways, but turned aside after unjust gain and took bribes and perverted justice.
+But his sons did [[1 Samuel-08.fn#Footnote 3.1 — not|not]] follow in his ways, but turned aside after unjust gain and took bribes and perverted justice.
 
 ## v4
 
@@ -16,7 +16,7 @@ Then all the elders of Israel gathered together and came to Samuel at Ramah.
 
 ## v5
 
-And they said to him, You are now old, and your sons do not follow in your ways. Appoint now for us a king to judge us like all the nations.
+And they said to him, You are now old, and your sons do not follow in your ways. Appoint now for us a king to judge us like all the [[1 Samuel-08.fn#Footnote 5.1 — nations|nations]].
 
 ## v6
 
@@ -24,7 +24,7 @@ But the matter displeased Samuel when they said, Give us a king to judge us. The
 
 ## v7
 
-And Jehovah said to Samuel, Listen to the voice of the people according to all that they have said to you; for it is not you whom they have rejected, but they have rejected Me from being King over them.
+And Jehovah said to Samuel, Listen to the voice of the people according to all that they have said to you; for it is not you whom they have rejected, but they have [[1 Samuel-08.fn#Footnote 7.1 — rejected|rejected]] Me from being King over them.
 
 ## v8
 
@@ -84,4 +84,4 @@ And Samuel heard all the words of the people, and he spoke them in the hearing o
 
 ## v22
 
-Then Jehovah said to Samuel, Listen to their voice, and appoint a king to them. And Samuel said to the men of Israel, Go, each one to his city.
+Then Jehovah said to Samuel, Listen to their voice, and [[1 Samuel-08.fn#Footnote 22.1 — appoint|appoint]] a king to them. And Samuel said to the men of Israel, Go, each one to his city.

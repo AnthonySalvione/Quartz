@@ -1,10 +1,10 @@
 ## v1
 
-And this is what you shall do to them to sanctify them to serve Me as priests: take one bull of the herd and two rams without blemish,
+And this is what you shall do to them to [[Exodus-29.fn#Footnote 1.1 — sanctify|sanctify]] them to serve Me as priests: take one [[Exodus-29.fn#Footnote 1.2 — bull|bull]] of the herd and two [[Exodus-29.fn#Footnote 1.2 — bull|rams]] without blemish,
 
 ## v2
 
-And unleavened bread and unleavened cakes mingled with oil and unleavened wafers anointed with oil — you shall make them of fine wheat flour.
+And unleavened [[Exodus-29.fn#Footnote 2.1 — bread|bread]] and unleavened cakes [[Exodus-29.fn#Footnote 2.2 — mingled|mingled]] with oil and unleavened wafers anointed with oil — you shall make them of fine wheat flour.
 
 ## v3
 
@@ -12,19 +12,19 @@ And you shall put them into one basket and present them in the basket with the b
 
 ## v4
 
-And you shall bring Aaron and his sons near to the entrance of the Tent of Meeting, and wash them with water.
+And you shall bring Aaron and his sons near to the entrance of the Tent of Meeting, and [[Exodus-29.fn#Footnote 4.1 — wash|wash]] them with water.
 
 ## v5
 
-And you shall take the garments and clothe Aaron with the tunic and the robe of the ephod and the ephod and the breastplate, and gird him with the skillfully woven band of the ephod;
+And you shall take the garments and [[Exodus-29.fn#Footnote 5.1 — clothe|clothe]] Aaron with the tunic and the robe of the ephod and the ephod and the breastplate, and gird him with the skillfully woven band of the ephod;
 
 ## v6
 
-And you shall place the turban on his head and put the holy crown on the turban.
+And you shall place the turban on his head and put the holy [[Exodus-29.fn#Footnote 6.1 — crown|crown]] on the turban.
 
 ## v7
 
-Then you shall take the anointing oil and pour it on his head and anoint him.
+Then you shall take the [[Exodus-29.fn#Footnote 7.1 — anointing|anointing]] oil and pour it on his head and anoint him.
 
 ## v8
 
@@ -36,23 +36,23 @@ And you shall gird them with girding sashes, Aaron and his sons, and bind high h
 
 ## v10
 
-And you shall present the bull before the Tent of Meeting, and Aaron and his sons shall lay their hands on the head of the bull.
+And you shall present the bull before the Tent of Meeting, and Aaron and his sons shall [[Exodus-29.fn#Footnote 10.1 — lay|lay]] their hands on the head of the bull.
 
 ## v11
 
-And you shall slaughter the bull before Jehovah at the entrance of the Tent of Meeting.
+And you shall [[Exodus-29.fn#Footnote 11.1 — slaughter|slaughter]] the bull before Jehovah at the entrance of the Tent of Meeting.
 
 ## v12
 
-And you shall take some of the blood of the bull and put some of it on the horns of the altar with your finger, and all the rest of the blood you shall pour out at the base of the altar.
+And you shall take some of the [[Exodus-29.fn#Footnote 12.1 — blood|blood]] of the bull and put some of it on the horns of the altar with your finger, and all the rest of the blood you shall pour out at the base of the altar.
 
 ## v13
 
-And you shall take all the fat that covers the inward parts and the appendage on the liver and the two kidneys and the fat that is on them, and burn them on the altar.
+And you shall take all the [[Exodus-29.fn#Footnote 13.1 — fat|fat]] that covers the inward parts and the appendage on the liver and the two kidneys and the fat that is on them, and [[Exodus-29.fn#Footnote 13.2 — burn|burn]] them on the altar.
 
 ## v14
 
-But the flesh of the bull and its skin and its dung you shall burn with fire outside the camp; it is a sin offering.
+But the flesh of the bull and its skin and its dung you shall burn with fire outside the camp; it is a [[Exodus-29.fn#Footnote 14.1 — sin|sin]] offering.
 
 ## v15
 
@@ -60,7 +60,7 @@ And you shall also take the one ram, and Aaron and his sons shall lay their hand
 
 ## v16
 
-And you shall slaughter the ram, and you shall take its blood and sprinkle it on and around the altar.
+And you shall slaughter the ram, and you shall take its [[Exodus-29.fn#Footnote 16.1 — blood|blood]] and sprinkle it on and around the altar.
 
 ## v17
 
@@ -68,7 +68,7 @@ Then you shall cut the ram into its pieces and wash its inward parts and its leg
 
 ## v18
 
-And you shall burn the whole ram on the altar; it is a burnt offering to Jehovah; it is a satisfying fragrance, an offering by fire to Jehovah.
+And you shall burn the whole ram on the altar; it is a [[Exodus-29.fn#Footnote 18.1 — burnt|burnt]] offering to Jehovah; it is a [[Exodus-29.fn#Footnote 18.2 — satisfying|satisfying]] fragrance, an offering by fire to Jehovah.
 
 ## v19
 
@@ -76,39 +76,39 @@ And you shall take the other ram, and Aaron and his sons shall lay their hands o
 
 ## v20
 
-Then you shall slaughter the ram and take some of its blood and put it on the lobe of Aaron’s right ear and on the lobe of the right ear of his sons and on the thumb of their right hand and on the big toe of their right foot, and sprinkle the rest of the blood on and around the altar.
+Then you shall slaughter the ram and take some of its blood and put it on the lobe of Aaron’s right [[Exodus-29.fn#Footnote 20.1 — ear|ear]] and on the lobe of the right ear of his sons and on the thumb of their right [[Exodus-29.fn#Footnote 20.1 — ear|hand]] and on the big toe of their right [[Exodus-29.fn#Footnote 20.1 — ear|foot]], and sprinkle the rest of the blood on and around the altar.
 
 ## v21
 
-And you shall take some of the blood that is on the altar and some of the anointing oil, and sprinkle it on Aaron and on his garments, and on his sons and on his sons’ garments with him; and he and his garments shall be sanctified, as well as his sons and his sons’ garments with him.
+And you shall take some of the [[Exodus-29.fn#Footnote 21.1 — blood|blood]] that is on the altar and some of the [[Exodus-29.fn#Footnote 21.1 — blood|anointing]] oil, and sprinkle it on Aaron and on his garments, and on his sons and on his sons’ garments with him; and he and his garments shall be sanctified, as well as his sons and his sons’ garments with him.
 
 ## v22
 
-You shall also take the fat from the ram, that is, the fat tail and the fat that covers the inward parts and the appendage of the liver and the two kidneys with the fat that is on them and the right thigh (for it is a ram of consecration),
+You shall also take the fat from the ram, that is, the fat tail and the fat that covers the [[Exodus-29.fn#Footnote 22.1 — inward|inward]] parts and the appendage of the liver and the two kidneys with the fat that is on them and the right thigh (for it is a ram of consecration),
 
 ## v23
 
-And one loaf of bread and one cake of oiled bread and one wafer out of the basket of unleavened bread that is before Jehovah;
+And one loaf of [[Exodus-29.fn#Footnote 23.1 — bread|bread]] and one cake of oiled bread and one wafer out of the basket of unleavened bread that is before Jehovah;
 
 ## v24
 
-And you shall put all these in the palms of Aaron and in the palms of his sons, and wave them as a wave offering before Jehovah.
+And you shall put all these in the palms of Aaron and in the palms of his sons, and wave them as a [[Exodus-29.fn#Footnote 24.1 — wave|wave]] offering before Jehovah.
 
 ## v25
 
-And you shall take them from their hands and burn them on the altar upon the burnt offering for a satisfying fragrance before Jehovah; it is an offering by fire to Jehovah.
+And you shall [[Exodus-29.fn#Footnote 25.1 — take|take]] them from their hands and burn them on the altar upon the burnt offering for a satisfying fragrance before Jehovah; it is an offering by fire to Jehovah.
 
 ## v26
 
-And you shall take the breast of the ram of Aaron’s consecration and wave it as a wave offering before Jehovah; and it shall be your portion.
+And you shall take the [[Exodus-29.fn#Footnote 26.1 — breast|breast]] of the ram of Aaron’s consecration and wave it as a wave offering before Jehovah; and it shall be [[Exodus-29.fn#Footnote 26.2 — your|your]] portion.
 
 ## v27
 
-And you shall sanctify the breast of the wave offering and the thigh of the heave offering which was waved and which was heaved up from the ram of consecration, from that which is for Aaron and from that which is for his sons.
+And you shall sanctify the breast of the wave offering and the thigh of the [[Exodus-29.fn#Footnote 27.1 — heave|heave]] offering which was waved and which was heaved up from the ram of consecration, from that which is for Aaron and from that which is for his sons.
 
 ## v28
 
-And it shall become a perpetual statute for Aaron and his sons to be observed by the children of Israel, for it is a heave offering; and it shall be a heave offering from the children of Israel from the sacrifices of their peace offerings, their heave offering to Jehovah.
+And it shall become a perpetual statute for Aaron and his sons to be observed by the children of Israel, for it is a heave offering; and it shall be a heave offering from the children of Israel from the sacrifices of their [[Exodus-29.fn#Footnote 28.1 — peace|peace]] offerings, their heave offering to Jehovah.
 
 ## v29
 
@@ -116,23 +116,23 @@ And it shall become a perpetual statute for Aaron and his sons to be observed by
 
 ## v30
 
-One of his sons, who is the priest in his place, shall put them on for seven days when he comes into the Tent of Meeting to minister in the sanctuary.)
+One of his sons, who is the priest in his place, shall put them on for [[Exodus-29.fn#Footnote 30.1 — seven|seven]] days when he comes into the Tent of Meeting to minister in the sanctuary.)
 
 ## v31
 
-And you shall take the ram of consecration and boil its flesh in a holy place.
+And you shall take the ram of consecration and [[Exodus-29.fn#Footnote 31.1 — boil|boil]] its flesh in a holy place.
 
 ## v32
 
-And Aaron and his sons shall eat the flesh of the ram and the bread that is in the basket at the entrance of the Tent of Meeting.
+And Aaron and his sons shall eat the flesh of the ram and the bread that is in the basket at the entrance of the [[Exodus-29.fn#Footnote 32.1 — Tent|Tent]] of Meeting.
 
 ## v33
 
-So they shall eat those things by which expiation was made, to consecrate them and to sanctify them; but a stranger shall not eat them, because they are holy.
+So they shall eat those things by which [[Exodus-29.fn#Footnote 33.1 — expiation|expiation]] was made, to consecrate them and to sanctify them; but a [[Exodus-29.fn#Footnote 33.2 — stranger|stranger]] shall not eat them, because they are holy.
 
 ## v34
 
-And if any of the flesh of the ram of consecration or any of the bread remains until the morning, then you shall burn the remainder with fire; it shall not be eaten, because it is holy.
+And if any of the flesh of the ram of consecration or any of the bread [[Exodus-29.fn#Footnote 34.1 — remains|remains]] until the [[Exodus-29.fn#Footnote 34.2 — morning|morning]], then you shall burn the remainder with fire; it shall not be eaten, because it is holy.
 
 ## v35
 
@@ -140,7 +140,7 @@ And thus you shall do to Aaron and to his sons according to all that I have comm
 
 ## v36
 
-And each day you shall offer a bull as a sin offering for expiation, and you shall cleanse the altar when you make expiation for it; and you shall anoint it to sanctify it.
+And [[Exodus-29.fn#Footnote 36.1 — each|each]] day you shall [[Exodus-29.fn#Footnote 36.2 — offer|offer]] a bull as a sin offering for expiation, and you shall [[Exodus-29.fn#Footnote 36.3 — cleanse|cleanse]] the altar when you make expiation for it; and you shall anoint it to [[Exodus-29.fn#Footnote 36.3 — cleanse|sanctify]] it.
 
 ## v37
 
@@ -148,15 +148,15 @@ Seven days you shall make expiation for the altar and sanctify it, and the altar
 
 ## v38
 
-Now this is what you shall offer on the altar: two lambs a year old, each day continually.
+Now this is what you shall [[Exodus-29.fn#Footnote 38.1 — offer|offer]] on the altar: two lambs a year old, each day continually.
 
 ## v39
 
-The one lamb you shall offer in the morning, and the other lamb you shall offer at twilight.
+The one lamb you shall offer in the morning, and the other lamb you shall offer at [[Exodus-29.fn#Footnote 39.1 — twilight|twilight]].
 
 ## v40
 
-And with the one lamb a tenth of an ephah of fine flour mingled with a fourth of a hin of beaten oil, and a fourth of a hin of wine for a drink offering.
+And with the one lamb a tenth of an ephah of fine flour mingled with a fourth of a hin of beaten oil, and a fourth of a hin of wine for a [[Exodus-29.fn#Footnote 40.1 — drink|drink]] offering.
 
 ## v41
 
@@ -180,4 +180,4 @@ And I will dwell in the midst of the children of Israel, and I will be their God
 
 ## v46
 
-And they shall know that I am Jehovah their God, who brought them out of the land of Egypt, that I might dwell in the midst of them; I am Jehovah their God.
+And they shall know that I am Jehovah their God, who brought them out of the land of Egypt, that I might [[Exodus-29.fn#Footnote 46.1 — dwell|dwell]] in the midst of them; I am Jehovah their God.

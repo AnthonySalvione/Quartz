@@ -4,15 +4,15 @@ And the whole earth had one language and the same speech.
 
 ## v2
 
-And as they journeyed east, they found a plain in the land of Shinar; and they dwelt there.
+And as they journeyed east, they found a plain in the land of [[Genesis-11.fn#Footnote 2.1 — Shinar|Shinar]]; and they dwelt there.
 
 ## v3
 
-And they said to one another, Come, let us make bricks and burn them thoroughly. And they had brick for stone, and they had tar for mortar.
+And they said to one another, Come, let us make [[Genesis-11.fn#Footnote 3.1 — bricks|bricks]] and burn them thoroughly. And they had brick for stone, and they had tar for mortar.
 
 ## v4
 
-And they said, Come, let us build ourselves a city and a tower whose top is in the heavens; and let us make a name for ourselves, lest we be scattered over the surface of the whole earth.
+And they said, Come, let us build ourselves a [[Genesis-11.fn#Footnote 4.1 — city|city]] and a [[Genesis-11.fn#Footnote 4.2 — tower|tower]] whose top is in the heavens; and let us make a [[Genesis-11.fn#Footnote 4.2 — tower|name]] for ourselves, lest we be scattered over the surface of the whole earth.
 
 ## v5
 
@@ -24,7 +24,7 @@ And Jehovah said, Behold, they are one people, and they all have one language; a
 
 ## v7
 
-Come, let Us go down and there confound their language, that they may not understand one another’s speech.
+Come, let [[Genesis-11.fn#Footnote 7.1 — Us|Us]] go down and there [[Genesis-11.fn#Footnote 7.2 — confound|confound]] their language, that they may not understand one another’s speech.
 
 ## v8
 
@@ -32,7 +32,7 @@ So Jehovah scattered them from there over the surface of all the earth, and they
 
 ## v9
 
-Therefore its name was called Babel, because there Jehovah confounded the language of all the earth, and from there Jehovah scattered them over the surface of all the earth.
+Therefore its name was called [[Genesis-11.fn#Footnote 9.1 — Babel|Babel]], because there Jehovah confounded the language of all the earth, and from there Jehovah scattered them over the surface of all the earth.
 
 ## v10
 
@@ -108,11 +108,11 @@ Now these are the generations of Terah. Terah begot Abram, Nahor, and Haran. And
 
 ## v28
 
-And Haran died before his father Terah in the land of his birth, in Ur of the Chaldeans.
+And Haran died before his father Terah in the land of his birth, in [[Genesis-11.fn#Footnote 28.1 — Ur|Ur]] of the [[Genesis-11.fn#Footnote 28.2 — Chaldeans|Chaldeans]].
 
 ## v29
 
-And Abram and Nahor took wives for themselves: The name of Abram’s wife was Sarai, and the name of Nahor’s wife was Milcah, the daughter of Haran, the father of Milcah and the father of Iscah.
+And Abram and Nahor took wives for themselves: The name of Abram’s wife was [[Genesis-11.fn#Footnote 29.1 — Sarai|Sarai]], and the name of Nahor’s wife was Milcah, the daughter of Haran, the father of Milcah and the father of Iscah.
 
 ## v30
 
@@ -120,7 +120,7 @@ And Sarai was barren; she had no child.
 
 ## v31
 
-And Terah took Abram his son and Lot the son of Haran, his son’s son, and Sarai his daughter-in-law, his son Abram’s wife; and they went out together from Ur of the Chaldeans to go to the land of Canaan, but when they came to Haran they settled there.
+And [[Genesis-11.fn#Footnote 31.1 — Terah|Terah]] took Abram his son and Lot the son of Haran, his son’s son, and Sarai his daughter-in-law, his son Abram’s wife; and they went out together from Ur of the Chaldeans to go to the land of Canaan, but when they came to [[Genesis-11.fn#Footnote 31.2 — Haran|Haran]] they settled there.
 
 ## v32
 

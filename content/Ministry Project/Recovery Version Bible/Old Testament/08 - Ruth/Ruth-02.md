@@ -1,14 +1,14 @@
 ## v1
 
-Now Naomi had a relative of her husband’s, a man of great wealth, from Elimelech’s family; and his name was Boaz.
+Now Naomi had a relative of her husband’s, a man of great wealth, from Elimelech’s family; and his name was [[Ruth-02.fn#Footnote 1.1 — Boaz|Boaz]].
 
 ## v2
 
-And Ruth the Moabitess said to Naomi, Let me go to the field and glean among the ears of grain after him in whose sight I find favor. And she said to her, Go, my daughter.
+And Ruth the Moabitess said to Naomi, Let me go to the [[Ruth-02.fn#Footnote 2.1 — field|field]] and [[Ruth-02.fn#Footnote 2.2 — glean|glean]] among the ears of grain after him in whose sight I find favor. And she said to her, Go, my daughter.
 
 ## v3
 
-So she went. And she came and gleaned in the field after the reapers; and she happened to glean in a portion of the field belonging to Boaz, who was from Elimelech’s family.
+So she went. And she came and [[Ruth-02.fn#Footnote 3.1 — gleaned|gleaned]] in the field after the reapers; and she happened to glean in a portion of the field belonging to Boaz, who was from Elimelech’s family.
 
 ## v4
 
@@ -28,11 +28,11 @@ And she said, Let me glean and gather after the reapers among the sheaves. So sh
 
 ## v8
 
-And Boaz said to Ruth, Listen, my daughter. Do not go to glean in another field, and also do not pass from here but stay close to my young women.
+And Boaz said to Ruth, [[Ruth-02.fn#Footnote 8.1 — Listen|Listen]], my daughter. Do not go to glean in another field, and also do not pass from here but stay close to my young women.
 
 ## v9
 
-Keep your eyes on the field that they reap; follow after them. I have charged my young men not to touch you. And when you are thirsty, you shall go to the vessels and drink of what the young men have drawn.
+Keep your eyes on the field that they reap; follow after them. [[Ruth-02.fn#Footnote 9.1 — I|I]] have charged my young men not to touch you. And when you are thirsty, you shall go to the vessels and drink of what the young men have drawn.
 
 ## v10
 
@@ -68,7 +68,7 @@ So she gleaned in the field until evening. And she beat out what she had gleaned
 
 ## v18
 
-And she took it up and went into the city. And her mother-in-law saw what she had gleaned. Ruth also brought out and gave to her what she had left after she had been earlier satisfied.
+And she took it up and went into the city. And her mother-in-law saw what she had gleaned. [[Ruth-02.fn#Footnote 18.1 — Ruth|Ruth]] also brought out and gave to her what she had left after she had been earlier satisfied.
 
 ## v19
 
@@ -76,7 +76,7 @@ And her mother-in-law said to her, Where did you glean today, and where did you 
 
 ## v20
 
-And Naomi said to her daughter-in-law, Blessed be he of Jehovah, whose lovingkindness has not failed for the living and for the dead. And Naomi said to her, The man is close to us; he is one of our kinsmen.
+And Naomi said to her daughter-in-law, Blessed be he of Jehovah, whose lovingkindness has not failed for the living and for the dead. And Naomi said to her, The man is close to us; he is one of our [[Ruth-02.fn#Footnote 20.1 — kinsmen|kinsmen]].
 
 ## v21
 

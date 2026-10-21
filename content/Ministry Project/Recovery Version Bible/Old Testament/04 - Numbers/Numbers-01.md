@@ -1,14 +1,14 @@
 ## v1
 
-Then Jehovah spoke to Moses in the wilderness of Sinai, in the Tent of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying,
+[[Numbers-01.fn#Footnote 1.1 — Then|Then]] Jehovah [[Numbers-01.fn#Footnote 1.2 — spoke|spoke]] to Moses in the wilderness of Sinai, in the [[Numbers-01.fn#Footnote 1.2 — spoke|Tent]] of Meeting, on the first day of the second month, in the second year after they had come out of the land of Egypt, saying,
 
 ## v2
 
-Take the sum of all the assembly of the children of Israel, by their families, by their fathers’ households, according to the number of names, every male, head by head.
+Take the sum of all the assembly of the children of Israel, by their [[Numbers-01.fn#Footnote 2.1 — families|families]], by their fathers’ households, according to the number of names, every male, head by head.
 
 ## v3
 
-From twenty years old and upward, all who are able to go forth for military service in Israel, you and Aaron shall number them by their companies.
+From [[Numbers-01.fn#Footnote 3.1 — twenty|twenty]] years old and upward, all who are able to go forth [[Numbers-01.fn#Footnote 3.2 — for|for]] military service in Israel, you and Aaron shall [[Numbers-01.fn#Footnote 3.3 — number|number]] them by their companies.
 
 ## v4
 
@@ -64,11 +64,11 @@ These are the ones who were called from the assembly, the leaders of the tribes 
 
 ## v17
 
-And Moses and Aaron took these men who had been designated by name.
+And [[Numbers-01.fn#Footnote 17.1 — Moses|Moses]] and Aaron took these men who had been designated by name.
 
 ## v18
 
-And on the first day of the second month they gathered all the assembly together; and they registered themselves by their families, by their fathers’ households, according to the number of names from twenty years old and upward, head by head.
+And on the first day of the second month they gathered all the assembly together; and they [[Numbers-01.fn#Footnote 18.1 — registered|registered]] themselves by their families, by their fathers’ households, according to the number of names from twenty years old and upward, head by head.
 
 ## v19
 
@@ -184,7 +184,7 @@ Even all the numbered men were six hundred three thousand five hundred fifty.
 
 ## v47
 
-But the Levites were not numbered among them by their fathers’ tribe.
+But the [[Numbers-01.fn#Footnote 47.1 — Levites|Levites]] were not numbered among them by their fathers’ tribe.
 
 ## v48
 
@@ -196,11 +196,11 @@ Only the tribe of Levi you shall not number, nor shall you take the sum of them 
 
 ## v50
 
-But you, appoint the Levites over the Tabernacle of the Testimony and over all its furnishings and over all that belongs to it. They shall carry the tabernacle and all its furnishings; and they shall minister to it and shall encamp around the tabernacle.
+But you, appoint the Levites over the [[Numbers-01.fn#Footnote 50.1 — Tabernacle|Tabernacle]] of the Testimony and over all its furnishings and over all that belongs to it. They shall carry the tabernacle and all its furnishings; and they shall minister to it and shall encamp around the tabernacle.
 
 ## v51
 
-And when the tabernacle sets out, the Levites shall take it down; and when the tabernacle encamps, the Levites shall set it up. But the stranger who comes near shall be put to death.
+And when the tabernacle sets out, the Levites shall take it down; and when the tabernacle encamps, the Levites shall set it up. But the [[Numbers-01.fn#Footnote 51.1 — stranger|stranger]] who comes near shall be put to death.
 
 ## v52
 

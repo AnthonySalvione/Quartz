@@ -1,0 +1,17 @@
+views:
+  - type: table
+    name: Table
+    filters:
+      and:
+        - Lyricist == ["Witness Lee"]
+        - file.name.startsWith("Hymn")
+    order:
+      - Lyricist
+    sort:
+      - property: Category
+        direction: DESC
+  - type: cards
+    name: View
+    groupBy:
+      property: Category
+      direction: ASC

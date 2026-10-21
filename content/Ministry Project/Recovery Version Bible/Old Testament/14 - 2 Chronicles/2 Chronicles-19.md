@@ -4,7 +4,7 @@ Then Jehoshaphat the king of Judah returned to his house in Jerusalem in peace.
 
 ## v2
 
-And Jehu the son of Hanani the seer went out to meet him; and he said to King Jehoshaphat, Should you help the wicked and love those who hate Jehovah? Because of this matter wrath has come upon you from Jehovah.
+And Jehu the son of Hanani the seer went out to meet him; and he said to King Jehoshaphat, [[2 Chronicles-19.fn#Footnote 2.1 — Should|Should]] you help the wicked and love those who hate Jehovah? Because of this matter wrath has come upon you from Jehovah.
 
 ## v3
 
@@ -36,7 +36,7 @@ And he commanded them, saying, Thus shall you do in the fear of Jehovah, faithfu
 
 ## v10
 
-And for every dispute that comes to you from among your brothers who dwell in their cities, whether concerning bloodshed or concerning law or commandment, statutes or ordinances, you shall warn them, so that they are not guilty before Jehovah and so that wrath does not come upon you and your brothers. Thus shall you act, and you will not be guilty.
+And for every dispute that comes to you from among your brothers who dwell in their cities, whether concerning bloodshed or concerning [[2 Chronicles-19.fn#Footnote 10.1 — law|law]] or commandment, statutes or ordinances, you shall warn them, so that they are not guilty before Jehovah and so that wrath does not come upon you and your brothers. Thus shall you act, and you will not be guilty.
 
 ## v11
 

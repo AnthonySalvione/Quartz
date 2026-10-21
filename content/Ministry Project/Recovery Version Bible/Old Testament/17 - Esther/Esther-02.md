@@ -24,7 +24,7 @@ Who had been carried away from Jerusalem with the captives who had been carried 
 
 ## v7
 
-And he was foster father to Hadassah, that is, Esther, his uncle’s daughter, for she had neither father nor mother; and the young woman was beautiful in form and appearance. And when her father and mother died, Mordecai took her to himself as his daughter.
+And he was foster father to [[[[Esther-02.fn#Footnote 7.2 — Esther|Esther]]-02.fn#Footnote 7.1 — Hadassah|Hadassah]], that is, Esther, his uncle’s daughter, for she had neither father nor mother; and the young woman was beautiful in form and appearance. And when her father and mother died, Mordecai took her to himself as his daughter.
 
 ## v8
 

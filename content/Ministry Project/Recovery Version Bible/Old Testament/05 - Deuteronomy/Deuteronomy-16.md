@@ -1,6 +1,6 @@
 ## v1
 
-Observe the month of Abib, and hold the Passover to Jehovah your God; for in the month of Abib Jehovah your God brought you out of Egypt by night.
+Observe the month of Abib, and hold the [[Deuteronomy-16.fn#Footnote 1.1 — Passover|Passover]] to Jehovah your God; for in the month of Abib Jehovah your God brought you out of Egypt by night.
 
 ## v2
 
@@ -48,7 +48,7 @@ And you shall remember that you were a slave in Egypt, and you shall keep and do
 
 ## v13
 
-You shall hold the Feast of Tabernacles for seven days after your ingathering from your threshing floor and your winepress.
+You shall hold the Feast of [[Deuteronomy-16.fn#Footnote 13.1 — Tabernacles|Tabernacles]] for seven days after your ingathering from your threshing floor and your winepress.
 
 ## v14
 
@@ -68,7 +68,7 @@ Each man shall give as he is able to give, according to the blessing of Jehovah 
 
 ## v18
 
-You shall appoint for yourself judges and officers in all your cities which Jehovah your God is giving you, according to your tribes; and they shall judge the people with righteous judgment.
+You shall appoint for yourself [[Deuteronomy-16.fn#Footnote 18.1 — judges|judges]] and officers [[Deuteronomy-16.fn#Footnote 18.2 — in|in]] all your cities which Jehovah your God is giving you, according to your tribes; and they shall judge the people with righteous judgment.
 
 ## v19
 
@@ -80,7 +80,7 @@ Righteousness, and only righteousness, shall you pursue, in order that you may l
 
 ## v21
 
-You shall not plant for yourself an Asherah of any kind of tree beside the altar of Jehovah your God, which you will make for yourself;
+You shall not plant for yourself an [[Deuteronomy-16.fn#Footnote 21.1 — Asherah|Asherah]] of any kind of tree beside the [[Deuteronomy-16.fn#Footnote 21.1 — Asherah|altar]] of Jehovah your God, which you will make for yourself;
 
 ## v22
 

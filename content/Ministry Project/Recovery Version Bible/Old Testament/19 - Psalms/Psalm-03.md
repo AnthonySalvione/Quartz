@@ -1,12 +1,15 @@
+> *A Psalm of David, when he fled from Absalom his son
+
+---
 ## v1
 
-Jehovah, how many are my adversaries!  
+[[Psalm-03.fn#Footnote 1.1 — Jehovah|Jehovah]], how many are my adversaries!  
 Many are those who rise up against me!
 
 ## v2
 
 Many are those who say of my soul,  
-There is no salvation for him in God! Selah
+There is no salvation for him in God! [[Psalm-03.fn#Footnote 2.1 — Selah|Selah]]
 
 ## v3
 
@@ -32,7 +35,7 @@ Who have set themselves against me all around.
 
 Arise, O Jehovah;  
 Save me, O my God!  
-Oh that You would strike all my enemies on the cheek;  
+Oh that You would [[Psalm-03.fn#Footnote 7.1 — strike|strike]] all my enemies on the cheek;  
 And break the teeth of the wicked.
 
 ## v8

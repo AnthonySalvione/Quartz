@@ -32,7 +32,7 @@ And Abishai said to David, God has delivered your enemy into your hand today. No
 
 ## v9
 
-But David said to Abishai, Do not destroy him; for who can stretch out his hand against Jehovah’s anointed and be guiltless?
+But David said to Abishai, Do not destroy him; for who can stretch out his hand against Jehovah’s [[1 Samuel-26.fn#Footnote 9.1 — anointed|anointed]] and be guiltless?
 
 ## v10
 
@@ -72,7 +72,7 @@ And he said, Why does my lord pursue after his servant? For what have I done? Or
 
 ## v19
 
-Now therefore let my lord the king hear the words of his servant. If it is Jehovah who has stirred you up against me, let Him accept an offering; but if it is the sons of men, let them be cursed before Jehovah; for they have driven me out today, so that I cannot share in Jehovah’s inheritance, saying, Go, serve other gods.
+Now therefore let my lord the king hear the words of his servant. If it is Jehovah who has stirred you up against me, let Him accept an offering; but if it is the sons of men, let them be cursed before Jehovah; for they have [[1 Samuel-26.fn#Footnote 19.1 — driven|driven]] me out today, so that I cannot share in Jehovah’s inheritance, saying, Go, serve other gods.
 
 ## v20
 

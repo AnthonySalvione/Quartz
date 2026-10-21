@@ -64,7 +64,7 @@ As for the two pillars, the one sea, and the bases which Solomon had made for th
 
 ## v17
 
-The height of one pillar was eighteen cubits, and a bronze capital was upon it; and the height of the capital was three cubits; and a network and pomegranates were upon the capital all around, all of bronze; and the second pillar was like these with a network.
+The height of one [[2 Kings-25.fn#Footnote 17.1 — pillar|pillar]] was eighteen cubits, and a bronze capital was upon it; and the height of the capital was three cubits; and a network and pomegranates were upon the capital all around, all of bronze; and the second pillar was like these with a network.
 
 ## v18
 
@@ -80,7 +80,7 @@ And Nebuzaradan the captain of the bodyguard took them and brought them to the k
 
 ## v21
 
-And the king of Babylon struck them down and put them to death in Riblah, in the land of Hamath; so Judah was carried away into exile out of its land.
+And the king of Babylon struck them down and put them to death in Riblah, in the land of Hamath; so Judah was carried away into [[2 Kings-25.fn#Footnote 21.1 — exile|exile]] out of its land.
 
 ## v22
 

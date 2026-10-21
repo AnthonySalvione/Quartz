@@ -1,10 +1,10 @@
 ## v1
 
-The words of Nehemiah the son of Hacaliah. Now in the month Chislev, in the twentieth year, while I was in Susa the capital,
+The words of [[Nehemiah-01.fn#Footnote 1.1 — Nehemiah|Nehemiah]] the son of Hacaliah. [[Nehemiah-01.fn#Footnote 1.2 — Now|Now]] in the month Chislev, in the twentieth year, while I was in Susa the capital,
 
 ## v2
 
-Hanani, one of my brothers, came, he and some men from Judah; and I asked them about the Jews who had escaped, who were left from the captivity, and about Jerusalem.
+Hanani, one of my brothers, came, he and some men from Judah; and I asked them about the Jews who had escaped, who were left from the captivity, and about [[Nehemiah-01.fn#Footnote 2.1 — Jerusalem|Jerusalem]].
 
 ## v3
 
@@ -24,11 +24,11 @@ Let Your ear be attentive and Your eyes open to hear the prayer of Your servant,
 
 ## v7
 
-We have been most corrupt toward You and have not kept the commandments and the statutes and the ordinances that You commanded Moses Your servant.
+We have been most corrupt toward You and have not kept the [[Nehemiah-01.fn#Footnote 7.1 — commandments|commandments]] and the statutes and the ordinances that You commanded Moses Your servant.
 
 ## v8
 
-Remember now the word that You commanded Moses Your servant, saying, If you are unfaithful, I will scatter you among the peoples;
+Remember now the [[Nehemiah-01.fn#Footnote 8.1 — word|word]] that You commanded Moses Your servant, saying, If you are unfaithful, I will scatter you among the peoples;
 
 ## v9
 

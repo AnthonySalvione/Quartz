@@ -1,10 +1,10 @@
 ## v1
 
-Now there was a man from Benjamin whose name was Kish, the son of Abiel, the son of Zeror, the son of Becorath, the son of Aphiah, a Benjaminite, a man of wealth.
+Now there was a man from Benjamin whose name was Kish, the son of Abiel, the son of Zeror, the son of Becorath, the son of Aphiah, a Benjaminite, a man of [[1 Samuel-09.fn#Footnote 1.1 — wealth|wealth]].
 
 ## v2
 
-And he had a son whose name was Saul, a choice and handsome man; and there was not a man among the children of Israel more handsome than he; from his shoulders and up he was taller than all the people.
+And he had a son whose name was [[1 Samuel-09.fn#Footnote 2.1 — Saul|Saul]], a choice and handsome man; and there was not a man among the children of Israel more handsome than he; from his shoulders and up he was taller than all the people.
 
 ## v3
 

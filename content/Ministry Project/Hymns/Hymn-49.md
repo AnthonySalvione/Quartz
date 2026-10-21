@@ -1,0 +1,40 @@
+---
+Category:
+  - Worship of the Father
+Subcategory:
+  - His Grace in Sonship
+Lyricist:
+  - Samuel Trevor Francis
+Melody:
+  - Samuel Trevor Francis
+---
+# Gracious God, we worship Thee
+## Stanza 1
+Gracious God, we worship Thee,
+Rev'rently we bow the knee;
+Jesus Christ, our only plea:
+Father, we adore Thee.
+
+## Stanza 2
+Vast Thy love, how deep, how wide,
+In the gift of Him who died;
+Righteous claims all satisfied:
+Father, we adore Thee.
+
+## Stanza 3
+Low we bow before Thy face,
+Sons of God, O wondrous place;
+Great the riches of Thy grace:
+Father, we adore Thee.
+
+## Stanza 4
+By Thy Spirit grant that we
+Worshipers in truth may be;
+Praise, as incense sweet to Thee:
+Father, we adore Thee.
+
+## Stanza 5
+Yet again our song we raise,
+Note of deep adoring praise;
+Now, and soon through endless days:
+Father, we adore Thee.

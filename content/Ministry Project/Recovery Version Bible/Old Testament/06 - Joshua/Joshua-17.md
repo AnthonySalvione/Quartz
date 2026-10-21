@@ -8,7 +8,7 @@ Therefore the lot was for the rest of the children of Manasseh according to thei
 
 ## v3
 
-But Zelophehad the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, had no sons, but daughters. And these are the names of his daughters: Mahlah and Noah, Hoglah, Milcah, and Tirzah.
+But Zelophehad the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, had no sons, but [[Joshua-17.fn#Footnote 3.1 — daughters|daughters]]. And these are the names of his daughters: Mahlah and Noah, Hoglah, Milcah, and Tirzah.
 
 ## v4
 

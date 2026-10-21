@@ -1,6 +1,6 @@
 ## v1
 
-And the sons of Reuben the firstborn of Israel (for he was the firstborn; but because he defiled his father’s bed, his birthright was given to the sons of Joseph the son of Israel; but he was not to be enrolled in the genealogy according to the birthright,
+And the sons of [[1 Chronicles-05.fn#Footnote 1.1 — Reuben|Reuben]] the firstborn of Israel (for he was the firstborn; but because he defiled his father’s bed, his birthright was given to the sons of Joseph the son of Israel; but he was not to be enrolled in the genealogy according to the birthright,
 
 ## v2
 
@@ -76,7 +76,7 @@ And they waged war with the Hagarites and Jetur and Naphish and Nodab;
 
 ## v20
 
-And they were helped against them, and the Hagarites were delivered into their hand, as well as all who were with them; for they cried out to God in the battle, and He was entreated for them because they trusted in Him.
+And they were helped against them, and the Hagarites were delivered into their hand, as well as all who were with them; for they [[1 Chronicles-05.fn#Footnote 20.1 — cried|cried]] out to God in the battle, and He was entreated for them because they trusted in Him.
 
 ## v21
 

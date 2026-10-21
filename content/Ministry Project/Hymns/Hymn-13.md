@@ -1,6 +1,8 @@
 ---
 Category: Worship of the Father
-Subcategory: As Love and Light
+Subcategory:
+  - As Love
+  - As Light
 Lyricist:
   - Witness Lee
 Melody: Silas Jones Vail

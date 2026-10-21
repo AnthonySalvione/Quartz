@@ -24,7 +24,7 @@ And he rose up and went into the house; and he poured the oil on his head and sa
 
 ## v7
 
-And you shall strike the house of Ahab your master, and I will avenge the blood of My servants the prophets and the blood of all the servants of Jehovah at the hand of Jezebel.
+And you shall strike the house of Ahab your master, and I will avenge the blood of My servants the prophets and the blood of all the servants of Jehovah at the hand of [[2 Kings-09.fn#Footnote 7.1 — Jezebel|Jezebel]].
 
 ## v8
 
@@ -52,7 +52,7 @@ Then they moved quickly; and every man took his garment and put it under him on 
 
 ## v14
 
-And Jehu the son of Jehoshaphat, the son of Nimshi, conspired against Joram. (Now Joram had been defending Ramoth-gilead, he and all Israel, because of Hazael the king of Syria,
+And Jehu the son of Jehoshaphat, the son of Nimshi, conspired against [[2 Kings-09.fn#Footnote 14.1 — Joram|Joram]]. (Now Joram had been defending Ramoth-gilead, he and all Israel, because of Hazael the king of Syria,
 
 ## v15
 
@@ -88,7 +88,7 @@ And when Jehoram saw Jehu, he said, Is there peace, Jehu? And he said, What peac
 
 ## v23
 
-And Jehoram turned the reins and tried to flee. And he said to Ahaziah, Treachery, Ahaziah!
+And Jehoram turned the [[2 Kings-09.fn#Footnote 23.1 — reins|reins]] and tried to flee. And he said to Ahaziah, Treachery, Ahaziah!
 
 ## v24
 
@@ -120,7 +120,7 @@ And Jehu came to Jezreel; and Jezebel heard of it. And she put paint on her eyes
 
 ## v31
 
-And as Jehu entered the gate, she said, Is all well, Zimri, you murderer of your master?
+And as Jehu entered the gate, she said, Is all well, Zimri, you murderer of [[2 Kings-09.fn#Footnote 31.1 — your|your]] master?
 
 ## v32
 
@@ -140,7 +140,7 @@ But when they went to bury her, they found no more of her than her skull and her
 
 ## v36
 
-And they returned and reported it to him. And he said, This is the word of Jehovah, which He spoke through His servant Elijah the Tishbite, saying, In the lot of Jezreel the dogs will eat the flesh of Jezebel;
+And they returned and reported it to him. And he said, This is the word of Jehovah, which He spoke through His servant Elijah the Tishbite, saying, [[2 Kings-09.fn#Footnote 36.1 — In|In]] the lot of Jezreel the dogs will eat the flesh of Jezebel;
 
 ## v37
 

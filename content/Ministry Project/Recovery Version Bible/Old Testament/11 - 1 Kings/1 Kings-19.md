@@ -44,7 +44,7 @@ And He said, Go out, and stand upon the mountain before Jehovah. And suddenly Je
 
 ## v12
 
-And after the earthquake, a fire — Jehovah was not in the fire. And after the fire, a gentle, quiet voice.
+And after the earthquake, a fire — Jehovah was not in the fire. And after the fire, [[1 Kings-19.fn#Footnote 12.1 — a|a]] gentle, quiet voice.
 
 ## v13
 
@@ -68,7 +68,7 @@ And him who escapes the sword of Hazael, Jehu will kill; and him who escapes the
 
 ## v18
 
-Yet I have left Myself seven thousand in Israel, all the knees that have not bowed unto Baal and every mouth that has not kissed him.
+Yet I have left Myself [[1 Kings-19.fn#Footnote 18.1 — seven|seven]] thousand in Israel, all the knees that have not bowed unto Baal and every mouth that has not kissed him.
 
 ## v19
 

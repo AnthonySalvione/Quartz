@@ -4,7 +4,7 @@ When Jehovah your God cuts off the nations whose land Jehovah your God is giving
 
 ## v2
 
-You shall set apart three cities for yourself in the midst of your land, which Jehovah your God is giving you to possess.
+You shall set apart three [[Deuteronomy-19.fn#Footnote 2.1 — cities|cities]] for yourself in the midst of your land, which Jehovah your God is giving you to possess.
 
 ## v3
 
@@ -20,7 +20,7 @@ As when a man goes with his neighbor into the forest to cut wood, and his hand g
 
 ## v6
 
-Lest the avenger of blood pursue the manslayer, while his heart rages, and he overtake him because the distance is long and slay him; though he is not worthy of death, for he did not hate him previously.
+Lest the avenger of blood pursue the manslayer, while his heart rages, and he overtake him because the distance is long and [[Deuteronomy-19.fn#Footnote 6.1 — slay|slay]] him; though he is not worthy of death, for he did not hate him previously.
 
 ## v7
 
@@ -52,7 +52,7 @@ Your eye shall not pity him, but you shall remove the guilt of innocent blood fr
 
 ## v14
 
-You shall not move your neighbor’s boundary marker, which your ancestors have set, in your inheritance, which you will inherit in the land which Jehovah your God is giving you to possess.
+You shall not move your neighbor’s [[Deuteronomy-19.fn#Footnote 14.1 — boundary|boundary]] marker, which your ancestors have set, in your inheritance, which you will inherit in the land which Jehovah your God is giving you to possess.
 
 ## v15
 

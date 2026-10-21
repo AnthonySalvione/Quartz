@@ -16,7 +16,7 @@ And Abijah stood up on Mount Zemaraim, which is in the hill country of Ephraim, 
 
 ## v5
 
-Do you not know that Jehovah the God of Israel gave the kingdom over Israel to David forever, to him and to his sons, by a covenant of salt?
+Do you not know that Jehovah the God of Israel gave the kingdom over Israel to David forever, to him and to his sons, by a [[2 Chronicles-13.fn#Footnote 5.1 — covenant|covenant]] of salt?
 
 ## v6
 
@@ -32,7 +32,7 @@ And now you think that you can withstand the kingdom of Jehovah in the hand of t
 
 ## v9
 
-Have you not cast out the priests of Jehovah, the sons of Aaron, and the Levites? And you made for yourselves priests like those of the peoples of other lands, so that anyone who comes to consecrate himself with a bull of the herd and seven rams becomes a priest of what are not gods.
+Have you not cast out the priests of Jehovah, the sons of Aaron, and the Levites? And you made for yourselves priests like those of the peoples of other lands, so that anyone who comes to [[2 Chronicles-13.fn#Footnote 9.1 — consecrate|consecrate]] himself with a bull of the herd and seven rams becomes a priest of what are not gods.
 
 ## v10
 
@@ -80,7 +80,7 @@ And Jeroboam never regained power during the days of Abijah; but Jehovah struck 
 
 ## v21
 
-And Abijah grew stronger; and he took to himself fourteen wives and begot twenty-two sons and sixteen daughters.
+And Abijah grew stronger; and he took to himself [[2 Chronicles-13.fn#Footnote 21.1 — fourteen|fourteen]] wives and begot twenty-two sons and sixteen daughters.
 
 ## v22
 

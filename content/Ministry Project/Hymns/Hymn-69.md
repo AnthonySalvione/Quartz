@@ -1,0 +1,50 @@
+---
+Category:
+  - Praise of the Lord
+Subcategory:
+  - His Name
+Lyricist:
+  - W. Yerbury
+Melody:
+  - Greek Melody
+---
+# Thy name we love, Lord Jesus
+## Stanza 1
+Thy name we love, Lord Jesus,
+And lowly bow before Thee;
+And while we live, to Thee we give
+All blessing, worship, glory.
+We sing aloud Thy praises,
+Our hearts and voices blending,
+'Tis Thou alone we worthy own,
+Thy beauty's all-transcending.
+
+## Stanza 2
+Thy name we love, Lord Jesus;
+It tells God's love unbounded
+To ruined man, ere time began,
+Or heav'n and earth were founded:
+Thine is a love eternal,
+That found in us its pleasure,
+That brought Thee low to bear our woe
+And make us Thine own treasure.
+
+## Stanza 3
+Thy name we love, Lord Jesus;
+It tells Thy birth so lowly,
+Thy patience, grace, and gentleness,
+Thy lonely path, so holy;
+Thou wast the "Man of Sorrows";
+Our grief, too, Thou didst bear it;
+Our bitter cup Thou drankest up;
+The thorny crown, didst wear it.
+
+## Stanza 4
+Thy name we love, Lord Jesus;
+God's Lamb—Thou wast ordained,
+To bear our sins (Thyself all clean)
+And hast our guilt sustained.
+We see Thee crowned in glory,
+Above the heavens now seated,
+The vict'ry won, Thy work well done,
+Our righteousness completed.

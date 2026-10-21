@@ -62,7 +62,7 @@ And Your visitation has preserved my spirit.
 
 ## v13
 
-But You have hidden these things in Your heart;  
+But You have [[Job-10.fn#Footnote 13.1 — hidden|hidden]] these things in Your heart;  
 I know that this is with You:
 
 ## v14
@@ -78,7 +78,7 @@ Being filled with dishonor and looking on my affliction.
 
 ## v16
 
-And if my head should be lifted up, You would hunt me down like a lion,  
+And if [[Job-10.fn#Footnote 16.1 — my|my]] head should be lifted up, You would hunt me down like a lion,  
 And You would again demonstrate wonders on me.
 
 ## v17
@@ -100,7 +100,7 @@ I should have been carried from birth to the grave.
 ## v20
 
 Are not my days few? Cease then,  
-And let me alone, that I may be somewhat revived,
+And let me alone, that I may be somewhat [[Job-10.fn#Footnote 20.1 — revived|revived]],
 
 ## v21
 

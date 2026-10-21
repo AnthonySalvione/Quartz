@@ -68,7 +68,7 @@ And David said to God, Was it not I who ordered the numbering of the people? And
 
 ## v18
 
-And the angel of Jehovah commanded Gad to tell David that David should go up and raise up an altar to Jehovah on the threshing floor of Ornan the Jebusite.
+And the angel of Jehovah commanded Gad to tell David that David should go up and raise up an altar to Jehovah on the [[1 Chronicles-21.fn#Footnote 18.1 — threshing|threshing]] floor of Ornan the Jebusite.
 
 ## v19
 

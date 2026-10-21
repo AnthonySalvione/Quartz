@@ -1,6 +1,6 @@
 ## v1
 
-And again the anger of Jehovah was kindled against Israel; and he moved David against them, saying, Go, number Israel and Judah.
+And again the anger of Jehovah was kindled against Israel; and [[2 Samuel-24.fn#Footnote 1.1 — he|he]] moved David against them, saying, Go, number Israel and Judah.
 
 ## v2
 
@@ -68,7 +68,7 @@ And David spoke to Jehovah when he saw the angel striking the people and said, I
 
 ## v18
 
-And Gad came to David on that day; and he said to him, Go up and raise up an altar to Jehovah on the threshing floor of Araunah the Jebusite.
+And Gad came to David on that day; and he said to him, Go up and raise up an altar to Jehovah on the [[2 Samuel-24.fn#Footnote 18.1 — threshing|threshing]] floor of Araunah the Jebusite.
 
 ## v19
 

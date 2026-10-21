@@ -34,7 +34,7 @@ And where have the upright ever been cut off?
 
 ## v8
 
-According to what I have seen, those who plow iniquity  
+According to what I have seen, those who plow [[Job-04.fn#Footnote 8.1 — iniquity|iniquity]]  
 And those who sow trouble reap the same.
 
 ## v9
@@ -97,7 +97,7 @@ Who are crushed like a moth!
 ## v20
 
 From morning to evening they are smashed to pieces;  
-Without any considering it, they continually perish.
+Without any considering it, they [[Job-04.fn#Footnote 20.1 — continually|continually]] perish.
 
 ## v21
 

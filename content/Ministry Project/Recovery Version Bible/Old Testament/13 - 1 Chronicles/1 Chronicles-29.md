@@ -1,6 +1,6 @@
 ## v1
 
-And David the king said to all the assembly, Solomon my son, he alone whom God has chosen, is young and tender, and the work is great because the palace is not for man but for Jehovah God.
+And David the king said to all the assembly, Solomon my son, he alone whom God has chosen, is young and tender, and the work is great because the [[1 Chronicles-29.fn#Footnote 1.1 — palace|palace]] is not for man but for Jehovah God.
 
 ## v2
 
@@ -16,7 +16,7 @@ Three thousand talents of gold, from the gold of Ophir, and seven thousand talen
 
 ## v5
 
-Gold for the things of gold and the silver for the things of silver and for all the work by the hands of the craftsmen. And who will offer willingly, consecrating himself today to Jehovah?
+Gold for the things of gold and the silver for the things of silver and for all the work by the hands of the craftsmen. And who will offer willingly, [[1 Chronicles-29.fn#Footnote 5.1 — consecrating|consecrating]] himself today to Jehovah?
 
 ## v6
 

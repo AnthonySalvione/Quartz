@@ -1,6 +1,6 @@
 ## v1
 
-Now these are the names of the sons of Israel who came to Egypt with Jacob; each man came with his household:
+[[Exodus-01.fn#Footnote 1.1 — Now|Now]] these are the names of the sons of Israel who came to [[Exodus-01.fn#Footnote 1.2 — Egypt|Egypt]] with Jacob; each man came with his household:
 
 ## v2
 
@@ -16,11 +16,11 @@ Dan and Naphtali, Gad and Asher.
 
 ## v5
 
-And all the persons who came forth from the loins of Jacob were seventy persons, but Joseph was already in Egypt.
+And all the [[Exodus-01.fn#Footnote 5.1 — persons|persons]] who came forth from the loins of Jacob were seventy [[Exodus-01.fn#Footnote 5.1 — persons|persons]], but Joseph was already in Egypt.
 
 ## v6
 
-And Joseph died, and all his brothers, and all that generation.
+And Joseph [[Exodus-01.fn#Footnote 6.1 — died|died]], and all his brothers, and all that generation.
 
 ## v7
 
@@ -40,7 +40,7 @@ Come, let us deal wisely with them, lest they multiply and, when some war occurs
 
 ## v11
 
-So they set taskmasters over them to afflict them with their burdens. And they built storage cities for Pharaoh, Pithom and Raamses.
+So they set taskmasters over them to afflict them with their burdens. And they built storage cities for Pharaoh, [[Exodus-01.fn#Footnote 11.1 — Pithom|Pithom]] and [[Exodus-01.fn#Footnote 11.1 — Pithom|Raamses]].
 
 ## v12
 
@@ -52,7 +52,7 @@ And the Egyptians made the children of Israel serve with harshness,
 
 ## v14
 
-And they made their lives bitter with hard labor in mortar and in brick and in all kinds of labor in the field; all their labor with which they made them serve was with harshness.
+And they made their lives bitter with hard labor in [[Exodus-01.fn#Footnote 14.1 — mortar|mortar]] and in [[Exodus-01.fn#Footnote 14.1 — mortar|brick]] and in all kinds of labor in the field; all their labor with which they made them serve was with harshness.
 
 ## v15
 
@@ -60,11 +60,11 @@ And the king of Egypt spoke to the Hebrew midwives, one whose name was Shiphrah 
 
 ## v16
 
-And he said, When you act as midwives for the Hebrew women and see them on the birthstool, if it is a son, then you shall put him to death; but if it is a daughter, then she shall live.
+And he said, When you act as midwives for the Hebrew women and see them on the [[Exodus-01.fn#Footnote 16.1 — birthstool|birthstool]], if it is a [[Exodus-01.fn#Footnote 16.2 — son|son]], then you shall put him to death; but if it is a [[Exodus-01.fn#Footnote 16.2 — son|daughter]], then she shall live.
 
 ## v17
 
-But the midwives feared God and did not do as the king of Egypt had commanded them but let the male children live.
+But the midwives [[Exodus-01.fn#Footnote 17.1 — feared|feared]] God and did not do as the king of Egypt had commanded them but let the male children live.
 
 ## v18
 
@@ -84,4 +84,4 @@ And because the midwives feared God, He established households for them.
 
 ## v22
 
-And Pharaoh commanded all his people, saying, Every son who is born you shall cast into the River, but every daughter you shall let live.
+And Pharaoh commanded all his people, saying, Every son who is [[Exodus-01.fn#Footnote 22.1 — born|born]] you shall cast into the [[Exodus-01.fn#Footnote 22.2 — River|River]], but every daughter you shall let live.

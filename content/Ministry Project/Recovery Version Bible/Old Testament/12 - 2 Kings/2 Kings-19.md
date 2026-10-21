@@ -4,7 +4,7 @@ And when King Hezekiah heard, he tore his clothes and covered himself with sackc
 
 ## v2
 
-And he sent Eliakim, who was over the household, and Shebna the scribe and the elders of the priests, who had covered themselves with sackcloth, to Isaiah the prophet, the son of Amoz.
+And he sent Eliakim, who was over the household, and Shebna the scribe and the elders of the priests, who had covered themselves with sackcloth, to [[2 Kings-19.fn#Footnote 2.1 — Isaiah|Isaiah]] the prophet, the son of Amoz.
 
 ## v3
 
@@ -107,7 +107,7 @@ And its luxuriant forest.
 I have dug /  
 And have drunk foreign waters, /  
 And with the sole of my feet I will dry up /  
-All the rivers of Egypt.
+All the rivers of [[2 Kings-19.fn#Footnote 24.1 — Egypt|Egypt]].
 
 ## v25
 
@@ -151,7 +151,7 @@ And the remnant of those who have escaped of the house of Judah will again take 
 
 ## v31
 
-For a remnant will go forth out of Jerusalem, and from Mount Zion those who have escaped. The zeal of Jehovah of hosts will perform this.
+For a remnant will go forth out of Jerusalem, and from Mount Zion those who have escaped. The zeal of Jehovah [[2 Kings-19.fn#Footnote 31.1 — of|of]] hosts will perform this.
 
 ## v32
 
@@ -185,4 +185,4 @@ Then Sennacherib the king of Assyria departed and went back to dwell in Nineveh.
 
 ## v37
 
-And as he was worshipping in the house of Nisroch his god, Adrammelech and Sharezer his sons struck him down with the sword; and they escaped to the land of Ararat. And Esarhaddon his son reigned in his place.
+And as he was worshipping in the house of Nisroch his god, Adrammelech and Sharezer [[2 Kings-19.fn#Footnote 37.1 — his|his]] sons struck him down with the sword; and they escaped to the land of Ararat. And Esarhaddon his son reigned in his place.

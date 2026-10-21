@@ -44,7 +44,7 @@ And Nebuchadnezzar the king of Babylon came against the city while his servants 
 
 ## v12
 
-And Jehoiachin the king of Judah went out to the king of Babylon, he and his mother and his servants and his captains and his eunuchs; and the king of Babylon took him in the eighth year of his reign.
+And Jehoiachin the king of Judah went out to the king of Babylon, he and his mother and his servants and his captains and his eunuchs; and the king of Babylon took him in the eighth year of [[2 Kings-24.fn#Footnote 12.1 — his|his]] reign.
 
 ## v13
 
@@ -64,11 +64,11 @@ And all the seven thousand men of valor and the one thousand craftsmen and smith
 
 ## v17
 
-Then the king of Babylon made Jehoiachin’s uncle Mattaniah king in his place, and he changed his name to Zedekiah.
+Then the king of Babylon made [[2 Kings-24.fn#Footnote 17.1 — Jehoiachin’s|Jehoiachin’s]] uncle Mattaniah king in his place, and he changed his name to Zedekiah.
 
 ## v18
 
-Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem; and his mother’s name was Hamutal, the daughter of Jeremiah, from Libnah.
+[[2 Kings-24.fn#Footnote 18.1 — Zedekiah|Zedekiah]] was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem; and his mother’s name was Hamutal, the daughter of Jeremiah, from Libnah.
 
 ## v19
 

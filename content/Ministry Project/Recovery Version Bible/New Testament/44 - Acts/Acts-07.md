@@ -7,7 +7,7 @@ And the high priest said, Are these things so?
 
 ## v2
 
-And he said, Men, brothers and fathers, listen. The God of glory appeared to our father Abraham while he was in Mesopotamia, before he dwelt in Haran,
+And he said, [[Acts-07.fn#Footnote 2.1 — Men|Men]], brothers and fathers, listen. The God of [[Acts-07.fn#Footnote 2.2 — glory|glory]] appeared to our father Abraham while he was in Mesopotamia, before he dwelt in Haran,
 
 ## v3
 
@@ -15,7 +15,7 @@ And said to him, “Come out from your land and from your relatives, and come in
 
 ## v4
 
-Then he came forth from the land of the Chaldeans and dwelt in Haran. And from there, after his father died, He removed him into this land, in which you now dwell.
+Then he came forth from the land of the Chaldeans and dwelt in Haran. And from there, after his father died, He [[Acts-07.fn#Footnote 4.1 — removed|removed]] him into this land, in which you now dwell.
 
 ## v5
 
@@ -23,7 +23,7 @@ Yet He did not give him an inheritance in it, not even a place to set his foot o
 
 ## v6
 
-And God spoke in this way, that his seed would be a sojourner in a foreign land, and they would enslave them and mistreat them four hundred years.
+And God spoke in this way, that his seed would be a sojourner in a [[Acts-07.fn#Footnote 6.1 — foreign|foreign]] land, and [[Acts-07.fn#Footnote 6.2 — they|they]] would enslave them and mistreat them [[Acts-07.fn#Footnote 6.3 — four|four]] hundred years.
 
 ## v7
 
@@ -43,7 +43,7 @@ And rescued him out of all his afflictions and granted him favor and wisdom befo
 
 ## v11
 
-And a famine came over all Egypt and Canaan as well as great affliction; and our fathers could find no sustenance.
+And a famine came over all Egypt and Canaan as well as great affliction; and our fathers could find no [[Acts-07.fn#Footnote 11.1 — sustenance|sustenance]].
 
 ## v12
 
@@ -55,7 +55,7 @@ And during the second time Joseph was made known to his brothers, and Joseph’s
 
 ## v14
 
-And Joseph sent word and called for Jacob his father and all his family, seventy-five souls in all.
+And Joseph sent word and called for Jacob his father and all his family, [[Acts-07.fn#Footnote 14.1 — seventy-five|seventy-five]] souls in all.
 
 ## v15
 
@@ -71,7 +71,7 @@ But as the time of the promise which God had assured to Abraham drew near, the p
 
 ## v18
 
-Until another king rose up over Egypt who did not know of Joseph.
+Until [[Acts-07.fn#Footnote 18.1 — another|another]] king rose up over Egypt who did not know of Joseph.
 
 ## v19
 
@@ -79,15 +79,15 @@ This one dealt craftily with our race and mistreated our fathers, so that they t
 
 ## v20
 
-At this time Moses was born and was lovely to God. And he was nurtured three months in his father’s house.
+At this time [[Acts-07.fn#Footnote 20.1 — Moses|Moses]] was born and was [[Acts-07.fn#Footnote 20.2 — lovely|lovely]] to God. And he was nurtured three months in his father’s house.
 
 ## v21
 
-And when he was thrown out, Pharaoh’s daughter took him up and nurtured him as a son for herself.
+And when he was [[Acts-07.fn#Footnote 21.1 — thrown|thrown]] out, Pharaoh’s daughter took him up and nurtured him as a son for herself.
 
 ## v22
 
-And Moses was educated in all the wisdom of the Egyptians, and he was powerful in his words and works.
+And Moses was educated in all the [[Acts-07.fn#Footnote 22.1 — wisdom|wisdom]] of the Egyptians, and he was powerful in his words and works.
 
 ## v23
 
@@ -103,7 +103,7 @@ And he supposed that his brothers understood that God through his hand was givin
 
 ## v26
 
-And on the following day he appeared to them as they were fighting and tried to reconcile them in peace, saying, Men, you are brothers. Why are you wronging one another?
+And on the following day he appeared to them as they were fighting and tried to reconcile them in peace, saying, [[Acts-07.fn#Footnote 26.1 — Men|Men]], you are brothers. Why are you wronging one another?
 
 ## v27
 
@@ -119,15 +119,15 @@ And Moses fled at this word and became a sojourner in the land of Midian, where 
 
 ## v30
 
-And when forty years had been fulfilled, an Angel appeared to him in the wilderness of Mount Sinai in the flame of a thornbush fire.
+And when forty years had been fulfilled, an [[Acts-07.fn#Footnote 30.1 — Angel|Angel]] appeared to him in the wilderness of Mount Sinai in the flame of a thornbush fire.
 
 ## v31
 
-And when Moses saw it, he marveled at the vision; and as he approached to examine it, there came the voice of the Lord:
+And when Moses saw it, he marveled at the vision; and as he approached to examine it, there came the voice of the [[Acts-07.fn#Footnote 31.1 — Lord|Lord]]:
 
 ## v32
 
-“I am the God of your fathers, the God of Abraham and Isaac and Jacob.” And Moses trembled and dared not examine it.
+“I am the God of your fathers, the God of Abraham and Isaac and Jacob.” And Moses trembled and dared not [[Acts-07.fn#Footnote 32.1 — examine|examine]] it.
 
 ## v33
 
@@ -135,11 +135,11 @@ And the Lord said to him, “Untie the sandals from your feet, for the place on 
 
 ## v34
 
-I have surely seen the ill-treatment of My people who are in Egypt and have heard their groaning, and I have come down to rescue them. And now, come, I will send you into Egypt.”
+[[Acts-07.fn#Footnote 34.1 — I|I]] have surely seen the ill-treatment of My people who are in Egypt and have heard their groaning, and I have come down to rescue them. And now, come, I will send you into Egypt.”
 
 ## v35
 
-This Moses, whom they refused, saying, Who appointed you a ruler and a judge? this one God has sent as both a ruler and a redeemer, along with the hand of the Angel who appeared to him in the thornbush.
+This Moses, whom they refused, saying, Who appointed you a ruler and a judge? this one God has sent as both a ruler and a redeemer, along with the hand of the Angel who [[Acts-07.fn#Footnote 35.1 — appeared|appeared]] to him in the thornbush.
 
 ## v36
 
@@ -163,15 +163,15 @@ Saying to Aaron, “Make gods for us who will go before us; for this Moses, who 
 
 ## v41
 
-And they made a calf in those days and brought up a sacrifice to the idol and were glad with the works of their hands.
+And they made a [[Acts-07.fn#Footnote 41.1 — calf|calf]] in those days and brought up a sacrifice to the idol and were glad with the works of their hands.
 
 ## v42
 
-But God turned and delivered them up to serve the host of heaven, even as it is written in the book of the prophets, “Did you offer slain beasts and sacrifices to Me for forty years in the wilderness, O house of Israel?
+But God turned and delivered them up to [[Acts-07.fn#Footnote 42.1 — serve|serve]] the [[Acts-07.fn#Footnote 42.2 — host|host]] of heaven, even as it is written in the [[Acts-07.fn#Footnote 42.3 — book|book]] of the prophets, “Did you offer slain beasts and sacrifices to Me for forty years in the wilderness, O house of Israel?
 
 ## v43
 
-And you took up the tabernacle of Moloch and the star of your god Rompha, the images which you made to worship. And I will carry you away beyond Babylon.”
+And you took up the [[Acts-07.fn#Footnote 43.1 — tabernacle|tabernacle]] of Moloch and the star of your god [[Acts-07.fn#Footnote 43.2 — Rompha|Rompha]], the images which you made to worship. And I will carry you away beyond Babylon.”
 
 ## v44
 
@@ -191,11 +191,11 @@ But Solomon built Him a house.
 
 ## v48
 
-Yet the Most High does not dwell in that which is made by hands, even as the prophet says,
+Yet the [[Acts-07.fn#Footnote 48.1 — Most|Most]] High does [[Acts-07.fn#Footnote 48.2 — not|not]] dwell in that which is made by hands, even as the prophet says,
 
 ## v49
 
-“Heaven is My throne, and the earth is a footstool for My feet. What kind of house will you build for Me, says the Lord, or what is the place of My rest?
+“Heaven is My throne, and the earth is a footstool for My feet. [[Acts-07.fn#Footnote 49.1 — What|What]] kind of house will you build for Me, says the Lord, or what is the place of My rest?
 
 ## v50
 
@@ -203,7 +203,7 @@ Has not My hand made all these things?”
 
 ## v51
 
-You stiff-necked and uncircumcised in hearts and ears, you always oppose the Holy Spirit; as your fathers did, you also do.
+You stiff-necked and uncircumcised in hearts and ears, you always [[Acts-07.fn#Footnote 51.1 — oppose|oppose]] the Holy [[Acts-07.fn#Footnote 51.2 — Spirit|Spirit]]; as your fathers did, you also do.
 
 ## v52
 
@@ -211,19 +211,19 @@ Which of the prophets did your fathers not persecute? And they killed those who 
 
 ## v53
 
-You who received the law as ordinances of angels and did not keep it.
+You who received the law as [[Acts-07.fn#Footnote 53.1 — ordinances|ordinances]] of angels and did not keep it.
 
 ## v54
 
-Now as they heard these things, they were exasperated and gnashed their teeth at him.
+Now as they heard these things, they were [[Acts-07.fn#Footnote 54.1 — exasperated|exasperated]] and gnashed their teeth at him.
 
 ## v55
 
-But being full of the Holy Spirit, he looked intently into heaven and saw the glory of God and Jesus standing at the right hand of God;
+But being [[Acts-07.fn#Footnote 55.1 — full|full]] of the Holy Spirit, he looked intently into heaven and saw the [[Acts-07.fn#Footnote 55.2 — glory|glory]] of God and Jesus [[Acts-07.fn#Footnote 55.3 — standing|standing]] at the right hand of God;
 
 ## v56
 
-And he said, Behold, I see the heavens opened up and the Son of Man standing at the right hand of God.
+And he said, Behold, I see the [[Acts-07.fn#Footnote 56.1 — heavens|heavens]] opened up and the Son of Man standing at the right hand of God.
 
 ## v57
 
@@ -231,12 +231,12 @@ But they cried out with a loud voice and covered their ears and rushed upon him 
 
 ## v58
 
-And they threw him outside of the city and stoned him. And the witnesses laid down their garments at the feet of a young man called Saul.
+And they threw him outside of the city and stoned him. And the witnesses laid down their garments at the feet of a young man called [[Acts-07.fn#Footnote 58.1 — Saul|Saul]].
 
 ## v59
 
-And they stoned Stephen as he called upon the Lord and said, Lord Jesus, receive my spirit!
+And they stoned Stephen as he [[Acts-07.fn#Footnote 59.1 — called|called]] upon the Lord and said, Lord Jesus, receive my spirit!
 
 ## v60
 
-And kneeling down, he cried out with a loud voice, Lord, do not hold this sin against them. And when he had said this, he fell asleep.
+And kneeling down, he cried out with a loud voice, Lord, do [[Acts-07.fn#Footnote 60.1 — not|not]] hold this sin against them. And when he had said this, he fell asleep.

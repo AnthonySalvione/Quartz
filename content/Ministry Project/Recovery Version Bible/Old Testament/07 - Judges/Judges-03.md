@@ -4,7 +4,7 @@ And these are the nations that Jehovah left in order that through them He might 
 
 ## v2
 
-But only so that the generations of the children of Israel might learn to know war, at least those who had not previously known the battles:
+But only so that the generations of the children of Israel might learn to know war, at least those who had not previously known [[Judges-03.fn#Footnote 2.1 — the|the]] battles:
 
 ## v3
 
@@ -16,7 +16,7 @@ And they were for the testing of Israel, to know whether they would listen to th
 
 ## v5
 
-And the children of Israel dwelt among the Canaanites, the Hittites and the Amorites and the Perizzites and the Hivites and the Jebusites.
+And the children of Israel [[Judges-03.fn#Footnote 5.1 — dwelt|dwelt]] among the Canaanites, the Hittites and the Amorites and the Perizzites and the Hivites and the Jebusites.
 
 ## v6
 
@@ -88,11 +88,11 @@ And the hilt also went in, after the blade; and the fat closed over the blade, f
 
 ## v23
 
-Then Ehud went out onto the porch, and he closed the doors of the upper room on Eglon and locked them.
+Then Ehud went out onto the porch, and he closed the doors of the upper room on [[Judges-03.fn#Footnote 23.1 — Eglon|Eglon]] and locked them.
 
 ## v24
 
-And when he had gone out, Eglon’s servants came and saw that the doors of the upper room were locked; and they said, He must be relieving himself in the cool chamber.
+And when he had gone out, [[Judges-03.fn#Footnote 24.1 — Eglon’s|Eglon’s]] servants came and saw that the doors of the upper room were locked; and they said, He must be relieving himself in the cool chamber.
 
 ## v25
 

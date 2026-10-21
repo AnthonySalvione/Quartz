@@ -1,6 +1,6 @@
 ## v1
 
-Now in the days when the judges ruled, there was a famine in the land. And a man from Bethlehem in Judah went down to dwell as a sojourner in the country of Moab, he and his wife and his two sons.
+Now in the days when the judges [[Ruth-01.fn#Footnote 1.1 — ruled|ruled]], there was a [[Ruth-01.fn#Footnote 1.2 — famine|famine]] in the land. And a man from [[Ruth-01.fn#Footnote 1.3 — Bethlehem|Bethlehem]] in Judah [[Ruth-01.fn#Footnote 1.4 — went|went]] down to dwell as a sojourner in the country of [[Ruth-01.fn#Footnote 1.5 — Moab|Moab]], he and his wife and his two sons.
 
 ## v2
 
@@ -8,11 +8,11 @@ And the man’s name was Elimelech, and his wife’s name was Naomi, and the nam
 
 ## v3
 
-And Elimelech, Naomi’s husband, died; and she was left with her two sons.
+And Elimelech, Naomi’s husband, [[Ruth-01.fn#Footnote 3.1 — died|died]]; and she was left with her two sons.
 
 ## v4
 
-And they took wives for themselves from among the Moabite women. One’s name was Orpah, and the second’s name was Ruth. And they dwelt there about ten years.
+And they took wives for themselves from among the [[Ruth-01.fn#Footnote 4.1 — Moabite|Moabite]] women. One’s name was Orpah, and the second’s name was Ruth. And they dwelt there about ten years.
 
 ## v5
 
@@ -20,7 +20,7 @@ And both Mahlon and Chilion died, and the woman was left without her two childre
 
 ## v6
 
-Then she rose up with her daughters-in-law in order to return from the country of Moab, for she had heard in the country of Moab that Jehovah had visited His people by giving them food.
+Then she rose up with her daughters-in-law in order to [[Ruth-01.fn#Footnote 6.1 — return|return]] from the country of Moab, for she had heard in the country of Moab that Jehovah had visited His people by giving them food.
 
 ## v7
 
@@ -60,7 +60,7 @@ And she said, Your sister-in-law has now returned to her people and to her gods;
 
 ## v16
 
-But Ruth said, Do not entreat me to leave you and turn away from following after you. For wherever you go, I will go, and wherever you dwell, I will dwell; and your people will be my people, and your God will be my God.
+But Ruth said, Do not entreat me to leave you and turn away from following after you. For wherever you go, I [[Ruth-01.fn#Footnote 16.1 — will|will]] go, and wherever you dwell, I will dwell; and your people will be my people, and your [[Ruth-01.fn#Footnote 16.2 — God|God]] will be my God.
 
 ## v17
 
@@ -68,7 +68,7 @@ Where you die, I will die; and there will I be buried. Jehovah do so to me, and 
 
 ## v18
 
-And when Naomi saw that she was determined to go with her, she ceased speaking to her about it.
+And when [[Ruth-01.fn#Footnote 18.1 — Naomi|Naomi]] saw that she was determined to go with her, she ceased speaking to her about it.
 
 ## v19
 
@@ -76,12 +76,12 @@ So the two of them traveled until they came to Bethlehem. And when they came to 
 
 ## v20
 
-And she said to them, Do not call me Naomi; call me Mara; for the All-sufficient One has dealt very bitterly with me.
+And she said to them, Do not call me Naomi; call me [[Ruth-01.fn#Footnote 20.1 — Mara|Mara]]; for the All-sufficient One has [[Ruth-01.fn#Footnote 20.2 — dealt|dealt]] very bitterly with me.
 
 ## v21
 
-I went out full, but Jehovah has brought me back empty. Why do you call me Naomi, when Jehovah has afflicted me and the All-sufficient One has dealt harshly with me?
+I went out full, but Jehovah has brought me back empty. Why do you call me Naomi, when Jehovah has [[Ruth-01.fn#Footnote 21.1 — afflicted|afflicted]] me and the All-sufficient One has dealt harshly with me?
 
 ## v22
 
-So Naomi returned, and Ruth the Moabitess, her daughter-in-law, with her, who returned from the country of Moab. And they came to Bethlehem at the beginning of the barley harvest.
+So Naomi returned, and Ruth the Moabitess, her daughter-in-law, with her, who returned from the country of Moab. And they came to Bethlehem at the beginning of the [[Ruth-01.fn#Footnote 22.1 — barley|barley]] harvest.

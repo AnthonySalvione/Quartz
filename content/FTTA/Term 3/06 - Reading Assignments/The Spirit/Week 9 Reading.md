@@ -1,0 +1,106 @@
+LS Exodus, msg. 157; pp. 1631-1636, 1689-1692
+
+# THE HOLY ANOINTING OIL (2)
+LIFE-STUDY OF EXODUS *pp. 1631-1636*
+
+## Scripture Reading: 
+[[Ministry Project/Recovery Version Bible/Old Testament/02 - Exodus/Exodus-30#v22|Exo. 30:22-33]] ; [[Ministry Project/Recovery Version Bible/Old Testament/19 - Psalms/Psalm-133#v2|Psa. 133:2]] ; [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-02#v20|1 John 2:20]] , [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-02#v27|27]]
+
+## Introduction
+In this message we will consider the details related to the holy anointing oil in [[Ministry Project/Recovery Version Bible/Old Testament/02 - Exodus/Exodus-30#v22|Exodus 30:22-33]] .
+
+## ITS MATERIALS
+
+### Four Kinds of Spices
+
+The materials of the holy anointing oil are of two categories and are five in number. The first category includes the four spices: myrrh, cinnamon, calamus, and cassia. The second category consists of one item—olive oil.
+
+### Flowing Myrrh
+
+Flowing myrrh, smelling sweet but tasting bitter, signifies the precious death of Christ. In the Bible myrrh was used mostly for burial. Hence, myrrh is related to death. According to [[Ministry Project/Recovery Version Bible/New Testament/43 - John/John-19|John 19]] , when Nicodemus and others were preparing to bury the body of the Lord Jesus, they used myrrh.
+
+Myrrh comes from an aromatic tree. This tree drops its juice either as a result of being cut or through some kind of natural opening or incision. In ancient times this juice was used to reduce the suffering of death. When the Lord Jesus was being crucified, He was offered wine mixed with myrrh to reduce His pain. However, He refused to take it. No doubt, the myrrh in [[Ministry Project/Recovery Version Bible/Old Testament/02 - Exodus/Exodus-30|Exodus 30]] is a symbol of the Lord’s death. 
+
+The aromatic liquid of myrrh not only reduces pain but also can be used for healing the body when it gives off the wrong kind of secretion. Myrrh can correct this condition in the human body. In our human life there are many wrong secretions, but the Lord’s death on the cross corrects this problem.
+
+### Fragrant Cinnamon
+
+Fragrant cinnamon signifies the sweetness and effectiveness of Christ’s death. Cinnamon not only has a distinctive flavor, but it can also be used to stimulate the heart. Cinnamon may be prescribed to stimulate a weak heart.
+
+Myrrh signifies the precious death of Christ, and cinnamon signifies the effectiveness of His death. If we apply the Lord’s death to our situation, it will reduce our pain, correct the wrong secretions, and eventually stimulate us and make us happy and joyful. I can testify of this from my experience. There are times that negative things in my environment would cause me to be low. But when I apply the Lord’s death, I am corrected, adjusted, stimulated, and stirred up.
+
+### Fragrant Calamus
+
+The calamus in [[Ministry Project/Recovery Version Bible/Old Testament/02 - Exodus/Exodus-30|Exodus 30]] is a reed. The Hebrew root of the word myrrh means “flowing,” and the root for calamus means “standing up.” Calamus grows in a marsh or muddy place. But even though it grows in a marsh, it is able to shoot up into the air. According to the sequence of the spices, this calamus signifies the rising up of the Lord Jesus from the place of death. The Lord was put into a marsh, into a death situation, but in resurrection He rose up and stood up. Calamus, therefore, signifies the precious resurrection of Christ.
+
+## Cassia
+
+The fourth spice, cassia, signifies the power of Christ’s resurrection. Cassia and cinnamon belong to the same family. Cinnamon is from the inner part of the bark, and cassia, from the outer part of the bark. Both cinnamon and cassia are sweet and fragrant. Furthermore, the plants from which they are derived often live and grow in places where other plants cannot grow. 
+
+In ancient times cassia was used as a repellent to drive away insects and snakes. Cassia thus signifies the power, the effectiveness, of Christ’s resurrection. Christ’s resurrection can withstand any kind of environment, and His resurrection certainly is a repellent. It repels all evil “insects” and especially the old serpent, the devil.
+
+Myrrh, cinnamon, calamus, and cassia are all of one category of materials, the category of the spices. Now we come to the olive oil, the only item in the second category.
+
+## Olive Oil
+
+In the Bible olive oil signifies the Spirit of God. Olive oil is produced by the pressing of olives. The olive oil signifies the Spirit of God, through the pressure of Christ’s death, flowing out.
+
+The olive oil is the base of the ointment; it is the basic element compounded with the spices. The four spices are compounded into the olive oil to make the ointment. This indicates that the Spirit of God, signified by the olive oil, is no longer merely oil, but now it is oil compounded with certain ingredients. Regarding this, [[Ministry Project/Recovery Version Bible/New Testament/43 - John/John-07#v39|John 7:39]] says, “This He said concerning the Spirit, whom those who believed into Him were about to receive; for the Spirit was not yet, because Jesus had not yet been glorified.” This means that before the Lord’s glorification the compound Spirit was not yet. It was after Christ’s resurrection that the compounding, or the blending, of such a Spirit was completed.
+
+### The Four Spices Signifying Humanity in God’s Creation, and the Oil Signifying Divinity in the Godhead
+
+The four spices signify humanity in God’s creation. In the Bible the number four signifies God’s creation. We have the four living creatures and the four corners of the earth. Furthermore, the four spices themselves are elements of God’s creation. These spices signify the humanity of the Lord Jesus. In His incarnation the Lord Jesus was both God and man. The four spices signify the humanity of the Lord Jesus in God’s creation. Of course, some Christians do not like to hear the word creation used in the case of the Lord Jesus. This is due to the heretical teaching of Arius who taught that Christ was merely a created being and that He was not the eternal God.
+
+### The oil signifies divinity in the Godhead. We have seen that the number four signifies the creatures. The number one signifies God, the unique Creator.
+
+In this compound ointment we have the numbers four and one, with the number four blended with the number one. This signifies humanity blended, mingled, with divinity. Concerning the compound ointment, we cannot avoid using the word mingled.The words compounded and blended actually mean mingled. The four spices were mingled with the oil.
+
+The mingling of the spices with the oil can be compared to the mingling of fine flour and oil in the meal offering ([[Ministry Project/Recovery Version Bible/Old Testament/03 - Leviticus/Leviticus-02|Lev. 2]]). For the meal offering, the dough was produced by blending, mingling, fine flour with oil. This also signifies that in the one person of Christ we have both divinity and humanity.
+
+I have read some books which say that the Gospel of John was written in an attempt to reconcile the different parties who were debating concerning the person of Christ. Some said that Christ was God, and others that He was merely a man. Others said that Christ was not God but was the Word, the Logos, created by God. [[Ministry Project/Recovery Version Bible/New Testament/43 - John/John-01#v1|John 1:1]] says, “In the beginning was the Word, and the Word was with God, and the Word was God.” This makes it clear that the Word, who is Christ, is God. Furthermore, [[Ministry Project/Recovery Version Bible/New Testament/43 - John/John-01#v14|John 1:14]] says, “The Word became flesh.” The very Word who is God became flesh. Actually, I do not like to use the words conciliate or reconcile with respect to John’s writings. The writings of the apostle John actually are not conciliatory; rather, they are all-inclusive. Christ is the all-inclusive One. If He were only God and not man, or were merely man and not God, He would not be all-inclusive. Praise the Lord that Christ is God as well as man, man as well as God! Because Christ is all-inclusive, the writings of John are also all-inclusive.
+
+The compound ointment likewise is all-inclusive. Can you see the all-inclusiveness of this compound? In this all-inclusive compound we have olive oil, myrrh, cinnamon, calamus, and cassia. This indicates that in the compound Spirit typified by the ointment we can see divinity, humanity, the all-inclusive death of Christ, and the effectiveness of Christ’s death. Furthermore, we can see the precious resurrection of Christ and the power of His resurrection. All these elements are included in the Spirit of Christ.
+
+As used in the New Testament, the Spirit of Christ is an all-inclusive expression. [[Ministry Project/Recovery Version Bible/New Testament/50 - Philippians/Philippians-01#v19|Philippians 1:19]] speaks of the bountiful supply of the Spirit of Jesus Christ. However, there is no reference to the bountiful supply of the Spirit of God. In [[Ministry Project/Recovery Version Bible/Old Testament/01 - Genesis/Genesis-01|Genesis 1]] we read about the Spirit of God. But in the Epistles of Paul we have the Spirit of Christ and the Spirit of Jesus Christ as well.
+
+May we all be deeply impressed that today the all-inclusive Spirit, as the compound ointment, is nothing less than the Triune God processed to become the all-inclusive Spirit to reach us. Some Christians consider this understanding of the Spirit heretical. However, the judgment made today is not final. According to the Bible, this is the day of man, and man’s day is not final. Let us wait until the day of the Lord, and let Him judge. I have the assurance that the Lord will say that this understanding of the all-inclusive Spirit is right.
+
+In the Old Testament we have the olive oil signifying the Spirit of God. Eventually, after the tabernacle was built up and the priests were made ready, there was not only the olive oil but the compound ointment. This indicates that we have not only the Spirit of God but also the Spirit of Christ. No doubt, Mr. C. A. Coates has seen something here. In his writing on the ointment in [[Ministry Project/Recovery Version Bible/Old Testament/02 - Exodus/Exodus-30|Exodus 30]] , he speaks of the Spirit of Christ and the Spirit of another Man.
+
+As believers, we have been anointed with the compound ointment, with the all-inclusive Spirit. [[Ministry Project/Recovery Version Bible/Old Testament/19 - Psalms/Psalm-133#v2|Psalm 133:2]] describes how the anointing oil flowed down from Aaron’s head to his beard and then to the hem of his garments. This signifies that the whole Body is anointed with the Spirit.
+
+Then in [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-02#v20|1 John 2:20]] and 27 we are told that we have received an anointing and that this anointing teaches us all things. [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-02#v20|First John 2:20]] says, “You have an anointing from the Holy One, and all of you know.” [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-02#v27|Verse 27]] says, “The anointing which you have received from Him abides in you, and you have no need that anyone teach you; but as His anointing teaches you concerning all things and is true and is not a lie, and even as it has taught you, abide in Him.”
+
+To receive the anointing is to receive the divine painting. Painters know that it is good to apply more than one coat of paint. In painting certain things it is good to have layer upon layer of paint. In our experience of the Spirit, we need to be “painted” again and again. Eventually, we may receive hundreds of layers. Praise the Lord that He is daily painting us by His anointing!
+
+As the anointing is being applied to us, it teaches us. Today God mainly teaches us silently by the anointing. For example, you may ask the Lord about something, and He will teach you concerning it by anointing you. If you would say, “Lord, please tell me what color You want,” the Lord may not say anything. Instead, He may pick up His “brush” and paint you a particular color, perhaps green. Instead of speaking to you about the color green, He tells you that He wants green by painting you green. This is the Lord’s way to teach us.
+
+According to [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-02|1 John 2]] , the anointing within us teaches us in everything. Many times we know that we are wrong. No one needs to tell us this. But the moving of the anointing within us teaches us that we are wrong. I believe that we all have had some amount of experience of this teaching of the anointing.
+
+# THE INGREDIENTS OF THE COMPOUND SPIRIT TYPIFIED BY THE COMPOUNDED OINTMENT (2)
+LIFE-STUDY OF EXODUS pp. 1689-1692
+
+## Scripture Reading: 
+[[Ministry Project/Recovery Version Bible/Old Testament/02 - Exodus/Exodus-30#v23|Exo. 30:23-30]] ; [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-02#v18|1 John 2:18-27]] ; [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-04#v1|4:1-3]] , [[Ministry Project/Recovery Version Bible/New Testament/62 - 1 John/1 John-04#v6|6]] ; [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-08#v16|Rom. 8:16]] ; [[Ministry Project/Recovery Version Bible/New Testament/46 - 1 Corinthians/1 Corinthians-06#v17|1 Cor. 6:17]] ; [[Ministry Project/Recovery Version Bible/New Testament/48 - Galatians/Galatians-05#v22|Gal. 5:22-24]] ; [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-08#v13|Rom. 8:13]]
+
+## Introduction 
+
+We have seen that the first three ingredients of the compound Spirit typified by the compounded ointment are the only God, the Triune God, and the man Jesus, typified respectively by the one hin of olive oil, the three units of the measure of the four spices, and the four spices of the plant life. In this message we will continue to consider the ingredients of the compound Spirit typified by the compounded ointment, and then we will go on to consider the anointing of the compound Spirit.
+
+## The Precious Death of Christ
+
+The flowing myrrh in [[Ministry Project/Recovery Version Bible/Old Testament/02 - Exodus/Exodus-30#v23|Exodus 30:23]] typifies the precious death of Christ. This precious death is, according to this type, compounded with the anointing Spirit. In [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-06#v3|Romans 6:3]] and 6 Paul says that we who have been baptized into Christ Jesus have been baptized into His death and that our old man has been crucified with Christ. The death of Christ into which we have been baptized is actually included in the Spirit. Without the Spirit the death of Christ is only a historical fact, and it can never become our experience. It is in the Spirit that we share the death of Christ. This is also a part of the anointing of the Spirit. 
+
+## The Sweetness and Effectiveness of Christ’s Death
+
+The fragrant cinnamon in [[Ministry Project/Recovery Version Bible/Old Testament/02 - Exodus/Exodus-30#v23|Exodus 30:23]] typifies the sweetness and the effectiveness of Christ’s death. The effectiveness of the death of Christ can be compared to an antibiotic used to kill germs. If someone is suffering from a disease caused by certain bacteria or germs, he may take a certain medicine to kill those germs. The effectiveness of Christ’s death can be regarded as the spiritual antibiotic to kill the “germs” within us.
+
+[[Ministry Project/Recovery Version Bible/New Testament/48 - Galatians/Galatians-05#v22|Galatians 5:22-24]] indicates that the death of Christ functions like a spiritual antibiotic. [[Ministry Project/Recovery Version Bible/New Testament/48 - Galatians/Galatians-05#v22|Verses 22]] and 23 speak of the fruit of the Spirit. Then [[Ministry Project/Recovery Version Bible/New Testament/48 - Galatians/Galatians-05#v24|verse 24]] says, “But they who are of Christ Jesus have crucified the flesh with its passions and its lusts.” Physically speaking, no one can crucify himself. A person can commit suicide many different ways, but he cannot commit suicide by crucifying himself. Anyone crucified in ancient times was hung on a cross by others. Since crucifixion is not an action that we can perform on ourselves, why does Paul say in [[Ministry Project/Recovery Version Bible/New Testament/48 - Galatians/Galatians-05#v24|Galatians 5:24]] that they who are of Christ Jesus have crucified the flesh? If we read the context of this verse with understanding, we will see that we do not actually crucify ourselves by ourselves alone. Rather, this crucifixion is carried out by the Spirit from whom is the fruit of the Spirit. The Spirit who bears fruit within us is the One by whom we crucify ourselves. This corresponds to [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-08#v13|Romans 8:13]] : “If you live according to the flesh, you must die, but if by the Spirit you put to death the practices of the body, you will live.” By ourselves we are not able to put to death the practices of the body. Likewise, we are not able to crucify ourselves. We need a crucifier, someone to crucify us. Christ was crucified by Roman soldiers. Today we experience crucifixion through and by the indwelling Spirit.
+
+Do you know where the effectiveness of the death of Christ is? The effectiveness of the death of Christ is in the all-inclusive Spirit. This Spirit includes the element of the effectiveness of the wonderful death of Christ. This means that the death of Christ spoken of in [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-06|Romans 6]] has become an ingredient of the indwelling Spirit spoken of in [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-08|Romans 8]] . The “medicine” of the Spirit thus contains the effectiveness of Christ’s death as the element to kill the germs, the harmful bacteria, within us. 
+
+Throughout the years many have taught from [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-06|Romans 6]] that our old man has been crucified with Christ. However, few have seen the proper way to experience our death with Christ described in [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-06|Romans 6]] . Only when we realize that the effectiveness of the death of Christ has been compounded into the all-inclusive Spirit can we have the proper experience of being crucified with Christ. Once we realize that the death of Christ in [[Ministry Project/Recovery Version Bible/New Testament/45 - Romans/Romans-06|Romans 6]] has been compounded into the all-inclusive indwelling Spirit, we should simply walk in this Spirit. This is to take the “medicine” of the Spirit containing the killing element of Christ’s death. There is no need for us to try to kill ourselves or the germs within us. We simply need to take the antibiotic, which will then do an excellent work within us to kill all the germs. Our experience testifies of this. We can testify that when we walk in the Spirit, a killing work is taking place within us.
+
+We can experience this killing work in our daily lives. Suppose a brother does not care for the indwelling Spirit but instead, rejecting the Spirit, quarrels with his wife and says some very unkind things to her. However, suppose this same brother prays himself into the Spirit, lives in the Spirit, and walks in the Spirit. This will make it extremely difficult for him to argue with his wife. As soon as he opens his mouth to quarrel with her, he will experience the element of Christ’s death operating within him. Then he will find it impossible to argue with her. Many married brothers have had this kind of experience.
+
+I believe that a good number of sisters have experienced the “antibiotic” in the Spirit in relation to their shopping. If a sister does not pray herself into the Spirit, live in the Spirit, and walk in the Spirit, then she may go shopping without any inward restriction. For this reason I would encourage the sisters to pray thoroughly and properly before they go shopping. A sister may say, “Lord, let us go shopping together. In the matter of shopping, I don’t want to leave You. Rather, I want to stay with You.” If a sister goes shopping in this way, she will experience the Lord’s limitation and restriction. She may pick up a certain item and consider buying it. But then, sensing the restriction of the Spirit, she will put it down. Sometimes she may leave the store without buying anything, because she paid attention to the Spirit within her. This is an experience of the effectiveness of the Lord’s sweet death being applied to us by the all-inclusive Spirit. Many of us can testify that whenever we have this kind of experience, we feel that we are with the Lord in the heavens.

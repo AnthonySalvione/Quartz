@@ -12,7 +12,7 @@ So I made an ark of acacia wood and cut two tablets of stone like the first ones
 
 ## v4
 
-And He wrote upon the tablets as He had done the first writing, the Ten Commandments, which Jehovah spoke to you on the mountain from the midst of the fire on the day of the assembly; and Jehovah gave them to me.
+And He wrote upon the tablets as He had done the first writing, the Ten [[Deuteronomy-10.fn#Footnote 4.1 — Commandments|Commandments]], which Jehovah spoke to you on the mountain from the midst of the fire on the day of the assembly; and Jehovah gave them to me.
 
 ## v5
 
@@ -20,7 +20,7 @@ Then I turned and came down from the mountain, and I placed the tablets in the A
 
 ## v6
 
-(And the children of Israel set out from Beeroth Bene-jaakan for Moserah. There Aaron died, and there he was buried; and Eleazar his son served as priest in his place.
+(And the children of Israel set out from [[Deuteronomy-10.fn#Footnote 6.1 — Beeroth|Beeroth]] Bene-jaakan for Moserah. There Aaron died, and there he was buried; and Eleazar his son served as priest in his place.
 
 ## v7
 
@@ -32,7 +32,7 @@ At that time Jehovah separated the tribe of Levi to bear the Ark of the Covenant
 
 ## v9
 
-Therefore Levi has no portion nor inheritance with his brothers; Jehovah is his inheritance, as Jehovah your God promised him.)
+Therefore Levi has [[Deuteronomy-10.fn#Footnote 9.1 — no|no]] portion nor inheritance with his brothers; [[Deuteronomy-10.fn#Footnote 9.1 — no|Jehovah]] is his inheritance, as Jehovah your God promised him.)
 
 ## v10
 
@@ -44,7 +44,7 @@ And Jehovah said to me, Arise, take up the journey before the people so that the
 
 ## v12
 
-And now, O Israel, what does Jehovah your God ask of you except that you fear Jehovah your God so that you would walk in all His ways and love Him and serve Jehovah your God with all your heart and with all your soul;
+And now, O Israel, what does Jehovah your God ask of you except that you fear Jehovah your God so that you would walk in all His [[Deuteronomy-10.fn#Footnote 12.1 — ways|ways]] and [[Deuteronomy-10.fn#Footnote 12.2 — love|love]] Him and serve Jehovah your God with all your [[Deuteronomy-10.fn#Footnote 12.3 — heart|heart]] and with all your soul;
 
 ## v13
 

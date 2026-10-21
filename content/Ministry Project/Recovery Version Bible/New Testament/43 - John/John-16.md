@@ -7,7 +7,7 @@ These things I have spoken to you so that you would not be stumbled.
 
 ## v2
 
-They will put you out of the synagogues; but an hour is coming for everyone who kills you to think that he is offering service to God.
+They will put you out of the synagogues; but an hour is coming for everyone who [[John-16.fn#Footnote 2.1 — kills|kills]] you to think that he is offering service to God.
 
 ## v3
 
@@ -27,11 +27,11 @@ But because I have spoken these things to you, sorrow has filled your heart.
 
 ## v7
 
-But I tell you the truth, It is expedient for you that I go away; for if I do not go away, the Comforter will not come to you; but if I go, I will send Him to you.
+But I tell you the truth, It is expedient for you that I go away; for if I do not go away, the Comforter will not come to you; but if I [[John-16.fn#Footnote 7.1 — go|go]], I will send Him to you.
 
 ## v8
 
-And when He comes, He will convict the world concerning sin and concerning righteousness and concerning judgment:
+And when He comes, He will [[John-16.fn#Footnote 8.1 — convict|convict]] the world concerning [[John-16.fn#Footnote 8.2 — sin|sin]] and concerning righteousness and concerning judgment:
 
 ## v9
 
@@ -51,7 +51,7 @@ I have yet many things to say to you, but you cannot bear them now.
 
 ## v13
 
-But when He, the Spirit of reality, comes, He will guide you into all the reality; for He will not speak from Himself, but what He hears He will speak; and He will declare to you the things that are coming.
+But when He, the Spirit of reality, comes, He will [[John-16.fn#Footnote 13.1 — guide|guide]] you into all the reality; for He will not speak from Himself, but what He hears He will speak; and He will declare to you the things that are coming.
 
 ## v14
 
@@ -83,19 +83,19 @@ Truly, truly, I say to you that you will weep and lament, but the world will rej
 
 ## v21
 
-A woman, when she gives birth, has sorrow because her hour has come; but when she brings forth the little child, she no longer remembers the affliction because of the joy that a man has been born into the world.
+A woman, when she gives birth, has sorrow because her hour has come; but when she [[John-16.fn#Footnote 21.1 — brings|brings]] forth the [[John-16.fn#Footnote 21.2 — little|little]] child, she no longer remembers the affliction because of the joy that a man has been born into the world.
 
 ## v22
 
-Therefore you also now have sorrow; but I will see you again and your heart will rejoice, and no one takes your joy away from you.
+Therefore you also now have sorrow; but I will [[John-16.fn#Footnote 22.1 — see|see]] you again and your heart will rejoice, and no one takes your joy away from you.
 
 ## v23
 
-And in that day you will ask Me nothing. Truly, truly, I say to you, Whatever you ask the Father in My name, He will give to you.
+And in that day you will ask Me nothing. Truly, truly, I say to you, [[John-16.fn#Footnote 23.1 — Whatever|Whatever]] you ask the Father in My name, He will give to you.
 
 ## v24
 
-Until now you have asked for nothing in My name; ask and you shall receive, that your joy may be made full.
+Until now you have [[John-16.fn#Footnote 24.1 — asked|asked]] for nothing in My name; ask and you shall receive, that your joy may be made full.
 
 ## v25
 
@@ -107,11 +107,11 @@ In that day you will ask in My name, and I do not say to you that I will ask the
 
 ## v27
 
-For the Father Himself loves you, because you have loved Me and have believed that I came forth from God.
+For the Father Himself loves you, because you have loved Me and have believed that I came forth [[John-16.fn#Footnote 27.1 — from|from]] God.
 
 ## v28
 
-I came forth out from the Father and have come into the world; again, I am leaving the world and am going to the Father.
+I [[John-16.fn#Footnote 28.1 — came|came]] forth out from the Father and have come into the world; again, I am leaving the world and am going to the Father.
 
 ## v29
 
@@ -119,7 +119,7 @@ His disciples said, Behold, now You are speaking plainly and not saying any para
 
 ## v30
 
-Now we know that You know all things and have no need that anyone ask You; by this we believe that You came forth from God.
+Now we know that You know all things and have no need that anyone ask You; by this we believe that You came forth [[John-16.fn#Footnote 30.1 — from|from]] God.
 
 ## v31
 
@@ -127,7 +127,7 @@ Jesus answered them, Do you now believe?
 
 ## v32
 
-Behold, an hour is coming, and has come, that you will be scattered each to his own place and will leave Me alone; yet I am not alone, because the Father is with Me.
+Behold, an hour is coming, and has come, that you will be scattered each to his own place and will leave Me alone; yet I am not alone, because the Father is [[John-16.fn#Footnote 32.1 — with|with]] Me.
 
 ## v33
 

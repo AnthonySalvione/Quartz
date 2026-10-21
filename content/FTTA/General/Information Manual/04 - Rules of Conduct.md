@@ -24,27 +24,31 @@ The following rules of conduct are for the purposes of cultivating in you a nobl
  9. The following items are not permitted by the Training:
 	1. Smoking, alcohol, marijuana, illegal drug use, or pornographic material.
 	
-	2. Secular reading during the weekly Training schedule.
+	2. [Weapons of any kind.]
 	
-	3. Social media, except when permitted by the Training for gospel purposes.
+	3. Secular reading during the weekly Training schedule.
 	
-	4. Periodical subscriptions.
+	4. Social media, except when permitted by the Training for gospel purposes.
 	
-	5. Listening to secular audio (e.g., music, podcasts) and/or watching secular videos.
+	5. Periodical subscriptions.
 	
-	6. Electronic games, board games, card games, and games involving chance.
+	6. Listening to secular audio (e.g., music, podcasts) and/or watching secular videos.
 	
-	7. Use of cameras at the Training Center and Ministry Conference Center premises and during any Training-related activity at any location, except in the principle of making a photocopy or with express permission from a Training assistant brother. If permission is obtained, please:
+	7. Electronic games, board games, card games, and games involving chance.
+	
+	8. Use of cameras at the Training Center and Ministry Conference Center premises and during any Training-related activity at any location, except in the principle of making a photocopy or with express permission from a Training assistant brother. If permission is obtained, please:
 	     1. Ensure that photographs permitted have a proper testimony of the Lord and represent the high standard of the Training, engendering respect for the Lord, His purpose, and the Training.
 	     
 	    2. Be careful, conscientious, and judicious in sending or posting any pictures of trainees, trainee gatherings, the Ministry Conference Center or Training Center, training residences, etc. in any public forum, physical or digital.
 	    
-	8. The recording of classes and fellowships in either audio or video form.
+	9. The recording of classes and fellowships in either audio or video form.
 	
-	9. Gum chewing.
+	10. Gum chewing.
 	
-	10. Outside food and drink inside the Training Center and Ministry Conference Center.
+	11. Outside food and drink inside the Training Center and Ministry Conference Center.
 	
-	11. Gym memberships, except with express permission from a Training assistant brother.
+	12. Gym memberships, except with express permission from a Training assistant brother.
 	
-	12. Corporate gift-giving.
+	13. Corporate gift-giving.
+
+[*"Finally, brothers, what things are true, what things are dignified, what things are righteous, what things are pure, what things are lovely, what things are well spoken of, if there is any virtue and if any praise, take account of these things." (Phil. 4:8)]

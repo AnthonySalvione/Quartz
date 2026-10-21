@@ -3,7 +3,7 @@ Author: John
 ---
 ## v1
 
-Now before the Feast of the Passover, Jesus knowing that His hour had come for Him to depart out of this world unto the Father, having loved His own who were in the world, He loved them to the uttermost.
+[[John-13.fn#Footnote 1.1 — Now|Now]] before the Feast of the Passover, Jesus knowing that His hour had come for Him to depart out of this world unto the Father, having loved His own who were in the world, He loved them to the uttermost.
 
 ## v2
 
@@ -15,11 +15,11 @@ Jesus, knowing that the Father had given all into His hands and that He had come
 
 ## v4
 
-Rose from supper and laid aside His outer garments; and taking a towel, He girded Himself;
+Rose from supper and [[John-13.fn#Footnote 4.1 — laid|laid]] aside His outer garments; and taking a [[John-13.fn#Footnote 4.2 — towel|towel]], He [[John-13.fn#Footnote 4.3 — girded|girded]] Himself;
 
 ## v5
 
-Then He poured water into the basin and began to wash the disciples’ feet and to wipe them with the towel with which He was girded.
+Then He poured [[John-13.fn#Footnote 5.1 — water|water]] into the basin and began to [[John-13.fn#Footnote 5.2 — wash|wash]] the disciples’ [[John-13.fn#Footnote 5.3 — feet|feet]] and to wipe them with the towel with which He was girded.
 
 ## v6
 
@@ -27,7 +27,7 @@ He came then to Simon Peter. Peter said to Him, Lord, do You wash my feet?
 
 ## v7
 
-Jesus answered and said to him, What I am doing you do not know now, but you will know after these things.
+Jesus answered and said to him, What I am doing you do not [[John-13.fn#Footnote 7.1 — know|know]] now, but you will [[John-13.fn#Footnote 7.1 — know|know]] after these things.
 
 ## v8
 
@@ -39,7 +39,7 @@ Simon Peter said to Him, Lord, not my feet only, but also my hands and my head.
 
 ## v10
 
-Jesus said to him, He who is bathed has no need except to wash his feet, but is wholly clean; and you are clean, but not all of you.
+Jesus said to him, He who is [[John-13.fn#Footnote 10.1 — bathed|bathed]] has no need except to wash his feet, but is wholly clean; and you are clean, but not all of you.
 
 ## v11
 
@@ -63,7 +63,7 @@ For I have given you an example so that you also may do even as I have done to y
 
 ## v16
 
-Truly, truly, I say to you, A slave is not greater than his master, nor one who is sent greater than the one who sends him.
+Truly, truly, I say to you, A slave is not greater than his master, nor [[John-13.fn#Footnote 16.1 — one|one]] who is sent greater than the one who sends him.
 
 ## v17
 
@@ -71,11 +71,11 @@ If you know these things, blessed are you if you do them.
 
 ## v18
 
-I do not speak concerning all of you. I know whom I have chosen, but that the Scripture may be fulfilled, “He who eats bread with Me has lifted up his heel against Me.”
+I do not speak concerning all of you. I know whom I have chosen, but that the Scripture may be fulfilled, “He who [[John-13.fn#Footnote 18.1 — eats|eats]] bread with Me has lifted up his heel against Me.”
 
 ## v19
 
-From now on I am telling you before it happens, so that when it happens, you may believe that I am.
+From now on I am telling you before it happens, so that when it happens, you may believe that [[John-13.fn#Footnote 19.1 — I|I]] am.
 
 ## v20
 
@@ -123,11 +123,11 @@ Therefore having taken the morsel, he went out immediately; and it was night.
 
 ## v31
 
-Then when he went out, Jesus said, Now has the Son of Man been glorified, and God has been glorified in Him.
+Then when he went out, Jesus said, Now has the Son of Man been [[John-13.fn#Footnote 31.1 — glorified|glorified]], and God has been [[John-13.fn#Footnote 31.2 — glorified|glorified]] in Him.
 
 ## v32
 
-If God has been glorified in Him, God will also glorify Him in Himself, and He will glorify Him immediately.
+[[John-13.fn#Footnote 32.1 — If|If]] God has been [[John-13.fn#Footnote 32.2 — glorified|glorified]] in Him, God will also [[John-13.fn#Footnote 32.3 — glorify|glorify]] Him in Himself, and He will [[John-13.fn#Footnote 32.3 — glorify|glorify]] Him immediately.
 
 ## v33
 
@@ -135,7 +135,7 @@ Little children, I am still with you a little while; you will seek Me, and even 
 
 ## v34
 
-A new commandment I give to you, that you love one another, even as I have loved you, that you also love one another.
+A new [[John-13.fn#Footnote 34.1 — commandment|commandment]] I give to you, that you love one another, even as I have loved you, that you also love one another.
 
 ## v35
 
@@ -147,7 +147,7 @@ Simon Peter said to Him, Lord, where are You going? Jesus answered him, Where I 
 
 ## v37
 
-Peter said to Him, Lord, why can’t I follow You now? I will lay down my life for You.
+Peter said to Him, Lord, why can’t I follow You now? I will lay down my [[John-13.fn#Footnote 37.1 — life|life]] for You.
 
 ## v38
 

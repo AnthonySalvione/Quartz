@@ -1,10 +1,10 @@
 ## v1
 
-Then in the four hundred eightieth year after the children of Israel had come forth out of the land of Egypt, in the fourth year of his reign over Israel, in the month of Ziv (this is the second month), Solomon began to build the house of Jehovah.
+Then in the four hundred eightieth year after the children of Israel had come forth out of the land of Egypt, in the fourth year of his reign over Israel, in the month of Ziv (this is the second month), [[1 Kings-06.fn#Footnote 1.1 — Solomon|Solomon]] began to build the [[1 Kings-06.fn#Footnote 1.2 — house|house]] of Jehovah.
 
 ## v2
 
-And the house which King Solomon built to Jehovah was sixty cubits long and twenty cubits wide and thirty cubits high.
+And the house which King Solomon built to Jehovah was [[1 Kings-06.fn#Footnote 2.1 — sixty|sixty]] cubits long and twenty cubits wide and thirty cubits high.
 
 ## v3
 
@@ -12,23 +12,23 @@ And the portico that was before the temple of the house was twenty cubits long, 
 
 ## v4
 
-And for the house he made windows with fixed lattices.
+And for the house he made [[1 Kings-06.fn#Footnote 4.1 — windows|windows]] with [[1 Kings-06.fn#Footnote 4.2 — fixed|fixed]] lattices.
 
 ## v5
 
-And against the wall of the house he built a structure with stories all around, next to the walls of the house all around the temple and the innermost sanctuary; and he made side chambers all around.
+And against the wall of the house he built a structure with stories all around, next to the walls of the house all around the [[1 Kings-06.fn#Footnote 5.1 — temple|temple]] and the [[1 Kings-06.fn#Footnote 5.2 — innermost|innermost]] sanctuary; and he made [[1 Kings-06.fn#Footnote 5.3 — side|side]] chambers all around.
 
 ## v6
 
-The lowest story was five cubits wide; and the middle, six cubits wide; and the third, seven cubits wide; for he provided for outsets to the house all around the outside, so that the beams would not be inserted into the walls of the house.
+The lowest [[1 Kings-06.fn#Footnote 6.1 — story|story]] was five cubits wide; and the middle, six cubits wide; and the third, seven cubits wide; for he provided for outsets to the house all around the outside, so that the beams would not be inserted into the walls of the house.
 
 ## v7
 
-And the house, when it was being built, was built of finished stone, cut at the quarry, so that neither hammer nor axe nor any iron tool was heard in the house when it was being built.
+And the house, when it was being built, was built of finished [[1 Kings-06.fn#Footnote 7.1 — stone|stone]], cut at the quarry, so that neither hammer nor axe nor any iron tool was heard in the house when it was being built.
 
 ## v8
 
-The door of the middle side chamber was on the right side of the house; and they went up by winding stairs into the middle story, and from the middle into the third.
+The [[1 Kings-06.fn#Footnote 8.1 — door|door]] of the middle side chamber was on the right side of the house; and they went up by winding stairs into the middle story, and from the middle into the third.
 
 ## v9
 
@@ -56,7 +56,7 @@ So Solomon built the house and finished it.
 
 ## v15
 
-And he built the walls of the house within with cedar boards; from the floor of the house to the wall of the ceiling he covered them on the inside with wood. And he overlaid the floor of the house with boards of cypress.
+And he built the walls of the house within with [[1 Kings-06.fn#Footnote 15.1 — cedar|cedar]] boards; from the floor of the house to the wall of the ceiling he covered them on the inside with wood. And he overlaid the floor of the house with boards of [[1 Kings-06.fn#Footnote 15.1 — cedar|cypress]].
 
 ## v16
 
@@ -64,7 +64,7 @@ And he built twenty cubits of the rear part of the house with cedar boards from 
 
 ## v17
 
-And the house, that is, the temple before the Holy of Holies, was forty cubits long.
+And the house, that is, the [[1 Kings-06.fn#Footnote 17.1 — temple|temple]] before the Holy of Holies, was forty cubits long.
 
 ## v18
 
@@ -72,15 +72,15 @@ And there was cedar on the house within, carved with gourds and open flowers. It
 
 ## v19
 
-And he prepared an innermost sanctuary in the midst of the house within, in order to put the Ark of the Covenant of Jehovah there.
+And he prepared an innermost sanctuary in the midst of the house within, in order to put the [[1 Kings-06.fn#Footnote 19.1 — Ark|Ark]] of the Covenant of Jehovah there.
 
 ## v20
 
-And the interior of the innermost sanctuary was twenty cubits long and twenty cubits wide and twenty cubits high; and he overlaid it with pure gold, and he overlaid the cedar altar.
+And the interior of the innermost sanctuary was twenty cubits long and twenty cubits wide and twenty cubits high; and he overlaid it with pure [[1 Kings-06.fn#Footnote 20.1 — gold|gold]], and he overlaid the cedar [[1 Kings-06.fn#Footnote 20.2 — altar|altar]].
 
 ## v21
 
-And Solomon overlaid the house within with pure gold; and he drew gold chains before the innermost sanctuary, and overlaid it with gold.
+And Solomon overlaid the house within with pure gold; and he drew gold chains before the innermost sanctuary, and overlaid [[1 Kings-06.fn#Footnote 21.1 — it|it]] with gold.
 
 ## v22
 
@@ -88,7 +88,7 @@ So he overlaid all the house with gold, until all the house was complete; and th
 
 ## v23
 
-And in the innermost sanctuary he made two cherubim of olive wood, ten cubits high.
+And in the innermost sanctuary he made two cherubim of [[1 Kings-06.fn#Footnote 23.1 — olive|olive]] wood, ten cubits high.
 
 ## v24
 
@@ -112,7 +112,7 @@ And he overlaid the cherubim with gold.
 
 ## v29
 
-And he carved all the walls of the house all around with engraved carvings of cherubim and palm trees and open flowers, in both the inner chamber and the outer one.
+And he carved all the walls of the house all around with engraved carvings of [[1 Kings-06.fn#Footnote 29.1 — cherubim|cherubim]] and [[1 Kings-06.fn#Footnote 29.1 — cherubim|palm]] trees and open flowers, in both the inner chamber and the outer one.
 
 ## v30
 
@@ -140,7 +140,7 @@ And he carved cherubim and palm trees and open flowers on them, and he overlaid 
 
 ## v36
 
-And he built the inner court with three courses of hewn stone and a course of cedar beams.
+And he built the [[1 Kings-06.fn#Footnote 36.1 — inner|inner]] court with three courses of hewn stone and a course of cedar beams.
 
 ## v37
 

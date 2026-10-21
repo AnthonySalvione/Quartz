@@ -4,23 +4,23 @@ And Jehovah spoke to Moses, saying,
 
 ## v2
 
-See, I have called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah.
+See, I have called by name [[Exodus-31.fn#Footnote 2.1 — Bezalel|Bezalel]] the son of Uri, the son of Hur, of the tribe of Judah.
 
 ## v3
 
-And I have filled him with the Spirit of God, with wisdom and with understanding and with knowledge and with all kinds of workmanship,
+And I have filled him with the [[Exodus-31.fn#Footnote 3.1 — Spirit|Spirit]] of God, with wisdom and with understanding and with knowledge and with all kinds of workmanship,
 
 ## v4
 
-To fashion skillful designs, to work in gold and in silver and in bronze,
+To fashion skillful designs, to work in [[Exodus-31.fn#Footnote 4.1 — gold|gold]] and in silver and in bronze,
 
 ## v5
 
-And in the cutting of stones for setting and in the carving of wood, to work in all kinds of workmanship.
+And in the [[Exodus-31.fn#Footnote 5.1 — cutting|cutting]] of stones for setting and in the [[Exodus-31.fn#Footnote 5.1 — cutting|carving]] of wood, to [[Exodus-31.fn#Footnote 5.1 — cutting|work]] in all kinds of workmanship.
 
 ## v6
 
-And now, I Myself have appointed with him Oholiab the son of Ahisamach, of the tribe of Dan; and in the heart of all who are wise in heart I have put wisdom, that they may make all that I have commanded you:
+And now, I Myself have appointed with him [[Exodus-31.fn#Footnote 6.1 — Oholiab|Oholiab]] the son of Ahisamach, of the [[Exodus-31.fn#Footnote 6.2 — tribe|tribe]] of Dan; and in the heart of all who are wise in heart I have put wisdom, that they may make all that I have commanded you:
 
 ## v7
 
@@ -48,11 +48,11 @@ And Jehovah spoke to Moses, saying,
 
 ## v13
 
-Speak also to the children of Israel, saying, You shall surely keep My Sabbaths; for it is a sign between Me and you throughout your generations, that you may know that I am Jehovah who sanctifies you.
+Speak also to the children of Israel, saying, You shall surely keep My [[Exodus-31.fn#Footnote 13.1 — Sabbaths|Sabbaths]]; for it is a [[Exodus-31.fn#Footnote 13.2 — sign|sign]] between Me and you throughout your generations, that you may know that I am Jehovah who sanctifies you.
 
 ## v14
 
-Therefore you shall keep the Sabbath, for it is holy to you. Everyone who profanes it shall surely be put to death; for whoever does any work on it, that soul shall be cut off from among his people.
+Therefore you shall keep the Sabbath, for it is holy to you. Everyone who profanes it shall surely be put to [[Exodus-31.fn#Footnote 14.1 — death|death]]; for whoever does any work on it, that soul shall be [[Exodus-31.fn#Footnote 14.1 — death|cut]] off from among his people.
 
 ## v15
 
@@ -68,4 +68,4 @@ It is a sign between Me and the children of Israel forever; for in six days Jeho
 
 ## v18
 
-And when He had finished speaking with him upon Mount Sinai, He gave to Moses the two tablets of the Testimony, tablets of stone, written with the finger of God.
+And when He had finished speaking with him upon Mount Sinai, He gave to Moses the two [[Exodus-31.fn#Footnote 18.1 — tablets|tablets]] of the Testimony, tablets of stone, written with the finger of God.

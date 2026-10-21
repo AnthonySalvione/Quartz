@@ -3,15 +3,15 @@ Author: Luke
 ---
 ## v1
 
-And as the crowd pressed upon Him to hear the word of God, He was standing by the lake of Gennesaret.
+And as the crowd pressed upon Him to hear the word of God, He was standing by the [[Luke-05.fn#Footnote 1.1 — lake|lake]] of Gennesaret.
 
 ## v2
 
-And He saw two boats lying by the lake, and the fishermen had gotten out of them and were washing the nets.
+And He [[Luke-05.fn#Footnote 2.1 — saw|saw]] two boats lying by the lake, and the fishermen had gotten out of them and were washing the nets.
 
 ## v3
 
-And He got into one of the boats, which was Simon’s, and asked him to put out a little from the land. And He sat down and from the boat taught the crowds.
+And He got into one of the boats, which was [[Luke-05.fn#Footnote 3.1 — Simon’s|Simon’s]], and asked him to put out a little from the land. And He sat down and from the boat taught the crowds.
 
 ## v4
 
@@ -19,7 +19,7 @@ And when He ceased speaking, He said to Simon, Put out into the deep and let dow
 
 ## v5
 
-And Simon answered and said, Master, through the whole night we toiled and caught nothing; but based on Your word I will let down the nets.
+And Simon answered and said, [[Luke-05.fn#Footnote 5.1 — Master|Master]], through the whole night we toiled and caught nothing; but based on Your word I will let down the nets.
 
 ## v6
 
@@ -39,7 +39,7 @@ For amazement had taken possession of him and all who were with him, because of 
 
 ## v10
 
-And likewise also James and John, the sons of Zebedee, who were partners with Simon. And Jesus said to Simon, Do not be afraid. From now on you will be catching men alive.
+And likewise also James and John, the sons of Zebedee, who were [[Luke-05.fn#Footnote 10.1 — partners|partners]] with Simon. And Jesus said to Simon, Do not be afraid. From now on you will be [[Luke-05.fn#Footnote 10.2 — catching|catching]] men alive.
 
 ## v11
 
@@ -47,7 +47,7 @@ And when they had brought the boats to the land, they left all and followed Him.
 
 ## v12
 
-And while He was in one of the cities, behold, there was a man full of leprosy. And when he saw Jesus, he fell on his face and begged Him, saying, Lord, if You are willing, You can cleanse me.
+And while He was in one of the cities, behold, there was a [[Luke-05.fn#Footnote 12.1 — man|man]] full of leprosy. And when he saw Jesus, he fell on his face and begged Him, saying, Lord, if You are willing, You can cleanse me.
 
 ## v13
 
@@ -63,15 +63,15 @@ But the word concerning Him spread abroad all the more, and great crowds came to
 
 ## v16
 
-But He Himself often withdrew in the wilderness and prayed.
+But He Himself often withdrew in the wilderness and [[Luke-05.fn#Footnote 16.1 — prayed|prayed]].
 
 ## v17
 
-And on one of the days He was teaching, and there were Pharisees and teachers of the law sitting there, who had come out of every village of Galilee and Judea and Jerusalem. And the power of the Lord was with Him to heal.
+And on one of the days He was teaching, and there were Pharisees and teachers of the law sitting there, who had come out of every village of Galilee and Judea and Jerusalem. And the power of the Lord [[Luke-05.fn#Footnote 17.1 — was|was]] with Him to heal.
 
 ## v18
 
-And behold, some men brought on a bed a man who was paralyzed, and they sought a way to carry him in and lay him before Him.
+And behold, some men brought on a bed a [[Luke-05.fn#Footnote 18.1 — man|man]] who was paralyzed, and they sought a way to carry him in and lay him before Him.
 
 ## v19
 
@@ -107,7 +107,7 @@ And astonishment took hold of all, and they glorified God and were filled with f
 
 ## v27
 
-And after these things He went out and beheld a tax collector named Levi sitting at the tax office, and He said to him, Follow Me.
+And after these things He went out and beheld a [[Luke-05.fn#Footnote 27.1 — tax|tax]] collector named Levi sitting at the tax office, and He said to him, Follow Me.
 
 ## v28
 
@@ -115,7 +115,7 @@ And leaving all, he rose up and followed Him.
 
 ## v29
 
-And Levi gave a great reception for Him in his house; and there was a great crowd of tax collectors and others who were reclining at table with them.
+And Levi gave a great reception for Him in his [[Luke-05.fn#Footnote 29.1 — house|house]]; and there was a great crowd of tax collectors and others who were reclining at table with them.
 
 ## v30
 
@@ -131,7 +131,7 @@ I have not come to call the righteous, but sinners to repentance.
 
 ## v33
 
-And they said to Him, The disciples of John fast often and make petitions, likewise also those of the Pharisees, but Yours eat and drink.
+And they said to Him, The [[Luke-05.fn#Footnote 33.1 — disciples|disciples]] of John fast often and make petitions, likewise also those of the Pharisees, but Yours eat and drink.
 
 ## v34
 
@@ -143,7 +143,7 @@ But the days will come when the bridegroom will be taken away from them; then th
 
 ## v36
 
-And He also spoke a parable to them: No one tears a patch from a new garment and puts it on an old garment; otherwise, he will tear the new garment, and also the patch from the new will not match the old.
+And He also spoke a parable to them: No one tears a patch from a new garment and puts it on an old garment; otherwise, [[Luke-05.fn#Footnote 36.1 — he|he]] will tear the new garment, and also the patch from the new will not match the old.
 
 ## v37
 

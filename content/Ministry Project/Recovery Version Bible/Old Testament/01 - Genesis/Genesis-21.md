@@ -1,18 +1,18 @@
 ## v1
 
-And Jehovah visited Sarah as He had said, and Jehovah did to Sarah as He had promised.
+[[Genesis-21.fn#Footnote 1.1 — And|And]] Jehovah [[Genesis-21.fn#Footnote 1.2 — visited|visited]] Sarah as He had said, and Jehovah did to Sarah as He had promised.
 
 ## v2
 
-And Sarah conceived and bore Abraham a son in his old age, at the appointed time of which God had spoken to him.
+And Sarah conceived and [[Genesis-21.fn#Footnote 2.1 — bore|bore]] Abraham a son in his old age, at the appointed time of which God had spoken to him.
 
 ## v3
 
-And Abraham called the name of his son who was born to him, whom Sarah bore to him, Isaac.
+And Abraham called the name of his son who was born to him, whom Sarah bore to him, [[Genesis-21.fn#Footnote 3.1 — Isaac|Isaac]].
 
 ## v4
 
-And Abraham circumcised Isaac his son when he was eight days old, as God had commanded him.
+And Abraham [[Genesis-21.fn#Footnote 4.1 — circumcised|circumcised]] Isaac his son when he was [[Genesis-21.fn#Footnote 4.2 — eight|eight]] days old, as God had commanded him.
 
 ## v5
 
@@ -28,15 +28,15 @@ And she said, Who would have said to Abraham that Sarah would nurse children? Ye
 
 ## v8
 
-And the child grew and was weaned. And Abraham made a great feast on the day that Isaac was weaned.
+And the child [[Genesis-21.fn#Footnote 8.1 — grew|grew]] and was weaned. And Abraham made a great feast on the day that Isaac was weaned.
 
 ## v9
 
-And Sarah saw the son of Hagar the Egyptian, whom she had borne to Abraham, mocking.
+And Sarah saw the son of Hagar the Egyptian, whom she had borne to Abraham, [[Genesis-21.fn#Footnote 9.1 — mocking|mocking]].
 
 ## v10
 
-So she said to Abraham, Cast out this maidservant and her son, for the son of this maidservant shall not inherit with my son Isaac.
+So she said to Abraham, [[Genesis-21.fn#Footnote 10.1 — Cast|Cast]] out this maidservant and her son, for the son of this maidservant shall not inherit with my son Isaac.
 
 ## v11
 
@@ -72,7 +72,7 @@ Rise up; lift up the boy, and hold him with your hand, for I will make of him a 
 
 ## v19
 
-And God opened her eyes, and she saw a well of water. And she went and filled the waterskin with water and gave the boy a drink.
+And God opened her eyes, and she saw a [[Genesis-21.fn#Footnote 19.1 — well|well]] of water. And she went and filled the waterskin with water and gave the boy a drink.
 
 ## v20
 
@@ -96,7 +96,7 @@ And Abraham said, I swear it.
 
 ## v25
 
-And Abraham confronted Abimelech concerning the well of water which Abimelech’s servants had taken by force.
+And Abraham confronted Abimelech concerning the [[Genesis-21.fn#Footnote 25.1 — well|well]] of water which Abimelech’s servants had taken by force.
 
 ## v26
 
@@ -108,7 +108,7 @@ And Abraham took sheep and oxen and gave them to Abimelech. And the two of them 
 
 ## v28
 
-And Abraham set seven ewe lambs of the flock by themselves.
+And Abraham set [[Genesis-21.fn#Footnote 28.1 — seven|seven]] ewe lambs of the flock by themselves.
 
 ## v29
 
@@ -120,15 +120,15 @@ And he said, These seven ewe lambs you shall take from my hand, that it may be a
 
 ## v31
 
-Therefore he called that place Beer-sheba, because there the two of them swore an oath.
+Therefore he called that place [[Genesis-21.fn#Footnote 31.1 — Beer-sheba|Beer-sheba]], because there the two of them swore an oath.
 
 ## v32
 
-So they made a covenant at Beer-sheba; and Abimelech rose up with Phicol the captain of his host, and they returned into the land of the Philistines.
+So they made a [[Genesis-21.fn#Footnote 32.1 — covenant|covenant]] at Beer-sheba; and Abimelech rose up with Phicol the captain of his host, and they returned into the land of the [[Genesis-21.fn#Footnote 32.2 — Philistines|Philistines]].
 
 ## v33
 
-And Abraham planted a tamarisk tree in Beer-sheba, and there he called on the name of Jehovah, the Eternal God.
+And [[Genesis-21.fn#Footnote 33.1 — Abraham|Abraham]] planted a [[Genesis-21.fn#Footnote 33.2 — tamarisk|tamarisk]] tree in Beer-sheba, and there he called on the name of Jehovah, the [[Genesis-21.fn#Footnote 33.3 — Eternal|Eternal]] God.
 
 ## v34
 

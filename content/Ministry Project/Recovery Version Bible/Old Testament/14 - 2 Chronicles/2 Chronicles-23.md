@@ -8,7 +8,7 @@ And they went around in Judah and gathered the Levites from all the cities of Ju
 
 ## v3
 
-And all the congregation made a covenant with the king in the house of God. And Jehoiada said to them, Now, the king’s son shall reign, as Jehovah spoke concerning the sons of David.
+And all the congregation made a covenant with the king in the house of God. And [[2 Chronicles-23.fn#Footnote 3.1 — Jehoiada|Jehoiada]] said to them, Now, the king’s son shall reign, as Jehovah spoke concerning the sons of David.
 
 ## v4
 
@@ -76,7 +76,7 @@ And he set the doorkeepers at the doors of the house of Jehovah so that no one w
 
 ## v20
 
-And Jehoiada gathered the captains of the hundreds and the nobles and the rulers of the people and all the people of the land and brought the king down from the house of Jehovah. And they went through the upper gate to the king’s house and set the king upon the throne of the kingdom.
+And [[2 Chronicles-23.fn#Footnote 20.1 — Jehoiada|Jehoiada]] gathered the captains of the hundreds and the nobles and the rulers of the people and all the people of the land and brought the king down from the house of Jehovah. And they went through the upper gate to the king’s house and set the king upon the throne of the kingdom.
 
 ## v21
 

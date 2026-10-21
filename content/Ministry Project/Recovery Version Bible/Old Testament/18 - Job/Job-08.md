@@ -1,6 +1,6 @@
 ## v1
 
-Then Bildad the Shuhite answered and said,
+Then Bildad the Shuhite [[Job-08.fn#Footnote 1.1 — answered|answered]] and said,
 
 ## v2
 
@@ -85,7 +85,7 @@ He looks upon a place of stones.
 
 ## v18
 
-If one destroys him from his place,  
+If [[Job-08.fn#Footnote 18.1 — one|one]] destroys him from his place,  
 Then it denies him, saying, I have not seen you.
 
 ## v19

@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Speak to Aaron and say to him, When you set up the lamps, the seven lamps will give light in front of the lampstand.
+Speak to Aaron and say to him, When you set up the lamps, the [[Numbers-08.fn#Footnote 2.1 — seven|seven]] lamps will give light in front of the lampstand.
 
 ## v3
 
@@ -12,7 +12,7 @@ And Aaron did so; he set up its lamps to give light in front of the lampstand, a
 
 ## v4
 
-Now this was the workmanship of the lampstand, beaten work of gold; from its base to its flowers it was beaten work. According to the pattern which Jehovah had shown Moses, so he made the lampstand.
+Now this was the workmanship of the lampstand, beaten work of gold; from its base to its flowers it was beaten work. According to the [[Numbers-08.fn#Footnote 4.1 — pattern|pattern]] which Jehovah had shown Moses, so he made the lampstand.
 
 ## v5
 
@@ -24,7 +24,7 @@ Take the Levites from among the children of Israel and cleanse them.
 
 ## v7
 
-And thus you shall do to them to cleanse them: Sprinkle the water of purification upon them, and let them pass a razor over all their flesh and wash their clothes and cleanse themselves.
+And thus you shall do to them to [[Numbers-08.fn#Footnote 7.1 — cleanse|cleanse]] them: Sprinkle the water of purification upon them, and let them pass a razor over all their flesh and wash their clothes and cleanse themselves.
 
 ## v8
 
@@ -36,15 +36,15 @@ And you shall present the Levites before the Tent of Meeting and gather the whol
 
 ## v10
 
-And you shall present the Levites before Jehovah, and the children of Israel shall lay their hands upon the Levites.
+And you shall present the Levites before Jehovah, and the children of Israel shall [[Numbers-08.fn#Footnote 10.1 — lay|lay]] their hands upon the Levites.
 
 ## v11
 
-And Aaron shall offer the Levites before Jehovah as a wave offering from the children of Israel, that they may do the service of Jehovah.
+And Aaron shall offer the Levites before Jehovah as a [[Numbers-08.fn#Footnote 11.1 — wave|wave]] offering from the children of Israel, that they may do the service of Jehovah.
 
 ## v12
 
-And the Levites shall lay their hands upon the heads of the bulls, and you shall offer the one as a sin offering and the other as a burnt offering to Jehovah to make expiation for the Levites.
+And the Levites shall [[Numbers-08.fn#Footnote 12.1 — lay|lay]] their hands upon the heads of the bulls, and you shall offer the one as a sin offering and the other as a burnt offering to Jehovah to make expiation for the Levites.
 
 ## v13
 
@@ -92,11 +92,11 @@ Then Jehovah spoke to Moses, saying,
 
 ## v24
 
-This is what applies to the Levites: From twenty-five years old and upward they shall go in to perform the service in the work of the Tent of Meeting.
+This is what applies to the Levites: From [[Numbers-08.fn#Footnote 24.1 — twenty-five|twenty-five]] years old and upward they shall go in to perform the service in the work of the Tent of Meeting.
 
 ## v25
 
-And from the age of fifty years they shall retire from the service in the work and shall serve no more.
+And from the age of fifty years they shall [[Numbers-08.fn#Footnote 25.1 — retire|retire]] from the service in the work and shall serve no more.
 
 ## v26
 

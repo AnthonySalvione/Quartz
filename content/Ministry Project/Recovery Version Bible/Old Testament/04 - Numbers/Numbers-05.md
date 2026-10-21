@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Command the children of Israel that they send out of the camp every leper and everyone that has a discharge and everyone who is unclean because of a dead person.
+Command the children of Israel that they send out of the camp every [[Numbers-05.fn#Footnote 2.1 — leper|leper]] and everyone that has a [[Numbers-05.fn#Footnote 2.1 — leper|discharge]] and everyone who is unclean because of a [[Numbers-05.fn#Footnote 2.1 — leper|dead]] person.
 
 ## v3
 
@@ -24,11 +24,11 @@ Speak to the children of Israel, When a man or woman commits any sin that men co
 
 ## v7
 
-Then they shall confess their sin which they have committed, and he shall make restitution according to its principal for his wrong and add to it one-fifth of it and give it to the one whom he has wronged.
+Then they shall [[Numbers-05.fn#Footnote 7.1 — confess|confess]] their sin which they have committed, and he shall [[Numbers-05.fn#Footnote 7.1 — confess|make]] restitution according to its principal for his wrong and add to it one-fifth of it and give it to the one whom he has wronged.
 
 ## v8
 
-But if the man has no kinsman to whom restitution may be made for the wrong, the restitution which is made for the wrong goes to Jehovah for the priest, in addition to the ram of the expiation, by which expiation is made for him.
+But if the man has no [[Numbers-05.fn#Footnote 8.1 — kinsman|kinsman]] to whom restitution may be made for the wrong, the restitution which is made for the wrong goes to Jehovah for the priest, in addition to the [[Numbers-05.fn#Footnote 8.2 — ram|ram]] of the expiation, by which expiation is made for him.
 
 ## v9
 
@@ -52,11 +52,11 @@ And a man lies with her and has sexual relations, and it is hidden from the eyes
 
 ## v14
 
-And a spirit of jealousy comes upon him, and he is jealous of his wife, and she has defiled herself; or if a spirit of jealousy comes upon him, and he is jealous of his wife, and she has not defiled herself;
+And a spirit of [[Numbers-05.fn#Footnote 14.1 — jealousy|jealousy]] comes upon him, and he is jealous of his wife, and she has defiled herself; or if a spirit of jealousy comes upon him, and he is jealous of his wife, and she has not defiled herself;
 
 ## v15
 
-Then the man shall bring his wife to the priest and bring her offering for her, a tenth of an ephah of barley meal. He shall pour no oil upon it nor put frankincense on it; for it is a meal offering of jealousy, a meal offering of remembrance, bringing iniquity to remembrance.
+Then the man shall bring his wife to the [[Numbers-05.fn#Footnote 15.1 — priest|priest]] and bring her offering for her, a tenth of an ephah of barley meal. He shall pour no oil upon it nor put frankincense on it; for it is a meal offering of jealousy, a [[Numbers-05.fn#Footnote 15.2 — meal|meal]] offering of remembrance, bringing iniquity to remembrance.
 
 ## v16
 
@@ -68,7 +68,7 @@ And the priest shall take holy water in an earthen vessel, and the priest shall 
 
 ## v18
 
-And the priest shall set the woman before Jehovah and let the hair of the woman’s head go loose and put the meal offering of remembrance in her hands, which is the meal offering of jealousy, and in the hand of the priest shall be the water of bitterness that brings the curse.
+And the priest shall set the woman before Jehovah and let the [[Numbers-05.fn#Footnote 18.1 — hair|hair]] of the woman’s head go loose and put the meal offering of remembrance in her hands, which is the meal offering of jealousy, and in the hand of the priest shall be the water of bitterness that brings the curse.
 
 ## v19
 
@@ -84,7 +84,7 @@ Then the priest shall make the woman take an oath with the oath of cursing, and 
 
 ## v22
 
-And this water that brings the curse shall go into your bowels and make your womb swell and your thigh waste away. And the woman shall say, Amen, Amen.
+And this water that brings the curse shall go into your bowels and make your womb swell and your thigh waste away. And the woman shall say, [[Numbers-05.fn#Footnote 22.1 — Amen|Amen]], Amen.
 
 ## v23
 
@@ -96,7 +96,7 @@ And he shall make the woman drink the water of bitterness that brings the curse;
 
 ## v25
 
-And the priest shall take the meal offering of jealousy out of the woman’s hand, and he shall wave the meal offering before Jehovah and bring it to the altar.
+And the priest shall take the meal offering of jealousy out of the woman’s hand, and he shall [[Numbers-05.fn#Footnote 25.1 — wave|wave]] the meal offering before Jehovah and bring it to the altar.
 
 ## v26
 
@@ -104,7 +104,7 @@ And the priest shall take a handful of the meal offering as its memorial portion
 
 ## v27
 
-And when he has made her drink the water, then if she has defiled herself and has acted unfaithfully to her husband, the water that brings the curse will enter into her and become bitter, and her womb will swell, and her thigh will waste away; and the woman shall be a curse among her people.
+And when he has made her drink the water, then if she has defiled herself and has acted unfaithfully to her husband, the water that brings the curse will enter into her and become bitter, and her [[Numbers-05.fn#Footnote 27.1 — womb|womb]] will swell, and her [[Numbers-05.fn#Footnote 27.1 — womb|thigh]] will waste away; and the woman shall be a curse among her people.
 
 ## v28
 

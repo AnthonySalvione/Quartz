@@ -4,7 +4,7 @@ And Moses gathered all the assembly of the children of Israel and said to them, 
 
 ## v2
 
-Six days shall work be done, but on the seventh day you shall have a Sabbath of complete rest, holy to Jehovah; whoever does any work on it shall be put to death.
+Six days shall work be done, but on the seventh day you shall have a [[Exodus-35.fn#Footnote 2.1 — Sabbath|Sabbath]] of complete rest, holy to Jehovah; whoever does any work on it shall be put to death.
 
 ## v3
 
@@ -16,7 +16,7 @@ And Moses spoke to all the assembly of the children of Israel, saying, This is w
 
 ## v5
 
-Take from among yourselves a heave offering to Jehovah; whoever is of a willing heart, let him bring it, the heave offering of Jehovah: gold and silver and bronze,
+[[Exodus-35.fn#Footnote 5.1 — Take|Take]] from among yourselves a [[Exodus-35.fn#Footnote 5.2 — heave|heave]] offering to Jehovah; whoever is of a willing heart, let him bring it, the heave offering of Jehovah: gold and silver and bronze,
 
 ## v6
 
@@ -36,7 +36,7 @@ And onyx stones and stones to be set for the ephod and for the breastplate.
 
 ## v10
 
-And let every man who is wise in heart among you come and make all that Jehovah has commanded:
+And let every man who is [[Exodus-35.fn#Footnote 10.1 — wise|wise]] in heart among you come and make all that Jehovah has commanded:
 
 ## v11
 
@@ -80,7 +80,7 @@ And all the assembly of the children of Israel departed from the presence of Mos
 
 ## v21
 
-And they came, everyone whose heart lifted him up and everyone whose spirit made him willing, and brought the heave offering of Jehovah for the work of the Tent of Meeting and for all its service and for the holy garments.
+And they came, everyone whose heart [[Exodus-35.fn#Footnote 21.1 — lifted|lifted]] him up and everyone whose [[Exodus-35.fn#Footnote 21.1 — lifted|spirit]] made him willing, and brought the heave offering of Jehovah for the work of the Tent of Meeting and for all its service and for the holy garments.
 
 ## v22
 
@@ -112,7 +112,7 @@ And the spices and the oil for the light and for the anointing oil and for the f
 
 ## v29
 
-The children of Israel brought a freewill offering to Jehovah, every man and woman whose heart made them willing to bring for all the work, which Jehovah had commanded through Moses to be done.
+The children of Israel brought a [[Exodus-35.fn#Footnote 29.1 — freewill|freewill]] offering to Jehovah, every man and woman whose heart made them willing to bring for all the work, which Jehovah had commanded through Moses to be done.
 
 ## v30
 
@@ -132,8 +132,8 @@ And in the cutting of stones for setting and in the carving of wood, to work in 
 
 ## v34
 
-And He has put in his heart to teach, both he and Oholiab the son of Ahisamach, of the tribe of Dan.
+And He has put in his heart to [[Exodus-35.fn#Footnote 34.1 — teach|teach]], both he and Oholiab the son of Ahisamach, of the tribe of Dan.
 
 ## v35
 
-He has filled them with wisdom of heart, to work all kinds of workmanship, of an engraver and of a skillful workman and of an embroiderer in blue and in purple and in scarlet strands and in fine linen, and of the weaver, even of those who do all kinds of workmanship and of those who fashion skillful designs.
+He has filled them with wisdom of heart, to work all kinds of workmanship, of an [[Exodus-35.fn#Footnote 35.1 — engraver|engraver]] and of a skillful workman and of an embroiderer in blue and in purple and in scarlet strands and in fine linen, and of the weaver, even of those who do all kinds of workmanship and of those who fashion skillful designs.

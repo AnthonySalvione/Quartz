@@ -8,7 +8,7 @@ And now, here is the king who goes before you. But I am old and gray, and my son
 
 ## v3
 
-Here I am; testify against me before Jehovah and before His anointed. Whose ox have I taken? Or whose donkey have I taken? Or whom have I defrauded? Whom have I oppressed? Or from whose hand have I taken a bribe in order to blind my eyes with it? Then I will restore it to you.
+[[1 Samuel-12.fn#Footnote 3.1 — Here|Here]] I am; testify against me before Jehovah and before His anointed. Whose ox have I taken? Or whose donkey have I taken? Or whom have I defrauded? Whom have I oppressed? Or from whose hand have I taken a bribe in order to blind my eyes with it? Then I will restore it to you.
 
 ## v4
 
@@ -40,11 +40,11 @@ Then they cried out to Jehovah and said, We have sinned, for we have forsaken Je
 
 ## v11
 
-And Jehovah sent Jerubbaal and Bedan and Jephthah and Samuel, and He delivered you from the hand of your enemies all around; and you dwelt securely.
+And Jehovah sent Jerubbaal and [[1 Samuel-12.fn#Footnote 11.1 — Bedan|Bedan]] and Jephthah and Samuel, and He delivered you from the hand of your enemies all around; and you dwelt securely.
 
 ## v12
 
-And when you saw that Nahash the king of the children of Ammon came against you, you said to me, No; but a king will reign over us, though Jehovah your God was your King.
+And when you saw that Nahash the king of the children of Ammon came against you, you said to me, [[1 Samuel-12.fn#Footnote 12.1 — No|No]]; but a king will reign over us, though Jehovah your God was your King.
 
 ## v13
 
@@ -88,7 +88,7 @@ For because of His great name Jehovah will not forsake His people, for Jehovah h
 
 ## v23
 
-Moreover as for me, far be it from me that I would sin against Jehovah by ceasing to pray for you, but I will instruct you in the good and right way.
+Moreover as for me, far be it from me that I would [[1 Samuel-12.fn#Footnote 23.1 — sin|sin]] against Jehovah by ceasing to pray for you, but I will instruct you in the good and right way.
 
 ## v24
 

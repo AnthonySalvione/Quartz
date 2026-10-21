@@ -4,11 +4,11 @@ Then David said, This is the house of Jehovah God, and this is the altar of the 
 
 ## v2
 
-And David ordered the gathering of the sojourners who were in the land of Israel. And he appointed masons to hew the wrought stones for the building of the house of God.
+[[1 Chronicles-22.fn#Footnote 2.1 — And|And]] David ordered the gathering of the sojourners who were in the land of Israel. And he appointed masons to hew the wrought stones for the building of the house of God.
 
 ## v3
 
-And David prepared iron in abundance for the nails of the doors of the gates and for the clasps; and bronze in abundance, without weight;
+And David [[1 Chronicles-22.fn#Footnote 3.1 — prepared|prepared]] iron in abundance for the nails of the doors of the gates and for the clasps; and bronze in abundance, without weight;
 
 ## v4
 
@@ -24,7 +24,7 @@ Then he called for Solomon his son and commanded him to build a house for Jehova
 
 ## v7
 
-And David said to Solomon, My son, as for me, it was on my heart to build a house for the name of Jehovah my God.
+And David said to [[1 Chronicles-22.fn#Footnote 7.1 — Solomon|Solomon]], My son, as for me, it was on my heart to build a house for the name of Jehovah my God.
 
 ## v8
 
@@ -32,11 +32,11 @@ But the word of Jehovah came to me, saying, You have shed blood abundantly and h
 
 ## v9
 
-Behold, a son will be born to you. He will be a man of rest, and I will give him rest from all his enemies around him, for Solomon will be his name, and I will give peace and quiet to Israel throughout his days.
+Behold, a son will be born to you. He will be a man of [[1 Chronicles-22.fn#Footnote 9.1 — rest|rest]], and I will give him rest from all his enemies around him, for Solomon will be his name, and I will give peace and quiet to Israel throughout his days.
 
 ## v10
 
-It is he who will build a house for My name; and he will be My son, and I will be his Father; and I will establish the throne of his kingdom over Israel forever.
+It is [[1 Chronicles-22.fn#Footnote 10.1 — he|he]] who will build a house for My name; and he will be My son, and I will be his Father; and I will establish the throne of his kingdom over Israel forever.
 
 ## v11
 

@@ -1,6 +1,6 @@
 ## v1
 
-Then the Angel of Jehovah went up from Gilgal to Bochim. And He said, I caused you to go up out from Egypt, and I brought you into the land that I swore to your fathers. And I said, I will never break My covenant with you,
+Then the [[Judges-02.fn#Footnote 1.1 — Angel|Angel]] of Jehovah went up from Gilgal to Bochim. And He said, I caused you to go up out from Egypt, and I brought you into the land that I swore to your fathers. And I said, I will never break My covenant with you,
 
 ## v2
 
@@ -16,7 +16,7 @@ And when the Angel of Jehovah had spoken these words to all the children of Isra
 
 ## v5
 
-And they called the name of that place Bochim. And they offered to Jehovah there.
+And they called the name of that place [[Judges-02.fn#Footnote 5.1 — Bochim|Bochim]]. And they offered to Jehovah there.
 
 ## v6
 
@@ -32,7 +32,7 @@ And Joshua the son of Nun, the servant of Jehovah, died at the age of one hundre
 
 ## v9
 
-And they buried him in the territory of his inheritance, in Timnath-heres, in the hill country of Ephraim, north of Mount Gaash.
+And they buried him in the territory of his inheritance, in [[Judges-02.fn#Footnote 9.1 — Timnath-heres|Timnath-heres]], in the hill country of Ephraim, north of Mount Gaash.
 
 ## v10
 
@@ -44,7 +44,7 @@ And the children of Israel did what was evil in the sight of Jehovah and served 
 
 ## v12
 
-And they forsook Jehovah, the God of their fathers, who brought them out from the land of Egypt; and they followed after other gods from among the gods of the peoples who surrounded them; and they worshipped them and provoked Jehovah to anger.
+And they [[Judges-02.fn#Footnote 12.1 — forsook|forsook]] Jehovah, the God of their fathers, who brought them out from the land of Egypt; and they followed after other gods from among the gods of the peoples who surrounded them; and they worshipped them and provoked Jehovah to anger.
 
 ## v13
 
@@ -84,7 +84,7 @@ I for My part will no longer dispossess from before them any of the nations that
 
 ## v22
 
-In order to test Israel through them as to whether or not they will keep the way of Jehovah by walking in it, as their fathers kept it.
+In order to test Israel through them as to whether or not they will keep the way of Jehovah by walking in [[Judges-02.fn#Footnote 22.1 — it|it]], as their fathers kept it.
 
 ## v23
 

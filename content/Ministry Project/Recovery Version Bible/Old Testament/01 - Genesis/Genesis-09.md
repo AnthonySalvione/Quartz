@@ -1,6 +1,6 @@
 ## v1
 
-And God blessed Noah and his sons and said to them, Be fruitful and multiply and fill the earth.
+And God blessed Noah and his sons and said to them, [[Genesis-09.fn#Footnote 1.1 — Be|Be]] fruitful and multiply and fill the earth.
 
 ## v2
 
@@ -8,7 +8,7 @@ And the fear of you and the terror of you shall be upon every animal of the eart
 
 ## v3
 
-Every moving thing that lives shall be food for you; just as I gave you the green herb, so I have given you everything.
+Every moving thing that lives shall be [[Genesis-09.fn#Footnote 3.1 — food|food]] for you; just as I gave you the green herb, so I have given you everything.
 
 ## v4
 
@@ -20,9 +20,9 @@ And indeed your lifeblood I will require; from every animal I will require it. A
 
 ## v6
 
-Whoever sheds man’s blood, /  
+[[Genesis-09.fn#Footnote 6.1 — Whoever|Whoever]] sheds man’s blood, /  
 By man shall his blood be shed, /  
-For in the image of God /  
+For in the [[Genesis-09.fn#Footnote 6.2 — image|image]] of God /  
 He made man.
 
 ## v7
@@ -36,7 +36,7 @@ Then God spoke to Noah and to his sons with him, saying,
 
 ## v9
 
-And I Myself now establish My covenant with you and with your seed after you
+And I Myself now establish My [[Genesis-09.fn#Footnote 9.1 — covenant|covenant]] with you and with your seed after you
 
 ## v10
 
@@ -52,7 +52,7 @@ And God said, This is the sign of the covenant which I am making between Me and 
 
 ## v13
 
-I set My bow in the clouds, and it shall be for a sign of a covenant between Me and the earth.
+I set My [[Genesis-09.fn#Footnote 13.1 — bow|bow]] in the clouds, and it shall be for a sign of a covenant between Me and the earth.
 
 ## v14
 
@@ -84,7 +84,7 @@ And Noah began to be a farmer, and he planted a vineyard.
 
 ## v21
 
-And he drank of the wine and became drunk. And he uncovered himself inside his tent.
+And he drank of the wine and became drunk. And he [[Genesis-09.fn#Footnote 21.1 — uncovered|uncovered]] himself inside his tent.
 
 ## v22
 
@@ -101,7 +101,7 @@ And Noah awoke from his wine and learned what his younger son had done to him.
 ## v25
 
 And he said,  
-Cursed be Canaan: /  
+[[Genesis-09.fn#Footnote 25.1 — Cursed|Cursed]] be Canaan: /  
 A servant of servants /  
 Shall he be to his brothers.
 
@@ -109,13 +109,13 @@ Shall he be to his brothers.
 
 And he said,  
 Blessed be Jehovah, /  
-The God of Shem; /  
+The God of [[Genesis-09.fn#Footnote 26.1 — Shem|Shem]]; /  
 And let Canaan be his servant.
 
 ## v27
 
 May God enlarge Japheth, /  
-And let him dwell in the tents of Shem, /  
+And let him dwell in the [[Genesis-09.fn#Footnote 27.1 — tents|tents]] of Shem, /  
 And let Canaan be his servant.
 
 ## v28

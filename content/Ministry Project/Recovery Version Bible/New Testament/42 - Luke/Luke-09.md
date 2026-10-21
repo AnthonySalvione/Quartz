@@ -3,15 +3,15 @@ Author: Luke
 ---
 ## v1
 
-And He called together the twelve and gave them power and authority over all the demons and to heal diseases.
+And He called together the [[Luke-09.fn#Footnote 1.1 — twelve|twelve]] and gave them power and [[Luke-09.fn#Footnote 1.2 — authority|authority]] over all the demons and to heal diseases.
 
 ## v2
 
-And He sent them to proclaim the kingdom of God and to heal the sick.
+And He sent them to proclaim the [[Luke-09.fn#Footnote 2.1 — kingdom|kingdom]] of God and to heal the sick.
 
 ## v3
 
-And He said to them, Take nothing for the journey, neither a staff nor a bag nor bread nor money, nor have two tunics apiece.
+And He said to them, Take nothing for the journey, neither a staff nor a bag [[Luke-09.fn#Footnote 3.1 — nor|nor]] bread nor money, nor have two tunics apiece.
 
 ## v4
 
@@ -35,7 +35,7 @@ And by some that Elijah had appeared, and by others that a certain prophet of th
 
 ## v9
 
-And Herod said, John I beheaded, but who is this concerning whom I hear such things? And he sought to see Him.
+And Herod said, John I [[Luke-09.fn#Footnote 9.1 — beheaded|beheaded]], but who is this concerning whom I hear such things? And he sought to see Him.
 
 ## v10
 
@@ -47,7 +47,7 @@ But the crowds found out and followed Him, and He welcomed them and spoke to the
 
 ## v12
 
-And the day began to decline, and the twelve came and said to Him, Send the crowd away so that they may go into the surrounding villages and countryside to lodge and find provisions, because we are here in a deserted place.
+And the [[Luke-09.fn#Footnote 12.1 — day|day]] began to decline, and the twelve came and said to Him, Send the crowd away so that they may go into the surrounding villages and [[Luke-09.fn#Footnote 12.2 — countryside|countryside]] to lodge and find provisions, because we are here in a deserted place.
 
 ## v13
 
@@ -55,7 +55,7 @@ But He said to them, You give them something to eat. But they said, We have no m
 
 ## v14
 
-For there were about five thousand men. And He said to His disciples, Make them recline in groups of about fifty each.
+For there were about five thousand men. And He said to His disciples, Make them recline in [[Luke-09.fn#Footnote 14.1 — groups|groups]] of about fifty each.
 
 ## v15
 
@@ -67,11 +67,11 @@ And He took the five loaves and the two fish, and looking up to heaven, He bless
 
 ## v17
 
-And they ate and were all satisfied. And what was left over among them was taken up, twelve handbaskets of broken pieces.
+And they ate and were all satisfied. And what was left over among them was taken up, [[Luke-09.fn#Footnote 17.1 — twelve|twelve]] handbaskets of broken pieces.
 
 ## v18
 
-And as He was praying alone, the disciples were with Him, and He questioned them, saying, Who do the crowds say that I am?
+And as He was praying alone, the disciples were with Him, and He [[Luke-09.fn#Footnote 18.1 — questioned|questioned]] them, saying, Who do the crowds say that I am?
 
 ## v19
 
@@ -87,7 +87,7 @@ But He charged them and commanded them to tell this to no one,
 
 ## v22
 
-Saying, The Son of Man must suffer many things, and be rejected of the elders and chief priests and scribes, and be killed, and on the third day be raised.
+Saying, The Son of Man must suffer many things, and be [[Luke-09.fn#Footnote 22.1 — rejected|rejected]] of the elders and chief priests and scribes, and be killed, and on the third day be raised.
 
 ## v23
 
@@ -95,11 +95,11 @@ And He said to them all, If anyone wants to come after Me, let him deny himself 
 
 ## v24
 
-For whoever wants to save his soul-life shall lose it; but whoever loses his soul-life for My sake, this one shall save it.
+For whoever wants to save his soul-life shall [[Luke-09.fn#Footnote 24.1 — lose|lose]] it; but whoever loses his soul-life for My sake, this one shall save it.
 
 ## v25
 
-For what is a man profited if he gains the whole world but loses or forfeits himself?
+For what is a man profited if he [[Luke-09.fn#Footnote 25.1 — gains|gains]] the whole world but loses or forfeits himself?
 
 ## v26
 
@@ -111,11 +111,11 @@ But I say to you truly, There are some of those standing here who shall by no me
 
 ## v28
 
-And about eight days after these words, He took with Him Peter and John and James, and went up into the mountain to pray.
+And about [[Luke-09.fn#Footnote 28.1 — eight|eight]] days after these words, He took with Him Peter and John and James, and went up into the mountain to pray.
 
 ## v29
 
-And as He prayed, the appearance of His face became different, and His garment dazzling white.
+And as He prayed, the appearance of His face became different, and His garment [[Luke-09.fn#Footnote 29.1 — dazzling|dazzling]] white.
 
 ## v30
 
@@ -139,11 +139,11 @@ And while he said these things, a cloud appeared and overshadowed them; and they
 
 ## v35
 
-And a voice came out of the cloud, saying, This is My Son, the Chosen One. Hear Him!
+And a voice came out of the cloud, [[Luke-09.fn#Footnote 35.1 — saying|saying]], This is My Son, the [[Luke-09.fn#Footnote 35.2 — Chosen|Chosen]] One. Hear Him!
 
 ## v36
 
-And when the voice had spoken, Jesus was found alone. And they kept silent and reported to no one in those days anything of what they had seen.
+And when the voice [[Luke-09.fn#Footnote 36.1 — had|had]] spoken, Jesus was found alone. And they kept silent and reported to no one in those days anything of what they had seen.
 
 ## v37
 
@@ -191,19 +191,19 @@ And Jesus, seeing the reasoning of their heart, took hold of a little child and 
 
 ## v48
 
-And He said to them, Whoever receives this little child because of My name receives Me; and whoever receives Me receives Him who sent Me; for he who is least among you all, this one is great.
+And He said to them, Whoever receives this little child [[Luke-09.fn#Footnote 48.1 — because|because]] of My name receives Me; and whoever receives Me receives Him who sent Me; for he who is least among you all, this one is great.
 
 ## v49
 
-And John answered and said, Master, we saw someone casting out demons in Your name, and we forbade him because he does not follow with us.
+And John answered and said, Master, we saw someone casting out demons in Your name, and we [[Luke-09.fn#Footnote 49.1 — forbade|forbade]] him because he does not follow with us.
 
 ## v50
 
-But Jesus said to him, Do not forbid him, for he who is not against you is for you.
+But Jesus said to him, Do [[Luke-09.fn#Footnote 50.1 — not|not]] forbid him, for [[Luke-09.fn#Footnote 50.2 — he|he]] who is not against you is for you.
 
 ## v51
 
-And as the days were being fulfilled for Him to be taken up, He steadfastly set His face to go to Jerusalem.
+And as the days were being fulfilled for Him to be taken up, He steadfastly set His face to go to [[Luke-09.fn#Footnote 51.1 — Jerusalem|Jerusalem]].
 
 ## v52
 
@@ -215,36 +215,36 @@ And they did not receive Him, because His face was set to go to Jerusalem.
 
 ## v54
 
-And seeing this, the disciples James and John said, Lord, do You want us to command fire to come down from heaven and consume them?
+And seeing this, the disciples James and John said, Lord, do You want us to [[Luke-09.fn#Footnote 54.1 — command|command]] fire to come down from heaven and consume [[Luke-09.fn#Footnote 54.2 — them|them]]?
 
 ## v55
 
-But turning, He rebuked them and said, You do not know of what kind of spirit you are.
+But turning, He rebuked them [[Luke-09.fn#Footnote 55.1 — and|and]] said, [[Luke-09.fn#Footnote 55.2 — You|You]] do not know of what kind of spirit you are.
 
 ## v56
 
-The Son of Man has not come to destroy men’s lives but to save them. And they went into another village.
+[[Luke-09.fn#Footnote 56.1 — The|The]] Son of Man has not come to destroy men’s [[Luke-09.fn#Footnote 56.2 — lives|lives]] but to save them. And they went into another village.
 
 ## v57
 
-And as they went along the road, someone said to Him, I will follow You wherever You go.
+And as they went along the road, [[Luke-09.fn#Footnote 57.1 — someone|someone]] said to Him, I will follow You wherever You go.
 
 ## v58
 
-And Jesus said to him, The foxes have holes, and the birds of heaven have roosts, but the Son of Man has nowhere to lay His head.
+And Jesus said to him, The foxes have holes, and the birds of heaven have roosts, but the Son of Man has [[Luke-09.fn#Footnote 58.1 — nowhere|nowhere]] to lay His head.
 
 ## v59
 
-And He said to another, Follow Me. But he said, Lord, permit me to go first and bury my father.
+And He said to [[Luke-09.fn#Footnote 59.1 — another|another]], Follow Me. But he said, Lord, permit me to go first and bury my father.
 
 ## v60
 
-But He said to him, Let the dead bury their own dead, but you go and announce the kingdom of God everywhere.
+But He said to him, Let the [[Luke-09.fn#Footnote 60.1 — dead|dead]] bury their own dead, but you go and [[Luke-09.fn#Footnote 60.2 — announce|announce]] the kingdom of God everywhere.
 
 ## v61
 
-And another also said, I will follow You, Lord; but first permit me to say farewell to those in my house.
+And [[Luke-09.fn#Footnote 61.1 — another|another]] also said, I will follow You, Lord; but first permit me to say farewell to those in my house.
 
 ## v62
 
-But Jesus said to him, No one who puts his hand on the plow and looks behind is fit for the kingdom of God.
+But Jesus said to him, No one who puts his hand on the [[Luke-09.fn#Footnote 62.1 — plow|plow]] and looks behind is fit for the kingdom of God.

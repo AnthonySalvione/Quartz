@@ -12,7 +12,7 @@ And David sent and inquired about the woman. And someone said, This is none othe
 
 ## v4
 
-And David sent messengers and took her; and she came to him, and he lay with her. (Now she had just purified herself from her uncleanness.) And she returned to her house.
+And David sent messengers and took her; and she came to him, and he [[2 Samuel-11.fn#Footnote 4.1 — lay|lay]] with her. (Now she had just purified herself from her uncleanness.) And she returned to her house.
 
 ## v5
 

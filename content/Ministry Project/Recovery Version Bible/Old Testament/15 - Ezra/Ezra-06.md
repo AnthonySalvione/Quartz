@@ -84,4 +84,4 @@ And the children of Israel who returned from the captivity and all who had separ
 
 ## v22
 
-And held the Feast of Unleavened Bread seven days with joy; for Jehovah had made them joyful and had turned the heart of the king of Assyria to them, to strengthen their hands in the work of the house of God, the God of Israel.
+And held the Feast of Unleavened Bread seven days with joy; for Jehovah had made them joyful and had turned the heart of the [[Ezra-06.fn#Footnote 22.1 — king|king]] of Assyria to them, to strengthen their hands in the work of the house of God, the God of Israel.

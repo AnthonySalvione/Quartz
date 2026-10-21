@@ -24,7 +24,7 @@ Righteous and upright is He.
 
 ## v5
 
-Corruptly have they dealt with Him — their blemish is not His sons —  
+Corruptly have they dealt with Him — their blemish is not His [[Deuteronomy-32.fn#Footnote 5.1 — sons|sons]] —  
 A twisted and crooked generation are they.
 
 ## v6
@@ -44,7 +44,7 @@ Your elders, and they will tell you.
 ## v8
 
 When the Most High gave the nations their inheritance,  
-When He divided the sons of man,  
+When He divided the sons of [[Deuteronomy-32.fn#Footnote 8.1 — man|man]],  
 He set the borders of the peoples  
 According to the number of Israel’s children.
 
@@ -89,7 +89,7 @@ And the blood of the grape you drank as fermenting wine.
 
 ## v15
 
-But Jeshurun grew fat and kicked —  
+But [[Deuteronomy-32.fn#Footnote 15.1 — Jeshurun|Jeshurun]] grew fat and kicked —  
 You have become fat, you have grown thick, you have gorged yourself —  
 And forsook God, who made him,  
 And treated the Rock of his salvation disdainfully.
@@ -101,7 +101,7 @@ With abominations they provoked Him to anger.
 
 ## v17
 
-They sacrificed to demons, to those who were no god,  
+They sacrificed to [[Deuteronomy-32.fn#Footnote 17.1 — demons|demons]], to those who were no god,  
 To gods they did not know,  
 To new ones who had recently come up,  
 Before whom your fathers had not shuddered.
@@ -126,14 +126,14 @@ Children in whom is no faithfulness.
 ## v21
 
 They have made Me jealous with a non-God;  
-They have provoked Me to anger with their vanities.  
+They have provoked Me to anger with their [[Deuteronomy-32.fn#Footnote 21.1 — vanities|vanities]].  
 Hence I will make them jealous with a non-people;  
 With a foolish nation I will provoke them to anger.
 
 ## v22
 
 For a fire is kindled in My anger  
-And burns unto nethermost Sheol.  
+And burns unto nethermost [[Deuteronomy-32.fn#Footnote 22.1 — Sheol|Sheol]].  
 And it devours the earth and its produce  
 And sets ablaze the foundations of the mountains.
 
@@ -217,7 +217,7 @@ And the things destined to happen to them hasten.
 
 ## v36
 
-For Jehovah will execute judgment for His people,  
+For Jehovah will [[Deuteronomy-32.fn#Footnote 36.1 — execute|execute]] judgment for His people,  
 And He will have compassion on His servants,  
 When He sees that their support is gone,  
 And that neither fettered nor free remain.
@@ -232,7 +232,7 @@ The rock they sought refuge in,
 Who ate the fat of their sacrifices,  
 And drank the wine of their drink offering?  
 Let them rise up and help you;  
-Let them be a shelter over you.
+Let [[Deuteronomy-32.fn#Footnote 38.1 — them|them]] be a shelter over you.
 
 ## v39
 
@@ -259,11 +259,11 @@ And those who hate Me will I recompense.
 I will make My arrows drunk with blood,  
 And My sword will devour flesh —  
 With the blood of the slain and of the captives,  
-The flesh of the long-haired leaders of the enemy.
+The flesh of the long-haired [[Deuteronomy-32.fn#Footnote 42.1 — leaders|leaders]] of the enemy.
 
 ## v43
 
-Shout joyously, you nations, with His people,  
+Shout [[Deuteronomy-32.fn#Footnote 43.1 — joyously|joyously]], you nations, with His people,  
 Because He will avenge the blood of His servants,  
 And He will repay His adversaries with vengeance  
 And will cover the guilt of His land and of His people.
@@ -298,8 +298,8 @@ And die in the mountain to which you are going up, and be gathered to your peopl
 
 ## v51
 
-Because you were unfaithful to Me among the children of Israel at the waters of Meribah-kadesh, in the wilderness of Zin; because you did not sanctify Me among the children of Israel.
+Because [[Deuteronomy-32.fn#Footnote 51.1 — you|you]] were unfaithful to Me among the children of Israel at the waters of Meribah-kadesh, in the wilderness of Zin; because [[Deuteronomy-32.fn#Footnote 51.1 — you|you]] did not [[Deuteronomy-32.fn#Footnote 51.2 — sanctify|sanctify]] Me among the children of Israel.
 
 ## v52
 
-But from a distance you shall see the land, yet you shall not go there into the land which I am giving to the children of Israel.
+But from a distance you shall see the land, yet you shall [[Deuteronomy-32.fn#Footnote 52.1 — not|not]] go there into the land which I am giving to the children of Israel.

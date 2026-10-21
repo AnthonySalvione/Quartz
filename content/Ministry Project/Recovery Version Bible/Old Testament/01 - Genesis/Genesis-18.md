@@ -4,7 +4,7 @@ And Jehovah appeared to him by the oaks of Mamre as he was sitting at the entran
 
 ## v2
 
-And he lifted up his eyes and looked, and there were three men standing opposite him. And when he saw them, he ran from the entrance of the tent to meet them. And he bowed down to the earth
+And he lifted up his eyes and looked, and there were three [[Genesis-18.fn#Footnote 2.1 — men|men]] standing opposite him. And when he saw them, he ran from the entrance of the tent to meet them. And he bowed down to the earth
 
 ## v3
 
@@ -20,7 +20,7 @@ And let me fetch a morsel of bread that you may sustain yourselves. After that y
 
 ## v6
 
-And Abraham hurried into the tent to Sarah and said, Quickly prepare three measures of fine flour, knead it, and make cakes.
+And Abraham hurried into the tent to Sarah and said, Quickly prepare three [[Genesis-18.fn#Footnote 6.1 — measures|measures]] of fine flour, knead it, and make [[Genesis-18.fn#Footnote 6.2 — cakes|cakes]].
 
 ## v7
 
@@ -52,7 +52,7 @@ And Jehovah said to Abraham, Why did Sarah laugh, saying, Shall I indeed bear a 
 
 ## v14
 
-Is anything too marvelous for Jehovah? At the appointed time I will return to you, according to the time of life, and Sarah shall have a son.
+Is anything too marvelous for Jehovah? At the [[Genesis-18.fn#Footnote 14.1 — appointed|appointed]] time I will return to you, according to the time of life, and Sarah shall have a son.
 
 ## v15
 
@@ -64,7 +64,7 @@ And the men rose up from there and looked down upon Sodom. And Abraham walked wi
 
 ## v17
 
-And Jehovah said, Shall I hide from Abraham what I am about to do,
+And Jehovah said, [[Genesis-18.fn#Footnote 17.1 — Shall|Shall]] I hide from Abraham what I am about to do,
 
 ## v18
 
@@ -84,11 +84,11 @@ I shall go down and see whether they have done altogether according to its outcr
 
 ## v22
 
-And the men turned from there and went toward Sodom, while Abraham remained standing before Jehovah.
+And the men turned from there and went toward Sodom, while Abraham [[Genesis-18.fn#Footnote 22.1 — remained|remained]] standing before Jehovah.
 
 ## v23
 
-And Abraham came near and said, Will You indeed destroy the righteous with the wicked?
+And Abraham came near and said, Will You indeed destroy the [[Genesis-18.fn#Footnote 23.1 — righteous|righteous]] with the wicked?
 
 ## v24
 
@@ -96,7 +96,7 @@ Suppose there are fifty righteous within the city; will You indeed destroy and n
 
 ## v25
 
-Far be it from You to do such a thing, to put to death the righteous with the wicked, so that the righteous should be as the wicked. Far be it from You! Shall the Judge of all the earth not do justly?
+[[Genesis-18.fn#Footnote 25.1 — Far|Far]] be it from You to do such a thing, to put to death the righteous with the wicked, so that the righteous should be as the wicked. Far be it from You! Shall the Judge of all the earth not do justly?
 
 ## v26
 
@@ -128,4 +128,4 @@ And he said, Oh let the Lord not be angry if I speak yet once more. Suppose ten 
 
 ## v33
 
-And Jehovah went away as soon as He had finished speaking with Abraham, and Abraham returned to his place.
+And Jehovah went away as soon as He had finished [[Genesis-18.fn#Footnote 33.1 — speaking|speaking]] with Abraham, and Abraham returned to his place.

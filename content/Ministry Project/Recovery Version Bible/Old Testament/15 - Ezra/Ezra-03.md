@@ -4,7 +4,7 @@ And when the seventh month came, and the children of Israel were in the cities, 
 
 ## v2
 
-Then Jeshua the son of Jozadak rose up, along with his brothers the priests and Zerubbabel the son of Shealtiel and his brothers, and they built the altar of the God of Israel to offer burnt offerings upon it, as it is written in the law of Moses the man of God.
+Then [[Ezra-03.fn#Footnote 2.1 — Jeshua|Jeshua]] the son of Jozadak rose up, along with his brothers the priests and Zerubbabel the son of Shealtiel and his brothers, and they built the altar of the God of Israel to offer burnt offerings upon it, as it is written in the law of Moses the man of God.
 
 ## v3
 
@@ -12,7 +12,7 @@ And they set up the altar upon its bases, for fear was upon them because of the 
 
 ## v4
 
-And they held the Feast of Tabernacles, as it is written, and offered the daily burnt offerings by number according to the ordinance as the duty of every day required;
+And they held the [[Ezra-03.fn#Footnote 4.1 — Feast|Feast]] of Tabernacles, as it is written, and offered the daily burnt offerings by number according to the ordinance as the duty of every day required;
 
 ## v5
 

@@ -8,7 +8,7 @@ And David sent the people out, a third under the hand of Joab and a third under 
 
 ## v3
 
-But the people said, You shall not go forth; for if we flee off, they will not care about us; and if half of us die, they will not care about us. But you are worth ten thousand of us; therefore it is better for you to be available to help us from the city.
+But the people said, You shall not go forth; for if we flee off, they will not care about us; and if half of us die, they will not care about us. [[2 Samuel-18.fn#Footnote 3.1 — But|But]] you are worth ten thousand of us; therefore it is better for you to be available to help us from the city.
 
 ## v4
 

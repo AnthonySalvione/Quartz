@@ -4,35 +4,35 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Speak to the children of Israel and say to them, When a man makes a special vow to Jehovah, it shall be according to your valuation of persons.
+Speak to the children of Israel and say to them, When a man [[Leviticus-27.fn#Footnote 2.1 — makes|makes]] a special vow to Jehovah, it shall be according to your [[Leviticus-27.fn#Footnote 2.2 — valuation|valuation]] of persons.
 
 ## v3
 
-If your valuation is for the male from twenty years old even to sixty years old, then your valuation shall be fifty shekels of silver according to the shekel of the sanctuary.
+If your valuation is for the [[Leviticus-27.fn#Footnote 3.1 — male|male]] from twenty years old even to sixty years old, then your valuation shall be fifty shekels of silver according to the shekel of the sanctuary.
 
 ## v4
 
-And if it is for a female, then your valuation shall be thirty shekels.
+And if it is for a [[Leviticus-27.fn#Footnote 4.1 — female|female]], then your valuation shall be thirty shekels.
 
 ## v5
 
-And if it is for one aged from five years old even to twenty years old, then your valuation for the male shall be twenty shekels and for the female ten shekels.
+And if it is for one aged from [[Leviticus-27.fn#Footnote 5.1 — five|five]] years old even to twenty years old, then your valuation for the male shall be twenty shekels and for the female ten shekels.
 
 ## v6
 
-And if it is for one aged from a month old even to five years old, then your valuation for the male shall be five shekels of silver, and for the female your valuation shall be three shekels of silver.
+And if it is for one aged from a [[Leviticus-27.fn#Footnote 6.1 — month|month]] old even to five years old, then your valuation for the male shall be five shekels of silver, and for the female your valuation shall be three shekels of silver.
 
 ## v7
 
-And if it is for one aged from sixty years old and upward, if it is for a male, then your valuation shall be fifteen shekels, and for the female ten shekels.
+And if it is for one aged from [[Leviticus-27.fn#Footnote 7.1 — sixty|sixty]] years old and upward, if it is for a male, then your valuation shall be fifteen shekels, and for the female ten shekels.
 
 ## v8
 
-But if it is for him who is poorer than your valuation, then he shall be set before the priest, and the priest shall value him; according to the means of the one who vowed, the priest shall value him.
+But if it is for him who is poorer than your valuation, then he shall be set before the priest, and the priest shall value him; according to the [[Leviticus-27.fn#Footnote 8.1 — means|means]] of the one who vowed, the priest shall value him.
 
 ## v9
 
-And if it is for an animal which may be presented to Jehovah as an offering, anything which may be given to Jehovah shall be holy.
+And if it is for an animal which may be presented to Jehovah as an offering, anything which may be given to Jehovah shall be [[Leviticus-27.fn#Footnote 9.1 — holy|holy]].
 
 ## v10
 
@@ -40,7 +40,7 @@ He may not exchange it or substitute it, either a good one for a bad one or a ba
 
 ## v11
 
-And if his vow is for any unclean animal, which may not be presented as an offering to Jehovah, then he shall set the animal before the priest,
+And if his vow is for any [[Leviticus-27.fn#Footnote 11.1 — unclean|unclean]] animal, which may not be presented as an offering to Jehovah, then he shall set the animal before the priest,
 
 ## v12
 
@@ -48,27 +48,27 @@ And the priest shall value it, whether it is good or bad; as you, the priest, va
 
 ## v13
 
-But if he ever redeems it, then he shall add one-fifth of it to your valuation.
+But if he ever redeems it, then he shall add [[Leviticus-27.fn#Footnote 13.1 — one-fifth|one-fifth]] of it to your valuation.
 
 ## v14
 
-And if anyone consecrates his house to be holy to Jehovah, then the priest shall value it, whether it is good or bad; just as the priest values it, so shall it stand.
+And if anyone [[Leviticus-27.fn#Footnote 14.1 — consecrates|consecrates]] his house to be holy to Jehovah, then the [[Leviticus-27.fn#Footnote 14.2 — priest|priest]] shall value it, whether it is good or bad; just as the priest values it, so shall it stand.
 
 ## v15
 
-And if the one who consecrated it redeems his house, then he shall add one-fifth of the money of your valuation to it, and it shall become his.
+And if the one who consecrated it redeems his house, then he shall add [[Leviticus-27.fn#Footnote 15.1 — one-fifth|one-fifth]] of the money of your valuation to it, and it shall become his.
 
 ## v16
 
-And if a man consecrates to Jehovah part of a field of his possession, then your valuation shall be according to the seed needed for it: a homer of barley seed at fifty shekels of silver.
+And if a man consecrates to Jehovah part of a [[Leviticus-27.fn#Footnote 16.1 — field|field]] of his possession, then your valuation shall be according to the [[Leviticus-27.fn#Footnote 16.2 — seed|seed]] needed for it: a homer of barley seed at fifty shekels of silver.
 
 ## v17
 
-If he consecrates his field from the year of jubilee, according to your valuation it shall stand.
+If he consecrates his field from the [[Leviticus-27.fn#Footnote 17.1 — year|year]] of jubilee, according to your valuation it shall stand.
 
 ## v18
 
-But if he consecrates his field after the jubilee, then the priest shall calculate the money for him according to the years which remain until the year of jubilee, and it shall be deducted from your valuation.
+But if he consecrates his field after the jubilee, then the priest shall calculate the money [[Leviticus-27.fn#Footnote 18.1 — for|for]] him according to the years which remain until the year of jubilee, and it shall be deducted from your valuation.
 
 ## v19
 
@@ -80,7 +80,7 @@ But if he does not redeem the field, or if he has sold the field to another man,
 
 ## v21
 
-But the field, when it goes out in the jubilee, shall be holy to Jehovah as a devoted field; its possession shall be the priest’s.
+But the [[Leviticus-27.fn#Footnote 21.1 — field|field]], when it goes out in the jubilee, shall be holy to Jehovah as a devoted field; its possession shall be the priest’s.
 
 ## v22
 
@@ -100,15 +100,15 @@ And every valuation of yours shall be according to the shekel of the sanctuary. 
 
 ## v26
 
-However no one shall consecrate the firstborn among animals, which as a firstborn already belongs to Jehovah; whether it is an ox or a sheep, it is Jehovah’s.
+However no one shall consecrate the [[Leviticus-27.fn#Footnote 26.1 — firstborn|firstborn]] among animals, which as a firstborn already belongs to Jehovah; whether it is an ox or a sheep, it is Jehovah’s.
 
 ## v27
 
-But if it is consecrated from among unclean animals, then he shall ransom it according to your valuation and shall add to it one-fifth of it. And if it is not redeemed, then it shall be sold according to your valuation.
+But if it is consecrated from among [[Leviticus-27.fn#Footnote 27.1 — unclean|unclean]] animals, then he shall ransom it according to your valuation and shall add to it one-fifth of it. And if it is not redeemed, then it shall be sold according to your valuation.
 
 ## v28
 
-Nevertheless anything which someone devotes to Jehovah out of all that he has, whether a human or an animal or a field of his possession, it shall not be sold or redeemed. Every devoted thing is most holy to Jehovah.
+Nevertheless anything which someone devotes to Jehovah out of all that he has, whether a human or an animal or a field of his possession, it shall not be sold or redeemed. Every devoted thing is [[Leviticus-27.fn#Footnote 28.1 — most|most]] holy to Jehovah.
 
 ## v29
 
@@ -116,7 +116,7 @@ No human beings who are devoted to destruction shall be ransomed; they shall sur
 
 ## v30
 
-And all the tithe of the land, whether of the seed of the land or of the fruit of the tree, is Jehovah’s; it is holy to Jehovah.
+And all the tithe of the land, whether of the seed of the land or of the fruit of the tree, is [[Leviticus-27.fn#Footnote 30.1 — Jehovah’s|Jehovah’s]]; it is holy to Jehovah.
 
 ## v31
 

@@ -4,11 +4,11 @@ And Moses spoke to the heads of the tribes of the children of Israel, saying, Th
 
 ## v2
 
-When a man vows a vow to Jehovah or swears an oath to bind himself by pledge, he shall not break his word; he shall do according to all that proceeds out of his mouth.
+When a man vows a [[Numbers-30.fn#Footnote 2.1 — vow|vow]] to Jehovah or swears an oath to bind himself by pledge, he shall not break his word; he shall do according to all that proceeds out of his mouth.
 
 ## v3
 
-But when a woman vows a vow to Jehovah or binds herself by pledge in her father’s house in her youth,
+But when a [[Numbers-30.fn#Footnote 3.1 — woman|woman]] vows a vow to Jehovah or binds herself by pledge in her [[Numbers-30.fn#Footnote 3.1 — woman|father’s]] house in her youth,
 
 ## v4
 
@@ -24,7 +24,7 @@ And if she gets married, while her vows are upon her or the rash utterance of he
 
 ## v7
 
-And her husband hears of it and is silent with respect to her on the day he hears it, then her vows will stand and her pledges by which she has bound herself will stand.
+And her [[Numbers-30.fn#Footnote 7.1 — husband|husband]] hears of it and is silent with respect to her on the day he hears it, then her vows will stand and her pledges by which she has bound herself will stand.
 
 ## v8
 

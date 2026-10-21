@@ -1,6 +1,6 @@
 ## v1
 
-Now Ahab had seventy sons in Samaria, and Jehu wrote letters and sent them to Samaria to the rulers of Jezreel, the elders, and to the guardians of the children of Ahab, saying,
+Now Ahab had seventy sons in Samaria, and Jehu wrote letters and sent them to Samaria to the rulers of Jezreel, the elders, and to the [[2 Kings-10.fn#Footnote 1.1 — guardians|guardians]] of the children of Ahab, saying,
 
 ## v2
 
@@ -44,7 +44,7 @@ So Jehu killed all that remained of the house of Ahab in Jezreel and all his gre
 
 ## v12
 
-Then he rose up and departed and came into Samaria. And while he was at the shepherds’ meeting place on the way,
+Then he rose up and departed and came into Samaria. And while he was at the [[2 Kings-10.fn#Footnote 12.1 — shepherds’|shepherds’]] meeting place on the way,
 
 ## v13
 
@@ -52,7 +52,7 @@ Jehu came upon the brothers of Ahaziah the king of Judah; and he said, Who are y
 
 ## v14
 
-And he said, Take them alive. And they took them alive and slew them, forty-two men, at the pit of the meeting place; and he left not one of them remaining.
+And he said, Take them alive. And they took them alive and slew them, forty-two men, at the pit of the [[2 Kings-10.fn#Footnote 14.1 — meeting|meeting]] place; and he left not one of them remaining.
 
 ## v15
 
@@ -96,7 +96,7 @@ And they came to offer sacrifices and burnt offerings. Now Jehu had stationed fo
 
 ## v25
 
-And when he finished offering the burnt offering, Jehu said to the guards and to the captains, Go in and slay them; let no one get out. And they struck them with the edge of the sword. And the guards and the captains threw them out, and they went to the inner room of the house of Baal.
+And when he finished offering the burnt offering, Jehu said to the guards and to the captains, Go in and slay them; let no one get out. And they struck them with the edge of the sword. And the guards and the captains threw them out, and they went to the [[2 Kings-10.fn#Footnote 25.1 — inner|inner]] room of the house of Baal.
 
 ## v26
 
@@ -112,11 +112,11 @@ Thus Jehu eradicated Baal from Israel.
 
 ## v29
 
-However as regards the sins of Jeroboam the son of Nebat, by which he caused Israel to sin, Jehu did not turn away from them, that is, the golden calves which were in Bethel and in Dan.
+However as regards the sins of Jeroboam the son of Nebat, [[2 Kings-10.fn#Footnote 29.1 — by|by]] which he caused Israel to sin, Jehu did not turn away from them, that is, the [[2 Kings-10.fn#Footnote 29.2 — golden|golden]] calves which were in Bethel and in Dan.
 
 ## v30
 
-And Jehovah said to Jehu, Because you have done well in executing what is right in My eyes and have dealt with the house of Ahab according to all that was in My heart, your sons to the fourth generation shall sit on the throne of Israel.
+And Jehovah said to Jehu, [[2 Kings-10.fn#Footnote 30.1 — Because|Because]] you have done well in executing what is right in My eyes and have dealt with the house of Ahab according to all that was in My heart, your sons to the fourth generation shall sit on the throne of Israel.
 
 ## v31
 

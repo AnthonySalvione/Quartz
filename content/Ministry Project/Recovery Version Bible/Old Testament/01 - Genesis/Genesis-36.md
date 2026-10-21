@@ -56,7 +56,7 @@ And these were the sons of Oholibamah the daughter of Anah and granddaughter of 
 
 ## v15
 
-These are the clans of the sons of Esau. The sons of Eliphaz the firstborn of Esau: Clan Teman, Clan Omar, Clan Zepho, Clan Kenaz,
+These are the [[Genesis-36.fn#Footnote 15.1 — clans|clans]] of the sons of Esau. The sons of Eliphaz the firstborn of Esau: Clan Teman, Clan Omar, Clan Zepho, Clan Kenaz,
 
 ## v16
 
@@ -92,7 +92,7 @@ And these are the sons of Shobal: Alvan and Manahath and Ebal, Shepho and Onam.
 
 ## v24
 
-And these are the sons of Zibeon: Aiah and Anah. This is the Anah who found the hot springs in the wilderness as he fed the donkeys of Zibeon his father.
+And these are the sons of Zibeon: Aiah and Anah. This is the Anah who found the [[Genesis-36.fn#Footnote 24.1 — hot|hot]] springs in the wilderness as he fed the donkeys of Zibeon his father.
 
 ## v25
 
@@ -144,7 +144,7 @@ And Hadad died, and Samlah of Masrekah reigned in his place.
 
 ## v37
 
-And Samlah died, and Shaul of Rehoboth by the River reigned in his place.
+And Samlah died, and Shaul of Rehoboth by the [[Genesis-36.fn#Footnote 37.1 — River|River]] reigned in his place.
 
 ## v38
 

@@ -1,14 +1,14 @@
 ## v1
 
-This is the book of the generations of Adam. When God created Adam, He made him in the likeness of God.
+This is the book of the [[Genesis-05.fn#Footnote 1.1 — generations|generations]] of Adam. [[Genesis-05.fn#Footnote 1.2 — When|When]] God created Adam, He made him in the [[Genesis-05.fn#Footnote 1.3 — likeness|likeness]] of God.
 
 ## v2
 
-Male and female He created them, and He blessed them and called their name Adam, on the day when they were created.
+Male and female He created them, and He blessed them and called [[Genesis-05.fn#Footnote 2.1 — their|their]] name Adam, on the day when they were created.
 
 ## v3
 
-And Adam lived one hundred thirty years and begot a son in his likeness according to his image, and he called his name Seth.
+And Adam [[Genesis-05.fn#Footnote 3.1 — lived|lived]] one hundred thirty years and [[Genesis-05.fn#Footnote 3.1 — lived|begot]] a son in his likeness according to his image, and he called his name Seth.
 
 ## v4
 
@@ -16,7 +16,7 @@ And the days of Adam after he had begotten Seth were eight hundred years, and he
 
 ## v5
 
-And all the days that Adam lived were nine hundred thirty years, and he died.
+And all the days that Adam lived were nine hundred thirty years, and he [[Genesis-05.fn#Footnote 5.1 — died|died]].
 
 ## v6
 
@@ -80,11 +80,11 @@ And all the days of Jared were nine hundred sixty-two years, and he died.
 
 ## v21
 
-And Enoch lived sixty-five years and begot Methuselah.
+And Enoch lived sixty-five years and begot [[Genesis-05.fn#Footnote 21.1 — Methuselah|Methuselah]].
 
 ## v22
 
-And Enoch walked with God after he had begotten Methuselah three hundred years, and he begot more sons and daughters.
+And Enoch [[Genesis-05.fn#Footnote 22.1 — walked|walked]] with God after he had begotten Methuselah three hundred years, and he begot more sons and daughters.
 
 ## v23
 
@@ -92,7 +92,7 @@ And all the days of Enoch were three hundred sixty-five years.
 
 ## v24
 
-And Enoch walked with God, and he was not, for God took him.
+And Enoch walked with God, and he was not, for God [[Genesis-05.fn#Footnote 24.1 — took|took]] him.
 
 ## v25
 
@@ -112,7 +112,7 @@ And Lamech lived a hundred eighty-two years and begot a son.
 
 ## v29
 
-And he called his name Noah, saying, This one will give us rest from our work and from the toil of our hands, which come because of the ground which Jehovah has cursed.
+And he called his name [[Genesis-05.fn#Footnote 29.1 — Noah|Noah]], saying, This one will [[Genesis-05.fn#Footnote 29.2 — give|give]] us rest from our work and from the toil of our hands, which come because of the ground which Jehovah has cursed.
 
 ## v30
 

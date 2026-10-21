@@ -21,8 +21,8 @@ And they are crushed in the gate; and there is no one to deliver them.
 ## v5
 
 The hungry eat his harvest  
-And even take it out from the thorns,  
-And the thirsty pant after his wealth.
+And [[Job-05.fn#Footnote 5.1 — even|even]] take it out from the thorns,  
+And the [[Job-05.fn#Footnote 5.2 — thirsty|thirsty]] pant after [[Job-05.fn#Footnote 5.3 — his|his]] wealth.
 
 ## v6
 
@@ -82,7 +82,7 @@ And Injustice stops her mouth.
 ## v17
 
 Indeed, blessed is the man whom God corrects;  
-Therefore do not reject the chastening of the Almighty.
+Therefore do not reject the [[Job-05.fn#Footnote 17.1 — chastening|chastening]] of the [[Job-05.fn#Footnote 17.2 — Almighty|Almighty]].
 
 ## v18
 
@@ -127,7 +127,7 @@ And your offspring like the grass of the earth.
 ## v26
 
 You will come to the grave at a ripe old age,  
-Like a shock of grain coming up in its season.
+Like a shock of grain [[Job-05.fn#Footnote 26.1 — coming|coming]] up in its season.
 
 ## v27
 

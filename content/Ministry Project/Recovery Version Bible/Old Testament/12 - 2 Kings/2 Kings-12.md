@@ -8,7 +8,7 @@ And Jehoash did what was right in the sight of Jehovah all the days in which Jeh
 
 ## v3
 
-However the high places were not removed; the people still sacrificed and burned incense in the high places.
+However the [[2 Kings-12.fn#Footnote 3.1 — high|high]] places were not removed; the people still sacrificed and burned incense in the high places.
 
 ## v4
 

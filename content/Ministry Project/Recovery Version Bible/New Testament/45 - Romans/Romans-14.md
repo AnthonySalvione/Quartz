@@ -3,7 +3,7 @@ Author: Paul
 ---
 ## v1
 
-Now him who is weak in faith receive, but not for the purpose of passing judgment on his considerations.
+[[Romans-14.fn#Footnote 1.1 — Now|Now]] him who is weak in faith [[Romans-14.fn#Footnote 1.2 — receive|receive]], but not for the purpose of passing judgment on his [[Romans-14.fn#Footnote 1.3 — considerations|considerations]].
 
 ## v2
 
@@ -11,7 +11,7 @@ One believes that he may eat all things, but he who is weak eats vegetables.
 
 ## v3
 
-He who eats, let him not despise him who does not eat; and he who does not eat, let him not judge him who eats, for God has received him.
+He who eats, let him [[Romans-14.fn#Footnote 3.1 — not|not]] despise him who does not eat; and he who does not eat, let him not judge him who eats, for [[Romans-14.fn#Footnote 3.2 — God|God]] has received him.
 
 ## v4
 
@@ -39,7 +39,7 @@ For Christ died and lived again for this, that He might be Lord both of the dead
 
 ## v10
 
-But you, why do you judge your brother? Or you, why do you despise your brother? For we will all stand before the judgment seat of God,
+But you, why do you judge your brother? Or you, why do you despise your brother? For we will all stand before the [[Romans-14.fn#Footnote 10.1 — judgment|judgment]] seat of God,
 
 ## v11
 
@@ -55,11 +55,11 @@ Therefore let us judge one another no longer, but rather judge this: not to put 
 
 ## v14
 
-I know and am persuaded in the Lord Jesus that there is nothing unclean of itself, except to him who considers something to be unclean; to that man it is unclean.
+I know and am persuaded in the Lord Jesus that there is nothing [[Romans-14.fn#Footnote 14.1 — unclean|unclean]] of itself, except to him who considers something to be [[Romans-14.fn#Footnote 14.1 — unclean|unclean]]; to that man it is [[Romans-14.fn#Footnote 14.1 — unclean|unclean]].
 
 ## v15
 
-For if because of food your brother is wounded, you no longer walk according to love. Do not destroy by your food that man for whom Christ died.
+For if because of food your brother is [[Romans-14.fn#Footnote 15.1 — wounded|wounded]], you no longer walk according to love. Do not destroy by your food that man for whom Christ died.
 
 ## v16
 
@@ -67,19 +67,19 @@ Therefore do not let your good be slandered;
 
 ## v17
 
-For the kingdom of God is not eating and drinking, but righteousness and peace and joy in the Holy Spirit.
+For the [[Romans-14.fn#Footnote 17.1 — kingdom|kingdom]] of God is not eating and drinking, but [[Romans-14.fn#Footnote 17.2 — righteousness|righteousness]] and peace and joy in the Holy Spirit.
 
 ## v18
 
-For he who serves Christ in this is well pleasing to God and approved by men.
+For he who [[Romans-14.fn#Footnote 18.1 — serves|serves]] Christ in this is well pleasing to God and approved by men.
 
 ## v19
 
-So then let us pursue the things of peace and the things for building up one another.
+So then let us [[Romans-14.fn#Footnote 19.1 — pursue|pursue]] the things of peace and the things for building up one another.
 
 ## v20
 
-Do not break down the work of God for the sake of food. All things indeed are clean, but it is evil for a man to eat while stumbling others.
+Do not break down the [[Romans-14.fn#Footnote 20.1 — work|work]] of God for the sake of food. All things indeed are clean, but it is evil for a man to eat while stumbling others.
 
 ## v21
 

@@ -9,7 +9,7 @@ Do you say, My righteousness is more than God’s,
 
 ## v3
 
-So that you say, What advantage is there to me,  
+So that you say, What advantage is there to [[Job-35.fn#Footnote 3.1 — me|me]],  
 What do I profit, more than if I had sinned?
 
 ## v4

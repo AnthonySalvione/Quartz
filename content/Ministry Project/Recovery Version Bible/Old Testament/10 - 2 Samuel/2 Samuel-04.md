@@ -12,7 +12,7 @@ And the Beerothites fled to Gittaim and have been sojourners there until this da
 
 ## v4
 
-Now Jonathan, Saul’s son, had a son who had crippled feet. He was five years old when the news came of Saul and Jonathan out of Jezreel. And his nurse took him up and fled. And as she hurried to flee, he fell and was made lame. And his name was Mephibosheth.
+Now Jonathan, Saul’s son, had a son who had crippled feet. He was five years old when the news came of Saul and Jonathan out of Jezreel. And his nurse took him up and fled. And as she hurried to flee, he fell and was made lame. And his name was [[2 Samuel-04.fn#Footnote 4.1 — Mephibosheth|Mephibosheth]].
 
 ## v5
 

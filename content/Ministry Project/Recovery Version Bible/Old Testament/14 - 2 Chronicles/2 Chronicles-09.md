@@ -100,7 +100,7 @@ And Solomon had four thousand stalls for horses and chariots; and twelve thousan
 
 ## v26
 
-And he was the ruler over all the kings from the River unto the land of the Philistines and unto the border of Egypt.
+And he was the ruler over all the kings from the [[2 Chronicles-09.fn#Footnote 26.1 — River|River]] unto the land of the Philistines and unto the border of Egypt.
 
 ## v27
 

@@ -20,7 +20,7 @@ So she went away from him and shut the door behind herself and her sons; and the
 
 ## v6
 
-And when she had filled the vessels, she said to her son, Bring me another vessel. But he said to her, There is no other vessel. And the oil stopped.
+And when she had [[2 Kings-04.fn#Footnote 6.1 — filled|filled]] the vessels, she said to her son, Bring me another vessel. But he said to her, There is no other vessel. And the oil stopped.
 
 ## v7
 
@@ -32,7 +32,7 @@ And one day Elisha was passing through Shunem; and there was a wealthy woman the
 
 ## v9
 
-And she said to her husband, Now I know that this man who continually passes through unto us is a holy man of God.
+And she said to her husband, Now I know that this man who continually passes through unto us is a holy [[2 Kings-04.fn#Footnote 9.1 — man|man]] of God.
 
 ## v10
 
@@ -136,7 +136,7 @@ Then he got up and lay on the child, and he put his mouth on his mouth and his e
 
 ## v35
 
-And he got down and walked about in the house once to and fro. Then he got up and stretched himself over him, and the boy sneezed seven times. Then the boy opened his eyes.
+And he got down and walked about in the house once to and fro. Then he got up and stretched himself over him, and the boy sneezed seven times. Then the boy [[2 Kings-04.fn#Footnote 35.1 — opened|opened]] his eyes.
 
 ## v36
 
@@ -160,7 +160,7 @@ And they poured out the stew for the men to eat. And while they were eating some
 
 ## v41
 
-And he said, Then bring some flour. And he threw it into the pot and said, Pour it out for the people that they may eat. And there was nothing harmful in the pot.
+And he said, Then bring some [[2 Kings-04.fn#Footnote 41.1 — flour|flour]]. And he threw it into the pot and said, Pour it out for the people that they may eat. And there was nothing harmful in the pot.
 
 ## v42
 
@@ -172,4 +172,4 @@ And his servant said, How can I set this before a hundred people? And he said, G
 
 ## v44
 
-So he set it before them; and they ate, and there was some left, according to the word of Jehovah.
+So he set it before them; and they ate, and there was [[2 Kings-04.fn#Footnote 44.1 — some|some]] left, according to the word of Jehovah.

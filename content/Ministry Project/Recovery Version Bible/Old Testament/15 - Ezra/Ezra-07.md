@@ -1,6 +1,6 @@
 ## v1
 
-Now after these things, in the reign of Artaxerxes the king of Persia, Ezra the son of Seraiah, the son of Azariah, the son of Hilkiah,
+Now after these things, in the reign of Artaxerxes the king of Persia, [[Ezra-07.fn#Footnote 1.1 — Ezra|Ezra]] the son of Seraiah, the son of Azariah, the son of Hilkiah,
 
 ## v2
 
@@ -20,7 +20,7 @@ The son of Abishua, the son of Phinehas, the son of Eleazar, the son of Aaron th
 
 ## v6
 
-This Ezra went up from Babylon, and he was a scribe skilled in the law of Moses, which Jehovah the God of Israel had given; and the king granted him all his request according to the hand of Jehovah his God upon him.
+This Ezra went up from Babylon, and he was a scribe skilled in the law of Moses, which Jehovah the God of Israel had given; and the king granted him all his [[Ezra-07.fn#Footnote 6.1 — request|request]] according to the [[Ezra-07.fn#Footnote 6.2 — hand|hand]] of Jehovah his God upon him.
 
 ## v7
 
@@ -36,7 +36,7 @@ For on the first day of the first month he began to go up from Babylon, and on t
 
 ## v10
 
-For Ezra had set his heart to seek the law of Jehovah and to do it and to teach His statutes and ordinances in Israel.
+For Ezra had set his heart to seek the law of Jehovah and to do it and to teach His [[Ezra-07.fn#Footnote 10.1 — statutes|statutes]] and ordinances in Israel.
 
 ## v11
 
@@ -44,7 +44,7 @@ Now this is the copy of the letter that King Artaxerxes gave to Ezra the priest,
 
 ## v12
 
-Artaxerxes, the king of kings, to Ezra the priest, the scribe of the law of the God of heaven, perfect peace. And now
+[[Ezra-07.fn#Footnote 12.1 — Artaxerxes|Artaxerxes]], the king of kings, to Ezra the priest, the scribe of the law of the God of heaven, perfect peace. And now
 
 ## v13
 

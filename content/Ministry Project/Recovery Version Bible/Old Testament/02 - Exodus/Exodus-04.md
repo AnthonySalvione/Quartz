@@ -8,7 +8,7 @@ And Jehovah said to him, What is this in your hand? And he said, A staff.
 
 ## v3
 
-And He said, Throw it on the ground. And he threw it on the ground, and it became a serpent; and Moses recoiled from it.
+And He said, Throw it on the ground. And he threw it on the ground, and it became a [[Exodus-04.fn#Footnote 3.1 — serpent|serpent]]; and Moses recoiled from it.
 
 ## v4
 
@@ -28,7 +28,7 @@ And He said, Put your hand into your bosom again — so he put his hand into his
 
 ## v8
 
-And if they do not believe you or heed the first sign, then they may believe the next sign.
+And if they do not [[Exodus-04.fn#Footnote 8.2 — believe|believe]] you or [[Exodus-04.fn#Footnote 8.1 — heed|heed]] the first sign, then they may believe the next sign.
 
 ## v9
 
@@ -36,7 +36,7 @@ And if they will not believe even these two signs or listen to your voice, then 
 
 ## v10
 
-And Moses said to Jehovah, Please, Lord, I am not a man of words, neither in the past, nor since You have spoken to Your servant, for I am slow of speech and slow of tongue.
+And Moses said to Jehovah, Please, Lord, I am not a man of words, neither in the past, nor since You have spoken to Your servant, for I am [[Exodus-04.fn#Footnote 10.1 — slow|slow]] of speech and slow of tongue.
 
 ## v11
 
@@ -52,7 +52,7 @@ And he said, Please, Lord, send word by sending someone else.
 
 ## v14
 
-And the anger of Jehovah was kindled against Moses, and He said, Is there not Aaron your brother the Levite? I know that he can certainly speak. And even now he is coming out to meet you; and when he sees you, he will be glad in his heart.
+And the anger of Jehovah was kindled against Moses, and He said, Is there not [[Exodus-04.fn#Footnote 14.1 — Aaron|Aaron]] your brother the Levite? I know that he can certainly speak. And even now he is coming out to meet you; and when he sees you, he will be glad in his heart.
 
 ## v15
 
@@ -84,7 +84,7 @@ And Jehovah said to Moses, When you go to return to Egypt, see that you perform 
 
 ## v22
 
-Then you shall say to Pharaoh, Thus says Jehovah, Israel is My son, My firstborn.
+Then you shall say to Pharaoh, Thus says Jehovah, Israel is My son, My [[Exodus-04.fn#Footnote 22.1 — firstborn|firstborn]].
 
 ## v23
 
@@ -96,7 +96,7 @@ And at the lodging place on the way, Jehovah came upon him and sought to put him
 
 ## v25
 
-Then Zipporah took a flint and cut off her son’s foreskin and cast it at Moses’ feet, and she said, You are indeed a bridegroom of blood to me!
+Then Zipporah took a flint and [[Exodus-04.fn#Footnote 25.1 — cut|cut]] off her son’s foreskin and cast it at Moses’ feet, and she said, You are indeed a [[Exodus-04.fn#Footnote 25.2 — bridegroom|bridegroom]] of blood to me!
 
 ## v26
 

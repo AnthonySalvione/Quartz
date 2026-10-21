@@ -21,16 +21,16 @@ I will ask of You, and You shall inform me.
 ## v5
 
 I had heard of You by the hearing of the ear,  
-But now my eye has seen You;
+But now my eye has [[Job-42.fn#Footnote 5.1 — seen|seen]] You;
 
 ## v6
 
-Therefore I abhor myself, and I repent  
+Therefore I [[Job-42.fn#Footnote 6.1 — abhor|abhor]] myself, and I repent  
 In dust and ashes.
 
 ## v7
 
-And after Jehovah had spoken these words to Job, Jehovah said to Eliphaz the Temanite, My anger is kindled against you and against your two friends, for you have not spoken concerning Me that which is right, as My servant Job has.
+And after Jehovah had spoken these words to Job, Jehovah said to Eliphaz the Temanite, My anger is kindled against you and against your two friends, for you have not spoken concerning Me that which is right, as My servant Job [[Job-42.fn#Footnote 7.1 — has|has]].
 
 ## v8
 
@@ -38,11 +38,11 @@ Now therefore take for yourselves seven bulls and seven rams, and go to My serva
 
 ## v9
 
-So Eliphaz the Temanite and Bildad the Shuhite and Zophar the Naamathite went and did as Jehovah told them; and Jehovah accepted Job.
+So [[Job-42.fn#Footnote 9.1 — Eliphaz|Eliphaz]] the Temanite and Bildad the Shuhite and Zophar the Naamathite went and did as Jehovah told them; and Jehovah accepted Job.
 
 ## v10
 
-And Jehovah turned the captivity of Job when he prayed for his friends, and Jehovah gave Job twice as much as he had before.
+And Jehovah turned the captivity of Job when he prayed for his friends, and Jehovah gave Job [[Job-42.fn#Footnote 10.1 — twice|twice]] as much as he had before.
 
 ## v11
 
@@ -70,4 +70,4 @@ And after this, Job lived a hundred and forty years; and he saw his children and
 
 ## v17
 
-And Job died, old and full of days.
+And Job died, old and full of [[Job-42.fn#Footnote 17.1 — days|days]].

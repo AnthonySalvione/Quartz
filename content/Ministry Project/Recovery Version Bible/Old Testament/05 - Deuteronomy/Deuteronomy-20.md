@@ -1,6 +1,6 @@
 ## v1
 
-When you go forth into battle against your enemies, and you see horse and chariot, a people more numerous than you, you shall not fear them; for Jehovah your God is with you, He who brought you up out of the land of Egypt.
+When you go forth into [[Deuteronomy-20.fn#Footnote 1.1 — battle|battle]] against your enemies, and you see horse and chariot, a people more numerous than you, you shall not fear them; for Jehovah your God is with you, He who brought you up out of the land of Egypt.
 
 ## v2
 
@@ -20,7 +20,7 @@ And the officers shall speak to the people, saying, Is there any man who has bui
 
 ## v6
 
-Is there any man who has planted a vineyard and has not partaken of it? Let him go and return to his house, lest he die in the battle and another man partake of it.
+Is there any man who has planted a vineyard and has not [[Deuteronomy-20.fn#Footnote 6.1 — partaken|partaken]] of it? Let him go and return to his house, lest he die in the battle and another man partake of it.
 
 ## v7
 
@@ -28,7 +28,7 @@ Is there any man who has gotten engaged to a woman and has not taken her to hims
 
 ## v8
 
-And the officers shall speak further to the people and say, Is there any man who is afraid and whose heart fails? Let him go and return to his house, so that the heart of his brothers does not melt like his heart.
+And the officers shall speak further to the people and say, Is there any man who is [[Deuteronomy-20.fn#Footnote 8.1 — afraid|afraid]] and whose heart fails? Let him go and return to his house, so that the heart of his brothers does not melt like his heart.
 
 ## v9
 
@@ -64,7 +64,7 @@ But of the cities of these peoples which Jehovah your God is giving you as an in
 
 ## v17
 
-But you must utterly destroy them: the Hittites and the Amorites, the Canaanites and the Perizzites, the Hivites and the Jebusites, just as Jehovah your God has commanded you,
+But you must utterly [[Deuteronomy-20.fn#Footnote 17.1 — destroy|destroy]] them: the Hittites and the Amorites, the Canaanites and the Perizzites, the Hivites and the Jebusites, just as Jehovah your God has commanded you,
 
 ## v18
 

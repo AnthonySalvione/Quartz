@@ -52,7 +52,7 @@ So I set men in the lowest places behind the wall, on the exposed areas, and I s
 
 ## v14
 
-And when I saw the situation, I rose up and said to the nobles and the rulers and the rest of the people, Do not be afraid of them; remember the great and awesome Lord, and fight for your brothers, your sons and your daughters, your wives and your houses.
+And when I saw the situation, I rose up and said to the nobles and the rulers and the rest of the people, Do not be afraid of them; remember the great and awesome Lord, and [[Nehemiah-04.fn#Footnote 14.1 — fight|fight]] for your brothers, your sons and your daughters, your wives and your houses.
 
 ## v15
 
@@ -68,7 +68,7 @@ Those who built the wall and those who carried burdens took the loads with one h
 
 ## v18
 
-And as for the builders, each had his sword strapped to his side, and so they built; and he who sounded the trumpet was beside me.
+And as for the builders, each had his sword strapped to his side, and so they built; and he who sounded the trumpet was beside [[Nehemiah-04.fn#Footnote 18.1 — me|me]].
 
 ## v19
 
@@ -88,4 +88,4 @@ I also said to the people at that time, Let every man and his servant spend the 
 
 ## v23
 
-So neither I nor my brothers nor my servants nor the men of the guard who followed me, none of us took off our clothes; each had his weapon at his right hand.
+So neither I nor my brothers nor my servants nor the men of the guard who followed me, none of us took off our clothes; [[Nehemiah-04.fn#Footnote 23.1 — each|each]] had his weapon at his right hand.

@@ -32,11 +32,11 @@ When you build a new house, you shall make a low wall around the edge of your ro
 
 ## v9
 
-You shall not sow your vineyard with two kinds of seed, lest the full produce, the seed which you sow, be forfeited to the sanctuary, as well as the increase of the vineyard.
+You shall not sow your vineyard with [[Deuteronomy-22.fn#Footnote 9.1 — two|two]] kinds of seed, lest the full produce, the seed which you sow, be forfeited to the sanctuary, as well as the increase of the vineyard.
 
 ## v10
 
-You shall not plow with an ox and a donkey together.
+You shall not [[Deuteronomy-22.fn#Footnote 10.1 — plow|plow]] with an ox and a donkey together.
 
 ## v11
 
@@ -44,11 +44,11 @@ You shall not wear clothing of mixed materials, of wool and linen together.
 
 ## v12
 
-You shall make twisted cords upon the four corners of your garment with which you cover yourself.
+You shall make [[Deuteronomy-22.fn#Footnote 12.1 — twisted|twisted]] cords upon the four corners of your garment with which you cover yourself.
 
 ## v13
 
-If a man takes a wife and goes in unto her, and later despises her,
+If a man takes a wife and goes in unto her, and later [[Deuteronomy-22.fn#Footnote 13.1 — despises|despises]] her,
 
 ## v14
 
@@ -100,7 +100,7 @@ But if the man finds the engaged girl in the field, and the man overpowers her a
 
 ## v26
 
-But to the girl you shall not do anything; there is no sin worthy of death with the girl; for as it is when a man rises up against his neighbor and slays him, so is this matter.
+But to the girl you shall not do anything; there is no sin worthy of death with the girl; for as it is when a man rises up against his neighbor and [[Deuteronomy-22.fn#Footnote 26.1 — slays|slays]] him, so is this matter.
 
 ## v27
 

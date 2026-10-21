@@ -12,7 +12,7 @@ And the eastern Arabah unto the Sea of Chinneroth, even unto the eastern side of
 
 ## v4
 
-And the territory of Og the king of Bashan, one of the remnant of the Rephaim, who dwelt in Ashtaroth and Edrei,
+And the territory of Og the king of Bashan, one of the remnant of the [[Joshua-12.fn#Footnote 4.1 — Rephaim|Rephaim]], who dwelt in Ashtaroth and Edrei,
 
 ## v5
 
@@ -20,7 +20,7 @@ And ruled over Mount Hermon and Salecah and all Bashan to the border of the Gesh
 
 ## v6
 
-Moses the servant of Jehovah and the children of Israel struck them. And Moses the servant of Jehovah gave this land as a possession to the Reubenites and the Gadites and the half-tribe of Manasseh.
+Moses the servant of Jehovah and the children of Israel struck them. And Moses the servant of Jehovah gave [[Joshua-12.fn#Footnote 6.1 — this|this]] land as a possession to the Reubenites and the Gadites and the half-tribe of Manasseh.
 
 ## v7
 
@@ -68,7 +68,7 @@ The king of Tappuah, one; / The king of Hepher, one;
 
 ## v18
 
-The king of Aphek, one; / The king of Lasharon, one;
+The king of Aphek, one; / The king of [[Joshua-12.fn#Footnote 18.1 — Lasharon|Lasharon]], one;
 
 ## v19
 

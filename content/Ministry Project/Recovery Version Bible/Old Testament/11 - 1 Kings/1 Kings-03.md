@@ -1,6 +1,6 @@
 ## v1
 
-And Solomon allied himself by marriage with Pharaoh, the king of Egypt, and he took Pharaoh’s daughter and brought her to the city of David until he completed the building of his house and the house of Jehovah and the wall of Jerusalem all around.
+And Solomon allied himself by marriage with Pharaoh, the king of Egypt, and he took [[1 Kings-03.fn#Footnote 1.1 — Pharaoh’s|Pharaoh’s]] daughter and brought her to the city of David until he completed the building of his house and the house of Jehovah and the wall of Jerusalem all around.
 
 ## v2
 
@@ -8,7 +8,7 @@ The people however were sacrificing in the high places, for there had still not 
 
 ## v3
 
-And Solomon loved Jehovah, walking in the statutes of David his father; however he sacrificed and burned incense in the high places.
+And Solomon loved Jehovah, walking in the statutes of David his father; however he sacrificed and burned incense in the [[1 Kings-03.fn#Footnote 3.1 — high|high]] places.
 
 ## v4
 
@@ -36,7 +36,7 @@ Give therefore to Your servant an understanding heart to judge Your people and t
 
 ## v10
 
-And this word seemed good in the sight of the Lord, that Solomon had asked for this matter.
+And this word seemed good in the sight of the [[1 Kings-03.fn#Footnote 10.1 — Lord|Lord]], that Solomon had asked for this matter.
 
 ## v11
 
@@ -56,7 +56,7 @@ And if you walk in My ways, keeping My statutes and My commandments, as David yo
 
 ## v15
 
-Then Solomon awoke, and behold, it was a dream. And he went to Jerusalem and stood before the Ark of the Covenant of Jehovah, and he offered up burnt offerings and offered peace offerings and made a feast for all his servants.
+Then Solomon awoke, and behold, it was a dream. And he went to Jerusalem and stood before the Ark of the Covenant of [[1 Kings-03.fn#Footnote 15.1 — Jehovah|Jehovah]], and he offered up burnt offerings and offered peace offerings and made a feast for all his servants.
 
 ## v16
 

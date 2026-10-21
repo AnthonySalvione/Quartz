@@ -1,10 +1,10 @@
 ## v1
 
-And from the blue and the purple and the scarlet strands, they made finely worked garments for ministering in the sanctuary, and made the holy garments for Aaron, as Jehovah had commanded Moses.
+And from the blue and the purple and the scarlet strands, they made finely worked [[Exodus-39.fn#Footnote 1.1 — garments|garments]] for ministering in the sanctuary, and made the holy [[Exodus-39.fn#Footnote 1.1 — garments|garments]] for Aaron, as Jehovah had commanded Moses.
 
 ## v2
 
-And Bezalel made the ephod of gold, of blue and purple and scarlet strands and fine twined linen.
+And [[Exodus-39.fn#Footnote 2.1 — Bezalel|Bezalel]] made the ephod of gold, of blue and purple and scarlet strands and fine twined linen.
 
 ## v3
 
@@ -16,11 +16,11 @@ They made shoulder pieces for it, joined to it; at the two edges it was joined.
 
 ## v5
 
-And the skillfully woven band, which was on it for its fastening, was of one piece with it and like it in workmanship, of gold, of blue and purple and scarlet strands and fine twined linen, as Jehovah had commanded Moses.
+And the skillfully woven band, which was on it [[Exodus-39.fn#Footnote 5.1 — for|for]] its fastening, was of one piece with it and like it in workmanship, of gold, of blue and purple and scarlet strands and fine twined linen, as Jehovah had commanded Moses.
 
 ## v6
 
-And they made the onyx stones enclosed in settings of gold, engraved with the engravings of a signet according to the names of the sons of Israel.
+And they made the onyx stones enclosed in [[Exodus-39.fn#Footnote 6.1 — settings|settings]] of gold, engraved with the engravings of a signet according to the names of the sons of Israel.
 
 ## v7
 
@@ -40,7 +40,7 @@ And they filled it with four rows of stones. The first row was a row of a sardiu
 
 ## v11
 
-And the second row, a carbuncle, a sapphire, and a diamond;
+And the second row, a [[Exodus-39.fn#Footnote 11.1 — carbuncle|carbuncle]], a sapphire, and a diamond;
 
 ## v12
 
@@ -48,7 +48,7 @@ And the third row, a jacinth, an agate, and an amethyst;
 
 ## v13
 
-And the fourth row, a chrysolite, an onyx, and a jasper. They were enclosed in settings of gold in their enclosures.
+And the fourth row, a [[Exodus-39.fn#Footnote 13.1 — chrysolite|chrysolite]], an onyx, and a jasper. They were enclosed in settings of gold in their enclosures.
 
 ## v14
 

@@ -8,7 +8,7 @@ Jehovah our God made a covenant with us at Horeb.
 
 ## v3
 
-Not with our fathers did Jehovah make this covenant, but with us, we who are all here alive today.
+Not with our fathers did Jehovah make this covenant, but with [[Deuteronomy-05.fn#Footnote 3.1 — us|us]], we who are all here alive today.
 
 ## v4
 
@@ -20,11 +20,11 @@ I was standing between Jehovah and you at that time to declare to you the word o
 
 ## v6
 
-I am Jehovah your God, who brought you out of the land of Egypt, out of the slave house;
+[[Deuteronomy-05.fn#Footnote 6.1 — I|I]] am Jehovah your God, who brought you out of the land of Egypt, out of the slave house;
 
 ## v7
 
-You shall have no other gods before Me.
+You shall have no other gods [[Deuteronomy-05.fn#Footnote 7.1 — before|before]] Me.
 
 ## v8
 
@@ -60,7 +60,7 @@ And you shall remember that you were a slave in the land of Egypt and that Jehov
 
 ## v16
 
-Honor your father and your mother, as Jehovah your God has commanded you, that your days may be extended and that it may be well with you upon the land which Jehovah your God is giving you.
+Honor your father and your mother, as Jehovah your God has commanded you, that your days may be [[Deuteronomy-05.fn#Footnote 16.1 — extended|extended]] and that it may be [[Deuteronomy-05.fn#Footnote 16.1 — extended|well]] with you upon the land which Jehovah your God is giving you.
 
 ## v17
 

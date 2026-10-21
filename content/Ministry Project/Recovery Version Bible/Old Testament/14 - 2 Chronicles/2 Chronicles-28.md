@@ -8,7 +8,7 @@ But he walked in the ways of the kings of Israel and even made molten images for
 
 ## v3
 
-And he burned incense in the valley of the son of Hinnom and burned his children in fire, according to the abominations of the nations that Jehovah had dispossessed before the children of Israel.
+And he burned incense in the [[2 Chronicles-28.fn#Footnote 3.1 — valley|valley]] of the son of Hinnom and burned his children in fire, according to the abominations of the nations that Jehovah had dispossessed before the children of Israel.
 
 ## v4
 

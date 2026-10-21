@@ -3,7 +3,7 @@ Author: John
 ---
 ## v1
 
-Now there was a certain man who was sick, Lazarus from Bethany, of the village of Mary and her sister Martha.
+Now there was a certain man who was sick, Lazarus from [[John-11.fn#Footnote 1.1 — Bethany|Bethany]], of the village of Mary and her sister Martha.
 
 ## v2
 
@@ -31,7 +31,7 @@ Then after this He said to the disciples, Let us go into Judea again.
 
 ## v8
 
-The disciples said to Him, Rabbi, the Jews were just now seeking to stone You, and You are going there again?
+The disciples [[John-11.fn#Footnote 8.1 — said|said]] to Him, Rabbi, the Jews were just now seeking to stone You, and You are going there again?
 
 ## v9
 
@@ -47,7 +47,7 @@ He said these things, and after this He said to them, Our friend Lazarus has fal
 
 ## v12
 
-The disciples then said to Him, Lord, if he has fallen asleep, he will recover.
+The disciples then said to Him, Lord, if he has fallen asleep, he will [[John-11.fn#Footnote 12.1 — recover|recover]].
 
 ## v13
 
@@ -55,7 +55,7 @@ But Jesus had spoken about his death, but they thought that He was speaking abou
 
 ## v14
 
-So Jesus then told them plainly, Lazarus has died.
+So Jesus then told them plainly, Lazarus has [[John-11.fn#Footnote 14.1 — died|died]].
 
 ## v15
 
@@ -63,7 +63,7 @@ And I rejoice for your sakes that I was not there, so that you may believe; but 
 
 ## v16
 
-Then Thomas, who is called Didymus, said to his fellow disciples, Let us also go, that we may die with Him.
+Then Thomas, who is called [[John-11.fn#Footnote 16.1 — Didymus|Didymus]], said to his fellow disciples, Let us also go, that we may die with Him.
 
 ## v17
 
@@ -71,7 +71,7 @@ Then when Jesus came, He found that he had already been in the tomb four days.
 
 ## v18
 
-Now Bethany was near Jerusalem, about fifteen stadia away.
+Now Bethany was near Jerusalem, about [[John-11.fn#Footnote 18.1 — fifteen|fifteen]] stadia away.
 
 ## v19
 
@@ -95,7 +95,7 @@ Jesus said to her, Your brother will rise again.
 
 ## v24
 
-Martha said to Him, I know that he will rise again in the resurrection in the last day.
+Martha said to Him, I know that he will rise again in the resurrection [[John-11.fn#Footnote 24.1 — in|in]] the last day.
 
 ## v25
 
@@ -107,11 +107,11 @@ And everyone who lives and believes into Me shall by no means die forever. Do yo
 
 ## v27
 
-She said to Him, Yes, Lord; I have believed that You are the Christ, the Son of God, He who comes into the world.
+She said to Him, Yes, Lord; I have [[John-11.fn#Footnote 27.1 — believed|believed]] that You are the Christ, the Son of God, He who comes into the world.
 
 ## v28
 
-And when she had said this, she went away and called Mary her sister secretly, saying, The Teacher is here and is calling you.
+And when she had said this, she went away and called Mary her sister secretly, saying, The Teacher is here and [[John-11.fn#Footnote 28.1 — is|is]] calling you.
 
 ## v29
 
@@ -123,7 +123,7 @@ Now Jesus had not yet come into the village, but was still in the place where Ma
 
 ## v31
 
-The Jews then who were with her in the house and were consoling her, when they saw that Mary rose up quickly and went out, followed her, supposing that she was going to the tomb to weep there.
+The Jews then who were with her in the house and were consoling her, when they saw that Mary rose up quickly and went out, followed her, supposing that she was going to the tomb to [[John-11.fn#Footnote 31.1 — weep|weep]] there.
 
 ## v32
 
@@ -131,7 +131,7 @@ Then Mary, when she came to where Jesus was, saw Him and fell at His feet, sayin
 
 ## v33
 
-Then Jesus, when He saw her weeping and the Jews who came with her weeping, was moved with indignation in His spirit and was troubled,
+Then Jesus, when He saw her [[John-11.fn#Footnote 33.1 — weeping|weeping]] and the Jews who came with her weeping, was moved with indignation in His spirit and was troubled,
 
 ## v34
 
@@ -139,7 +139,7 @@ And He said, Where have you put him? They said to Him, Lord, come and see.
 
 ## v35
 
-Jesus wept.
+Jesus [[John-11.fn#Footnote 35.1 — wept|wept]].
 
 ## v36
 
@@ -163,11 +163,11 @@ Jesus said to her, Did I not tell you that if you believe you will see the glory
 
 ## v41
 
-Then they took the stone away. And Jesus lifted up His eyes and said, Father, I thank You that You have heard Me.
+Then they [[John-11.fn#Footnote 41.1 — took|took]] the stone away. And Jesus lifted up His eyes and said, Father, I thank You that You have heard Me.
 
 ## v42
 
-And I knew that You always hear Me; but because of the crowd standing around, I said it, that they may believe that You have sent Me.
+And I knew that You always hear Me; but because of the crowd standing around, I said it, that they may believe that You have [[John-11.fn#Footnote 42.1 — sent|sent]] Me.
 
 ## v43
 
@@ -207,7 +207,7 @@ But this he did not say from himself, but being high priest that year, he prophe
 
 ## v52
 
-And not for the nation only, but that He might also gather into one the children of God who are scattered abroad.
+And not for the nation only, but that He might also [[John-11.fn#Footnote 52.1 — gather|gather]] into one the children of God who are scattered abroad.
 
 ## v53
 

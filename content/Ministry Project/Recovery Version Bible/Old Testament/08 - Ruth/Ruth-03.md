@@ -1,6 +1,6 @@
 ## v1
 
-And Naomi, her mother-in-law, said to her, My daughter, I must seek some resting place for you, that it may go well with you.
+And Naomi, her mother-in-law, said to her, My daughter, [[Ruth-03.fn#Footnote 1.1 — I|I]] must seek some [[Ruth-03.fn#Footnote 1.2 — resting|resting]] place for you, that it may go well with you.
 
 ## v2
 
@@ -16,7 +16,7 @@ And when he lies down, notice the place where he lies, and go and uncover his fe
 
 ## v5
 
-And she said to her, All that you say, I will do.
+And she said to her, All that you [[Ruth-03.fn#Footnote 5.1 — say|say]], I will do.
 
 ## v6
 
@@ -24,7 +24,7 @@ And she went down to the threshing floor and did according to all that her mothe
 
 ## v7
 
-And Boaz ate and drank, and his heart was merry. And he went to lie down at the end of the heap of grain. And she came in secretly and uncovered his feet and lay down.
+And Boaz ate and drank, and his heart was merry. And he went to lie down at the end of the heap of grain. And she [[Ruth-03.fn#Footnote 7.1 — came|came]] in secretly and uncovered his feet and lay down.
 
 ## v8
 
@@ -32,7 +32,7 @@ Then at midnight the man was startled; and he turned over, and a woman was there
 
 ## v9
 
-And he said, Who are you? And she said, I am Ruth, your female servant. Spread your cloak over your female servant, for you are a kinsman.
+And he said, Who are you? And she said, I am Ruth, your female servant. Spread your cloak over your female servant, for you are a [[Ruth-03.fn#Footnote 9.1 — kinsman|kinsman]].
 
 ## v10
 
@@ -40,11 +40,11 @@ And he said, Blessed be you of Jehovah, my daughter. You have shown your latter 
 
 ## v11
 
-And now, my daughter, do not fear. All that you say, I will do for you; for all the assembly of my people know that you are a worthy woman.
+And now, my daughter, do not fear. All that you say, I will do for you; for all the [[Ruth-03.fn#Footnote 11.1 — assembly|assembly]] of my people know that you are a worthy woman.
 
 ## v12
 
-And now it is true that I am a kinsman, yet there is a kinsman closer than I.
+And now it is true that I am a kinsman, yet there is a [[Ruth-03.fn#Footnote 12.1 — kinsman|kinsman]] closer than I.
 
 ## v13
 
@@ -56,7 +56,7 @@ And she lay at his feet until morning, then rose up before one could recognize a
 
 ## v15
 
-And he said, Bring the cloak that is on you, and hold it open. And she held it open, and he measured out six measures of barley and laid it on her. And he went into the city.
+And he said, Bring the cloak that is on you, and hold it open. And she held it open, and he measured out six measures of barley and laid it on her. And [[Ruth-03.fn#Footnote 15.1 — he|he]] went into the city.
 
 ## v16
 
@@ -64,7 +64,7 @@ And when she came to her mother-in-law, she said, How are you, my daughter? And 
 
 ## v17
 
-And she said, These six measures of barley he gave me, for he said, Do not go to your mother-in-law empty-handed.
+And she said, These six measures of barley he gave me, for he [[Ruth-03.fn#Footnote 17.1 — said|said]], Do not go to your mother-in-law empty-handed.
 
 ## v18
 

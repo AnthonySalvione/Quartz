@@ -1,6 +1,6 @@
 ## v1
 
-So Israel set out with all that he had and came to Beer-sheba and offered sacrifices to the God of his father Isaac.
+So Israel set out with all that he had and came to Beer-sheba and [[Genesis-46.fn#Footnote 1.1 — offered|offered]] sacrifices to the God of his father Isaac.
 
 ## v2
 
@@ -8,7 +8,7 @@ And God spoke to Israel in the visions of the night and said, Jacob, Jacob. And 
 
 ## v3
 
-And He said, I am God, the God of your father; do not be afraid to go down to Egypt, for I will make of you a great nation there.
+And He said, I am [[Genesis-46.fn#Footnote 3.1 — God|God]], the God of your father; do not be afraid to go down to Egypt, for I will make of you a great nation there.
 
 ## v4
 
@@ -56,7 +56,7 @@ And the sons of Zebulun: Sered and Elon and Jahleel.
 
 ## v15
 
-These are the sons of Leah, whom she bore to Jacob in Paddan-aram, along with his daughter Dinah. His sons and his daughters were thirty-three persons in all.
+These are the sons of Leah, whom she bore to Jacob in Paddan-aram, along with his daughter Dinah. His sons and his daughters were thirty-three [[Genesis-46.fn#Footnote 15.1 — persons|persons]] in all.
 
 ## v16
 

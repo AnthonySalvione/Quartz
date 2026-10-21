@@ -67,7 +67,7 @@ That your own right hand can save you.
 
 ## v15
 
-Behold now the behemoth, which I made as well as you:  
+Behold now the [[Job-40.fn#Footnote 15.1 — behemoth|behemoth]], which I made as well as you:  
 He eats grass like the ox.
 
 ## v16

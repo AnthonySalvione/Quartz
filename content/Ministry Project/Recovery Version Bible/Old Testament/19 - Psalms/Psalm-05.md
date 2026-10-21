@@ -1,3 +1,6 @@
+> *To the choir director: for the wind instruments. A Psalm of David*
+
+---
 ## v1
 
 To my words give ear, O Jehovah;  
@@ -18,7 +21,7 @@ And I will watch.
 
 ## v4
 
-For You are not a God who delights in wickedness;  
+[[Psalm-05.fn#Footnote 4.1 — For|For]] You are not a God who delights in wickedness;  
 Evil will not sojourn with You.
 
 ## v5

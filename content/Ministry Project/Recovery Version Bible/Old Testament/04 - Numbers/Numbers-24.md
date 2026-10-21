@@ -10,7 +10,7 @@ And Balaam lifted up his eyes and saw Israel dwelling according to their tribes,
 
 And he took up his parable and said,  
 Balaam the son of Beor declares, /  
-And the man whose eye is opened declares;
+And the man whose eye is [[Numbers-24.fn#Footnote 3.1 — opened|opened]] declares;
 
 ## v4
 
@@ -20,27 +20,27 @@ Falling down, but having his eyes uncovered:
 
 ## v5
 
-How fair are your tents, O Jacob, /  
+How [[Numbers-24.fn#Footnote 5.1 — fair|fair]] are your tents, O Jacob, /  
 Your tabernacles, O Israel!
 
 ## v6
 
-Like valleys they are spread forth, /  
+Like [[Numbers-24.fn#Footnote 6.1 — valleys|valleys]] they are spread forth, /  
 Like gardens beside a river, /  
-Like aloes which Jehovah has planted, /  
+Like [[Numbers-24.fn#Footnote 6.2 — aloes|aloes]] which Jehovah has planted, /  
 Like cedars beside water.
 
 ## v7
 
 Water shall flow from his buckets, /  
 And his seed shall be in many waters, /  
-And his king shall be higher than Agag, /  
+And his [[Numbers-24.fn#Footnote 7.1 — king|king]] shall be higher than Agag, /  
 And his kingdom shall be exalted.
 
 ## v8
 
 God is the One who brought him forth out of Egypt; /  
-He has as it were the horns of the wild ox. /  
+He has as it were the [[Numbers-24.fn#Footnote 8.1 — horns|horns]] of the wild ox. /  
 He shall eat up the nations, his adversaries, /  
 And shall break their bones in pieces, /  
 And shatter them with his arrows.
@@ -49,7 +49,7 @@ And shatter them with his arrows.
 
 He couches; he lies down like a lion /  
 And like a lioness; who will rouse him up? /  
-Blessed is everyone who blesses you, /  
+[[Numbers-24.fn#Footnote 9.1 — Blessed|Blessed]] is everyone who blesses you, /  
 And cursed is everyone who curses you.
 
 ## v10
@@ -89,25 +89,25 @@ Falling down, but having his eyes uncovered:
 
 I see Him, but not now; /  
 I behold Him, but not near. /  
-There shall come forth a Star out of Jacob, /  
-And a Scepter shall rise out of Israel, /  
+There shall [[Numbers-24.fn#Footnote 17.1 — come|come]] forth a [[Numbers-24.fn#Footnote 17.2 — Star|Star]] out of Jacob, /  
+And a [[Numbers-24.fn#Footnote 17.2 — Star|Scepter]] shall rise out of Israel, /  
 And He shall crush the corners of Moab /  
 And break down all the sons of Sheth.
 
 ## v18
 
 And Edom shall be dispossessed — /  
-Seir, His enemies, shall also be dispossessed — /  
+Seir, His [[Numbers-24.fn#Footnote 18.1 — enemies|enemies]], shall also be dispossessed — /  
 While Israel does valiantly.
 
 ## v19
 
 And One from Jacob shall have dominion /  
-And destroy the remnant from the city.
+And destroy the remnant from [[Numbers-24.fn#Footnote 19.1 — the|the]] city.
 
 ## v20
 
-And he looked on Amalek and took up his parable and said,  
+And he looked on [[Numbers-24.fn#Footnote 20.1 — Amalek|Amalek]] and took up his parable and said,  
 Amalek was the first of the nations, /  
 But his latter end shall come to destruction.
 

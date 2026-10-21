@@ -180,4 +180,4 @@ And in the meantime the heavens became black with clouds, and there was wind and
 
 ## v46
 
-And the hand of Jehovah was upon Elijah; and he girded up his loins and ran before Ahab to the entrance of Jezreel.
+And the [[1 Kings-18.fn#Footnote 46.1 — hand|hand]] of Jehovah was upon Elijah; and he girded up his loins and ran before Ahab to the entrance of Jezreel.

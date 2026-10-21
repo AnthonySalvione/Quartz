@@ -24,7 +24,7 @@ And Baasha slept with his fathers and was buried in Tirzah. And Elah his son rei
 
 ## v7
 
-Moreover through the prophet Jehu the son of Hanani the word of Jehovah came against Baasha and against his house, both because of all the evil that he did in the sight of Jehovah, provoking Him to anger with the work of his hands and by being like the house of Jeroboam, and because he struck it down.
+Moreover through the prophet Jehu the son of Hanani the word of Jehovah came against Baasha and against his house, both because of all the evil that he did in the sight of Jehovah, provoking Him to anger with the work of his hands and by being like the house of Jeroboam, and because he struck [[1 Kings-16.fn#Footnote 7.1 — it|it]] down.
 
 ## v8
 
@@ -120,7 +120,7 @@ And Ahab the son of Omri did what was evil in the sight of Jehovah, more than al
 
 ## v31
 
-And as if it were a light thing for him to walk in the sins of Jeroboam the son of Nebat, he took as his wife Jezebel the daughter of Ethbaal the king of the Sidonians; and he went and served Baal and worshipped him.
+And as if it were a light thing for him to walk in the sins of Jeroboam the son of Nebat, he took as his wife [[1 Kings-16.fn#Footnote 31.1 — Jezebel|Jezebel]] the daughter of Ethbaal the king of the Sidonians; and he went and served Baal and worshipped him.
 
 ## v32
 

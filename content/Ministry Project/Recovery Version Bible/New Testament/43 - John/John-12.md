@@ -3,7 +3,7 @@ Author: John
 ---
 ## v1
 
-Then Jesus, six days before the Passover, came to Bethany, where Lazarus was, whom Jesus had raised from the dead.
+Then Jesus, six days before the Passover, came to [[John-12.fn#Footnote 1.1 — Bethany|Bethany]], where Lazarus was, whom Jesus had raised from the dead.
 
 ## v2
 
@@ -11,7 +11,7 @@ Therefore they made Him a supper there; and Martha served, but Lazarus was one o
 
 ## v3
 
-Then Mary took a pound of ointment, of very valuable pure nard, and anointed the feet of Jesus, and wiped His feet with her hair; and the house was filled with the fragrance of the ointment.
+Then Mary took a [[John-12.fn#Footnote 3.1 — pound|pound]] of ointment, of very valuable pure nard, and anointed the feet of Jesus, and wiped His feet with her hair; and the [[John-12.fn#Footnote 3.2 — house|house]] was filled with the fragrance of the ointment.
 
 ## v4
 
@@ -19,7 +19,7 @@ But Judas Iscariot, one of His disciples, who was about to betray Him, said,
 
 ## v5
 
-Why was this ointment not sold for three hundred denarii and given to the poor?
+Why was this ointment not sold for three hundred [[John-12.fn#Footnote 5.1 — denarii|denarii]] and given to the poor?
 
 ## v6
 
@@ -27,7 +27,7 @@ But he said this not because it mattered to him concerning the poor, but because
 
 ## v7
 
-Then Jesus said, Leave her alone; she has reserved it for the day of My burial.
+Then [[John-12.fn#Footnote 7.1 — Jesus|Jesus]] said, Leave her alone; she has reserved it for the day of My burial.
 
 ## v8
 
@@ -51,7 +51,7 @@ On the next day, the great crowd who had come to the feast, when they heard that
 
 ## v13
 
-Took the branches of the palm trees and went out to meet Him, and cried out, Hosanna! Blessed is He who comes in the name of the Lord, even the King of Israel!
+Took the branches of the palm trees and went out to meet Him, and cried out, [[John-12.fn#Footnote 13.1 — Hosanna|Hosanna]]! Blessed is He who comes in the name of the Lord, even the King of Israel!
 
 ## v14
 
@@ -91,15 +91,15 @@ Philip came and told Andrew; Andrew came, and Philip too, and they told Jesus.
 
 ## v23
 
-And Jesus answered them, saying, The hour has come for the Son of Man to be glorified.
+And Jesus answered them, saying, The hour has come for the Son of Man to be [[John-12.fn#Footnote 23.1 — glorified|glorified]].
 
 ## v24
 
-Truly, truly, I say to you, Unless the grain of wheat falls into the ground and dies, it abides alone; but if it dies, it bears much fruit.
+Truly, truly, I say to you, Unless the grain of wheat [[John-12.fn#Footnote 24.1 — falls|falls]] into the ground and dies, it abides alone; but if it dies, it bears [[John-12.fn#Footnote 24.2 — much|much]] fruit.
 
 ## v25
 
-He who loves his soul-life loses it; and he who hates his soul-life in this world shall keep it unto eternal life.
+He who loves his [[John-12.fn#Footnote 25.2 — soul-life|soul-life]] loses it; and he who hates his [[John-12.fn#Footnote 25.2 — soul-life|soul-life]] in this world shall keep it unto [[John-12.fn#Footnote 25.1 — eternal|eternal]] life.
 
 ## v26
 
@@ -107,11 +107,11 @@ If anyone serves Me, let him follow Me; and where I am, there also My servant wi
 
 ## v27
 
-Now is My soul troubled; and what shall I say? Father, save Me out of this hour. But for this reason I have come to this hour.
+Now is My [[John-12.fn#Footnote 27.1 — soul|soul]] troubled; and what shall I say? Father, save Me out of this hour. But for [[John-12.fn#Footnote 27.2 — this|this]] reason I have come to this hour.
 
 ## v28
 
-Father, glorify Your name. Then a voice came out of heaven: I have both glorified it and will glorify it again.
+Father, [[John-12.fn#Footnote 28.1 — glorify|glorify]] Your name. Then a voice came out of heaven: I have both [[John-12.fn#Footnote 28.1 — glorify|glorified]] it and will [[John-12.fn#Footnote 28.1 — glorify|glorify]] it again.
 
 ## v29
 
@@ -119,15 +119,15 @@ The crowd therefore which stood by and heard it said that there had been thunder
 
 ## v30
 
-Jesus answered and said, This voice has not come for My sake, but for your sake.
+Jesus answered and said, This voice has not [[John-12.fn#Footnote 30.1 — come|come]] for My sake, but for your sake.
 
 ## v31
 
-Now is the judgment of this world; now shall the ruler of this world be cast out.
+Now is the [[John-12.fn#Footnote 31.1 — judgment|judgment]] of this [[John-12.fn#Footnote 31.2 — world|world]]; now shall the ruler of this world be cast out.
 
 ## v32
 
-And I, if I be lifted up from the earth, will draw all men to Myself.
+And I, if I be [[John-12.fn#Footnote 32.1 — lifted|lifted]] up from the earth, will draw all men to Myself.
 
 ## v33
 
@@ -151,7 +151,7 @@ But though He had done so many signs before them, they did not believe into Him,
 
 ## v38
 
-That the word of the prophet Isaiah which he said might be fulfilled, “Lord, who has believed our report? And to whom has the arm of the Lord been revealed?”
+That the word of the prophet Isaiah which he said might be fulfilled, “Lord, who has believed our report? And to whom has the [[John-12.fn#Footnote 38.1 — arm|arm]] of the Lord been revealed?”
 
 ## v39
 
@@ -159,11 +159,11 @@ For this reason they could not believe, because again Isaiah said,
 
 ## v40
 
-“He has blinded their eyes and He hardened their heart, that they might not see with their eyes and understand with their heart and turn, and I will heal them.”
+“He has [[John-12.fn#Footnote 40.1 — blinded|blinded]] their eyes and He hardened their heart, that they might not see with their eyes and understand with their heart and turn, and I will heal them.”
 
 ## v41
 
-These things said Isaiah because he saw His glory and spoke concerning Him.
+These things said Isaiah because he saw [[John-12.fn#Footnote 41.1 — His|His]] glory and spoke concerning Him.
 
 ## v42
 
@@ -175,7 +175,7 @@ For they loved the glory of men more than the glory of God.
 
 ## v44
 
-But Jesus cried out and said, He who believes into Me does not believe into Me, but into Him who sent Me;
+But Jesus [[John-12.fn#Footnote 44.1 — cried|cried]] out and said, He who believes into Me does not believe into Me, but into Him who sent Me;
 
 ## v45
 
@@ -187,7 +187,7 @@ I have come as a light into the world, that everyone who believes into Me would 
 
 ## v47
 
-And if anyone hears My words and does not keep them, I do not judge him; for I have not come to judge the world, but to save the world.
+And if anyone hears My [[John-12.fn#Footnote 47.1 — words|words]] and does not keep them, I do not judge him; for I have not come to judge the world, but to save the world.
 
 ## v48
 
@@ -199,4 +199,4 @@ For I have not spoken from Myself; but the Father who sent Me, He Himself has gi
 
 ## v50
 
-And I know that His commandment is eternal life. The things therefore that I speak, even as the Father has said to Me, so I speak.
+And I know that His commandment is [[John-12.fn#Footnote 50.1 — eternal|eternal]] life. The things therefore that I speak, even as the Father has said to Me, so I speak.

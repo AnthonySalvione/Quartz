@@ -1,6 +1,6 @@
 ## v1
 
-And when Jabin the king of Hazor heard of this, he sent word to Jobab the king of Madon and to the king of Shimron and to the king of Achshaph
+And when Jabin the king of Hazor heard of this, he sent word to Jobab the king of [[Joshua-11.fn#Footnote 1.1 — Madon|Madon]] and to the king of Shimron and to the king of Achshaph
 
 ## v2
 
@@ -76,11 +76,11 @@ There was not a city that made peace with the children of Israel except the Hivi
 
 ## v20
 
-For it was of Jehovah to harden their heart to meet Israel in battle so that He might utterly destroy them and that they might not receive mercy but be destroyed as Jehovah commanded Moses.
+For it was [[Joshua-11.fn#Footnote 20.1 — of|of]] Jehovah to harden their heart to meet Israel in battle so that He might utterly destroy them and that they might not receive mercy but be destroyed as Jehovah commanded Moses.
 
 ## v21
 
-And Joshua went at that time and cut off the Anakim from the hill country, from Hebron, from Debir, from Anab, and from all the hill country of Judah and all the hill country of Israel; Joshua utterly destroyed them with their cities.
+And Joshua went at that time and cut off the [[Joshua-11.fn#Footnote 21.1 — Anakim|Anakim]] from the hill country, from Hebron, from Debir, from Anab, and from all the hill country of Judah and all the hill country of Israel; Joshua utterly destroyed them with their cities.
 
 ## v22
 

@@ -1,6 +1,6 @@
 ## v1
 
-If a man steals an ox or a sheep and slaughters it or sells it, he shall restore five oxen for an ox and four sheep for a sheep.
+If a man [[Exodus-22.fn#Footnote 1.1 — steals|steals]] an ox or a sheep and slaughters it or sells it, he shall restore five oxen for an ox and four sheep for a sheep.
 
 ## v2
 
@@ -28,7 +28,7 @@ If a man gives to his neighbor silver or goods to keep, and it is stolen out of 
 
 ## v8
 
-If the thief is not found, then the owner of the house shall come near to God to determine whether or not he laid his hand on his neighbor’s goods.
+If the thief is not found, then the owner of the house shall come near to [[Exodus-22.fn#Footnote 8.1 — God|God]] to determine whether or not he laid his hand on his [[Exodus-22.fn#Footnote 8.2 — neighbor’s|neighbor’s]] goods.
 
 ## v9
 
@@ -56,11 +56,11 @@ And if a man borrows anything from his neighbor, and it is injured or dies while
 
 ## v15
 
-If its owner was with it, he shall not make restitution; if it was hired, only the hiring fee is due.
+If its owner was with it, he shall not make restitution; if it was hired, [[Exodus-22.fn#Footnote 15.1 — only|only]] the hiring fee is due.
 
 ## v16
 
-And if a man seduces a virgin who is not engaged and lies with her, he shall surely pay a dowry for her to become his wife.
+And if a man [[Exodus-22.fn#Footnote 16.1 — seduces|seduces]] a virgin who is not engaged and lies with her, he shall surely pay a dowry for her to become his wife.
 
 ## v17
 
@@ -68,7 +68,7 @@ If her father utterly refuses to give her to him, he shall pay silver according 
 
 ## v18
 
-You shall not allow a sorceress to live.
+[[Exodus-22.fn#Footnote 18.1 — You|You]] shall not allow a [[Exodus-22.fn#Footnote 18.2 — sorceress|sorceress]] to live.
 
 ## v19
 
@@ -80,7 +80,7 @@ He who sacrifices to any god, except to Jehovah only, shall be devoted to destru
 
 ## v21
 
-And you shall not wrong a sojourner, nor shall you oppress him; for you were sojourners in the land of Egypt.
+And you shall not wrong a [[Exodus-22.fn#Footnote 21.1 — sojourner|sojourner]], nor shall you oppress him; for you were sojourners in the land of Egypt.
 
 ## v22
 
@@ -108,16 +108,16 @@ For that is his only covering; it is his garment for his skin. On what shall he 
 
 ## v28
 
-You shall not revile God, nor curse a ruler of your people.
+You shall not revile [[Exodus-22.fn#Footnote 28.1 — God|God]], nor curse a ruler of your people.
 
 ## v29
 
-You shall not delay to offer the fullness of your harvest and of the outflow of your presses. The firstborn of your sons you shall give to Me.
+You shall not delay to offer the fullness of your harvest and of the [[Exodus-22.fn#Footnote 29.1 — outflow|outflow]] of your presses. The [[Exodus-22.fn#Footnote 29.2 — firstborn|firstborn]] of your sons you shall give to Me.
 
 ## v30
 
-You shall do the same with your oxen and with your sheep. Seven days it shall be with its mother; on the eighth day you shall give it to Me.
+You shall do the same with your oxen and with your sheep. Seven days it shall be with its mother; on the [[Exodus-22.fn#Footnote 30.1 — eighth|eighth]] day you shall give it to Me.
 
 ## v31
 
-And you shall be holy men to Me. And you shall not eat any flesh that is torn by beasts in the field; you shall throw it to the dogs.
+And you shall be [[Exodus-22.fn#Footnote 31.1 — holy|holy]] men to Me. And you shall not [[Exodus-22.fn#Footnote 31.2 — eat|eat]] any flesh that is torn by beasts in the field; you shall throw it to the dogs.

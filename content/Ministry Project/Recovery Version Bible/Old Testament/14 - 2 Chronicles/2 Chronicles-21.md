@@ -4,7 +4,7 @@ And Jehoshaphat slept with his fathers and was buried with his fathers in the ci
 
 ## v2
 
-And he had brothers, the sons of Jehoshaphat: Azariah and Jehiel and Zechariah and Azariahu and Michael and Shephatiah; all these were the sons of Jehoshaphat the king of Judah.
+And he had brothers, the sons of Jehoshaphat: Azariah and Jehiel and Zechariah and Azariahu and Michael and Shephatiah; all these were the sons of Jehoshaphat the king of [[2 Chronicles-21.fn#Footnote 2.1 — Judah|Judah]].
 
 ## v3
 
@@ -24,7 +24,7 @@ And he walked in the way of the kings of Israel and as the house of Ahab had don
 
 ## v7
 
-But Jehovah would not destroy the house of David, because of the covenant He had made with David and since He had promised that He would provide a lamp for him and for his children always.
+But Jehovah would not destroy the house of David, because of the [[2 Chronicles-21.fn#Footnote 7.1 — covenant|covenant]] He had made with David and since He had promised that He would provide a lamp for him and for his children always.
 
 ## v8
 

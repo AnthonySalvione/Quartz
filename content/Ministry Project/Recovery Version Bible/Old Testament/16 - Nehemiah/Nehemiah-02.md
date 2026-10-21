@@ -8,7 +8,7 @@ And the king said to me, Why is your face sad, since you are not ill? This is no
 
 ## v3
 
-And I said to the king, May the king live forever! Why should my face not be sad, when the city, the place of my fathers’ graves, lies in waste and its gates are consumed with fire?
+And I said to the king, [[Nehemiah-02.fn#Footnote 3.1 — May|May]] the king live forever! Why should my face not be sad, when the city, the place of my fathers’ graves, lies in waste and its gates are consumed with fire?
 
 ## v4
 
@@ -24,11 +24,11 @@ And the king said to me (and the queen was sitting beside him), How long will yo
 
 ## v7
 
-Then I said to the king, If it please the king, let letters be given to me for the governors beyond the River, so that they will let me pass through until I come to Judah;
+Then I said to the king, If it please the king, let letters be given to me for the governors beyond the [[Nehemiah-02.fn#Footnote 7.1 — River|River]], so that they will let me pass through until I come to Judah;
 
 ## v8
 
-And a letter to Asaph, the keeper of the Park, which belongs to the king, so that he would give me timber to make beams for the gates of the palace that belongs to the house and for the wall of the city and for the house that I will be entering. And the king gave these to me according to the good hand of my God, which was upon me.
+And a letter to Asaph, the keeper of the Park, which belongs to the king, so that he would give me timber to make beams for the gates of the palace that belongs to the house and for the wall of the city and for the house that I will be entering. And the king gave these to me according to the good [[Nehemiah-02.fn#Footnote 8.1 — hand|hand]] of my God, which was upon me.
 
 ## v9
 
@@ -36,7 +36,7 @@ So I went to the governors beyond the River and gave them the king’s letters. 
 
 ## v10
 
-And when Sanballat the Horonite and Tobiah the Ammonite servant heard of this, it displeased them greatly that a man had come seeking the good of the children of Israel.
+And when Sanballat the Horonite and Tobiah the Ammonite [[Nehemiah-02.fn#Footnote 10.1 — servant|servant]] heard of this, it displeased them greatly that a man had come seeking the good of the children of Israel.
 
 ## v11
 
@@ -76,4 +76,4 @@ But when Sanballat the Horonite and Tobiah the Ammonite servant and Geshem the A
 
 ## v20
 
-And I answered them and said to them, The God of heaven Himself will make us prosper; therefore we His servants will rise up and build. But you have no portion nor right nor memorial in Jerusalem.
+And I answered them and said to them, [[Nehemiah-02.fn#Footnote 20.1 — The|The]] God of heaven Himself will make us prosper; therefore we His servants will rise up and build. But you have no portion nor right nor memorial in Jerusalem.

@@ -1,10 +1,10 @@
 ## v1
 
-Then the children of Israel, the whole assembly, came to the wilderness of Zin in the first month, and the people stayed at Kadesh; and Miriam died there and was buried there.
+Then the children of Israel, the whole assembly, came to the wilderness of Zin in the first month, and the people stayed at Kadesh; and Miriam [[Numbers-20.fn#Footnote 1.1 — died|died]] there and was buried there.
 
 ## v2
 
-And there was no water for the assembly, and they gathered themselves together against Moses and against Aaron.
+And there was no [[Numbers-20.fn#Footnote 2.1 — water|water]] for the assembly, and they gathered themselves together against Moses and against Aaron.
 
 ## v3
 
@@ -28,7 +28,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v8
 
-Take the rod, and gather the assembly, you and Aaron your brother, and speak to the rock before their eyes, so that it yields its water. Thus you shall bring forth water for them out of the rock and give the assembly and their livestock something to drink.
+Take the rod, and gather the assembly, you and Aaron your brother, and speak to the [[Numbers-20.fn#Footnote 8.1 — rock|rock]] before their eyes, so that it yields its [[Numbers-20.fn#Footnote 8.1 — rock|water]]. Thus you shall bring forth water for them out of the rock and give the assembly and their livestock something to drink.
 
 ## v9
 
@@ -36,7 +36,7 @@ And Moses took the rod from before Jehovah, as He had commanded him.
 
 ## v10
 
-And Moses and Aaron gathered the congregation together before the rock, and he said to them, Listen now, you rebels: Shall we bring forth water for you out of this rock?
+And Moses and Aaron gathered the congregation together before the rock, and he said to them, Listen now, you [[Numbers-20.fn#Footnote 10.1 — rebels|rebels]]: Shall we bring forth water for you out of this rock?
 
 ## v11
 
@@ -44,15 +44,15 @@ Then Moses lifted up his hand and struck the rock with his rod twice; and abunda
 
 ## v12
 
-And Jehovah said to Moses and Aaron, Because you did not believe in Me, to sanctify Me in the sight of the children of Israel, therefore you shall not bring this congregation into the land which I have given them.
+And Jehovah said to Moses and Aaron, Because you did not believe in Me, to [[Numbers-20.fn#Footnote 12.1 — sanctify|sanctify]] Me in the sight of the children of Israel, therefore you shall not bring this congregation into the land which I have given them.
 
 ## v13
 
-These are the waters of Meribah, where the children of Israel contended with Jehovah, and He was sanctified among them.
+These are the waters of [[Numbers-20.fn#Footnote 13.1 — Meribah|Meribah]], where the children of Israel contended with Jehovah, and He was sanctified among them.
 
 ## v14
 
-Now Moses sent messengers from Kadesh to the king of Edom: Thus says your brother Israel, You know all the hardship that has befallen us;
+Now Moses sent messengers from Kadesh to the king of [[Numbers-20.fn#Footnote 14.1 — Edom|Edom]]: Thus says your brother Israel, You know all the hardship that has befallen us;
 
 ## v15
 
@@ -68,7 +68,7 @@ Please let us pass through your land. We will not pass through field or through 
 
 ## v18
 
-But Edom said to him, You shall not pass through my territory, or else I will come out against you with the sword.
+But Edom said to him, You shall not pass through [[Numbers-20.fn#Footnote 18.1 — my|my]] territory, or else I will come out against you with the sword.
 
 ## v19
 
@@ -108,7 +108,7 @@ So Moses did just as Jehovah had commanded, and they went up Mount Hor in the si
 
 ## v28
 
-And when Moses had stripped Aaron of his garments and put them on Eleazar his son, Aaron died there on the top of the mountain. Then Moses and Eleazar came down from the mountain.
+And when Moses had stripped Aaron of his garments and put them on Eleazar his son, Aaron [[Numbers-20.fn#Footnote 28.1 — died|died]] there on the top of the mountain. Then Moses and Eleazar came down from the mountain.
 
 ## v29
 

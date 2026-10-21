@@ -1,10 +1,10 @@
 ## v1
 
-Now these are the ordinances which you shall set before them.
+Now these are the [[Exodus-21.fn#Footnote 1.1 — ordinances|ordinances]] which you shall set before them.
 
 ## v2
 
-If you buy a Hebrew servant, he shall serve six years; but in the seventh he shall go out free without payment to you.
+If you buy a Hebrew [[Exodus-21.fn#Footnote 2.1 — servant|servant]], he shall serve six years; but in the seventh he shall go out [[Exodus-21.fn#Footnote 2.2 — free|free]] without payment to you.
 
 ## v3
 
@@ -16,15 +16,15 @@ If his master gives him a wife and she bears him sons or daughters, the wife and
 
 ## v5
 
-But if the servant plainly says, I love my master, my wife, and my children; I will not go out free;
+But if the servant plainly says, I [[Exodus-21.fn#Footnote 5.1 — love|love]] my master, my wife, and my children; I will not go out free;
 
 ## v6
 
-Then his master shall bring him to God and shall bring him to the door or to the doorpost, and his master shall bore his ear through with an awl; and he shall serve him forever.
+Then his master shall bring him to [[Exodus-21.fn#Footnote 6.1 — God|God]] and shall bring him to the door or to the doorpost, and his master shall bore his [[Exodus-21.fn#Footnote 6.2 — ear|ear]] through with an awl; and he shall serve him forever.
 
 ## v7
 
-And if a man sells his daughter as a female servant, she shall not go out as the male servants do.
+[[Exodus-21.fn#Footnote 7.1 — And|And]] if a man sells his daughter as a female servant, she shall not go out as the male servants do.
 
 ## v8
 
@@ -44,19 +44,19 @@ And if he does not do these three things for her, then she shall go out for noth
 
 ## v12
 
-He who strikes a man so that he dies shall surely be put to death.
+He who [[Exodus-21.fn#Footnote 12.1 — strikes|strikes]] a man so that he dies shall surely be put to death.
 
 ## v13
 
-But if he did not lie in wait for him, but God allowed him to fall by his hand, then I will appoint you a place where he may flee to.
+But if he did not lie in wait for him, but God allowed him to fall by his hand, then I will appoint you a [[Exodus-21.fn#Footnote 13.1 — place|place]] where he may flee to.
 
 ## v14
 
-And if a man acts presumptuously toward his neighbor, so as to slay him with guile, you shall take him even from My altar so that he may die.
+And if a man acts presumptuously toward his neighbor, so as to [[Exodus-21.fn#Footnote 14.1 — slay|slay]] him with guile, you shall take him even from My altar so that he may die.
 
 ## v15
 
-And he who strikes his father or his mother shall surely be put to death.
+And he who strikes his [[Exodus-21.fn#Footnote 15.1 — father|father]] or his mother shall surely be put to death.
 
 ## v16
 
@@ -68,7 +68,7 @@ And he who curses his father or his mother shall surely be put to death.
 
 ## v18
 
-And if men contend and one strikes the other with a stone or with his fist so that he does not die but remains in bed;
+And if men contend and one strikes the other with a stone or with his fist so that he does not die but [[Exodus-21.fn#Footnote 18.1 — remains|remains]] in bed;
 
 ## v19
 
@@ -76,11 +76,11 @@ If he can rise up and walk around outside on his staff, then he who struck him s
 
 ## v20
 
-And if a man strikes his male servant or his female servant with a rod, and the servant dies under his hand, he shall surely be punished.
+And if a man strikes his male servant or his female servant with a rod, and the [[Exodus-21.fn#Footnote 20.1 — servant|servant]] dies under his hand, he shall surely be punished.
 
 ## v21
 
-But if he survives a day or two, he shall not be punished; for he is his property.
+But if he survives a day or two, he shall not be punished; for he is his [[Exodus-21.fn#Footnote 21.1 — property|property]].
 
 ## v22
 
@@ -116,7 +116,7 @@ But if the ox was accustomed to goring previously, and its owner had been warned
 
 ## v30
 
-If a ransom is imposed on the owner, then he shall give for the redemption of his life whatever is imposed upon him.
+If a ransom is imposed on the [[Exodus-21.fn#Footnote 30.1 — owner|owner]], then he shall give for the redemption of his life whatever is imposed upon him.
 
 ## v31
 

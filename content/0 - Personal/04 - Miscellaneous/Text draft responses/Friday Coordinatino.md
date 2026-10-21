@@ -1,0 +1,3 @@
+Hey bros, I was wondering if we could try something different this week to prepare for Friday’s group reading? I made a PDF of Lesson 4 and will send it after this message. If possible, could we each read through it at least once before we get on the phone to pray?
+
+That way, we can have the PDF open and use parts of the reading to help us pray. We can also see whether anyone has a burden to speak on a particular part of the lesson. Let me know what you think and whether that’s doable!

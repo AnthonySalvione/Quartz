@@ -76,7 +76,7 @@ But these had come forth from the city, the attendants of the leaders of the pro
 
 ## v20
 
-And each man struck down his opponent; and the Syrians fled, and Israel pursued them. And Ben-hadad the king of Syria escaped on a horse with the horsemen.
+And each man struck down his [[1 Kings-20.fn#Footnote 20.1 — opponent|opponent]]; and the Syrians fled, and Israel pursued them. And Ben-hadad the king of Syria escaped on a horse with the horsemen.
 
 ## v21
 

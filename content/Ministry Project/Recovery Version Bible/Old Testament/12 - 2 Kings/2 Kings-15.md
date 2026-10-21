@@ -1,6 +1,6 @@
 ## v1
 
-In the twenty-seventh year of Jeroboam the king of Israel, Azariah the son of Amaziah, the king of Judah, began to reign.
+In the twenty-seventh year of Jeroboam the king of Israel, [[2 Kings-15.fn#Footnote 1.1 — Azariah|Azariah]] the son of Amaziah, the king of Judah, began to reign.
 
 ## v2
 
@@ -16,7 +16,7 @@ However the high places were not removed; the people still sacrificed and burned
 
 ## v5
 
-And Jehovah struck the king, so that he was a leper until the day of his death; and he dwelt in a separate house. And Jotham, the king’s son, was over the household, judging the people of the land.
+And Jehovah struck the king, so that he was a [[2 Kings-15.fn#Footnote 5.1 — leper|leper]] until the day of his death; and he dwelt in a separate house. And Jotham, the king’s son, was over the household, judging the people of the land.
 
 ## v6
 
@@ -32,7 +32,7 @@ In the thirty-eighth year of Azariah the king of Judah, Zechariah the son of Jer
 
 ## v9
 
-And he did what was evil in the sight of Jehovah, as his fathers had done; he did not turn away from the sins of Jeroboam the son of Nebat, by which he caused Israel to sin.
+And he did what was evil in the sight of Jehovah, as his fathers had done; he did not turn away from the sins of Jeroboam the son of Nebat, [[2 Kings-15.fn#Footnote 9.1 — by|by]] which he caused Israel to sin.
 
 ## v10
 
@@ -48,7 +48,7 @@ This was the word of Jehovah which He spoke to Jehu, saying, Your sons to the fo
 
 ## v13
 
-Shallum the son of Jabesh began to reign in the thirty-ninth year of Uzziah the king of Judah, and he reigned one month in Samaria.
+Shallum the son of Jabesh began to reign in the thirty-ninth year of [[2 Kings-15.fn#Footnote 13.1 — Uzziah|Uzziah]] the king of Judah, and he reigned one month in Samaria.
 
 ## v14
 

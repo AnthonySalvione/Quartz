@@ -14,7 +14,7 @@ And by His light I walked through darkness;
 
 ## v4
 
-As I was in the days of my prime,  
+As I was in the days of my [[Job-29.fn#Footnote 4.1 — prime|prime]],  
 When intimate counsel with God was over my tent;
 
 ## v5

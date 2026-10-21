@@ -1,6 +1,6 @@
 ## v1
 
-Now Jericho was shut up so tight because of the children of Israel that no one went out and no one went in.
+Now Jericho was [[Joshua-06.fn#Footnote 1.1 — shut|shut]] up so tight because of the children of Israel that no one went out and no one went in.
 
 ## v2
 
@@ -20,7 +20,7 @@ And when they give off the blast of the ram’s horn and you hear the trumpet so
 
 ## v6
 
-So Joshua the son of Nun called the priests and said to them, Take up the Ark of the Covenant, and let seven priests carry seven trumpets of rams’ horns before the Ark of Jehovah.
+So Joshua the son of Nun called the priests and said to them, Take up the [[Joshua-06.fn#Footnote 6.1 — Ark|Ark]] of the Covenant, and let seven priests carry seven trumpets of rams’ horns before the Ark of Jehovah.
 
 ## v7
 
@@ -36,7 +36,7 @@ And the armed men went before the priests who blew the trumpets; and the reargua
 
 ## v10
 
-And Joshua commanded the people, saying, You shall not shout, nor let your voice be heard, nor let a word go forth from your mouth, until the day I say to you, Shout! Then you shall shout.
+And Joshua commanded the people, saying, [[Joshua-06.fn#Footnote 10.1 — You|You]] shall not shout, nor let your voice be heard, nor let a word go forth from your mouth, until the day I say to you, Shout! Then you shall shout.
 
 ## v11
 
@@ -76,7 +76,7 @@ But all the silver and the gold and the vessels of bronze and iron, these are ho
 
 ## v20
 
-So the people shouted and the trumpets were blown; and when the people heard the trumpet sound, the people shouted with a great shout, and the wall fell down flat. And the people went up into the city, each straight ahead, and they captured the city.
+So the people shouted and the trumpets were blown; and when the people heard the [[Joshua-06.fn#Footnote 20.1 — trumpet|trumpet]] sound, the people shouted with a great shout, and the wall fell down flat. And the people went up into the city, each straight ahead, and they captured the city.
 
 ## v21
 
@@ -88,7 +88,7 @@ And Joshua said to the two men who had spied out the land, Go to the house of th
 
 ## v23
 
-And the young men who had been spies went and brought out Rahab and her father and her mother and her brothers and all that belonged to her; all her family they brought out and set outside the camp of Israel.
+And the young men who had been spies went and brought out [[Joshua-06.fn#Footnote 23.1 — Rahab|Rahab]] and her father and her mother and her brothers and all that belonged to her; all her family they brought out and set outside the camp of Israel.
 
 ## v24
 
@@ -100,7 +100,7 @@ And Joshua preserved Rahab the harlot and her father’s house and all that belo
 
 ## v26
 
-Then at that time Joshua charged the people with an oath, saying, Cursed be the man before Jehovah who rises up to rebuild this city Jericho! At the cost of his firstborn son shall he lay its foundation, and at the cost of his youngest son shall he set up its gates.
+Then at that time Joshua charged the people with an oath, saying, [[Joshua-06.fn#Footnote 26.1 — Cursed|Cursed]] be the man before Jehovah who rises up to rebuild this city Jericho! At the cost of his firstborn son shall he lay its foundation, and at the cost of his youngest son shall he set up its gates.
 
 ## v27
 

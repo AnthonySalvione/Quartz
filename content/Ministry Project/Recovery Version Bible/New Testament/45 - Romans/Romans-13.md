@@ -3,11 +3,11 @@ Author: Paul
 ---
 ## v1
 
-Let every person be subject to the authorities over him, for there is no authority except from God, and those which exist are ordained by God.
+Let every [[Romans-13.fn#Footnote 1.1 — person|person]] be [[Romans-13.fn#Footnote 1.2 — subject|subject]] to the authorities over him, for there is no authority except [[Romans-13.fn#Footnote 1.3 — from|from]] God, and those which exist are [[Romans-13.fn#Footnote 1.4 — ordained|ordained]] by God.
 
 ## v2
 
-So then he who resists the authority opposes God’s ordination, and those who oppose will receive judgment to themselves.
+So then he who resists the authority opposes God’s ordination, and those who oppose will receive [[Romans-13.fn#Footnote 2.1 — judgment|judgment]] to themselves.
 
 ## v3
 
@@ -15,7 +15,7 @@ For the rulers are not a terror to the good work, but to the evil. Do you want t
 
 ## v4
 
-For he is a servant of God to you for good. But if you do what is evil, fear; he does not bear the sword in vain; for he is a servant of God, an avenger for wrath to him who practices evil.
+For he is a [[Romans-13.fn#Footnote 4.1 — servant|servant]] of God to you for good. But if you do what is evil, fear; he does not bear the sword in vain; for he is a servant of God, an avenger for wrath to him who practices evil.
 
 ## v5
 
@@ -23,7 +23,7 @@ Therefore it is necessary to be subject, not only because of wrath but also beca
 
 ## v6
 
-For because of this you also pay taxes; for they are God’s officers, attending constantly to this very thing.
+For because of this you also pay taxes; for they are God’s [[Romans-13.fn#Footnote 6.1 — officers|officers]], attending constantly to this very thing.
 
 ## v7
 
@@ -31,7 +31,7 @@ Render to all the things due: tax to whom tax is due, custom to whom custom is d
 
 ## v8
 
-Owe nothing to anyone except to love one another; for he who loves the other has fulfilled the law.
+Owe nothing to anyone except to love one another; for he who [[Romans-13.fn#Footnote 8.1 — loves|loves]] the other has fulfilled the law.
 
 ## v9
 
@@ -43,11 +43,11 @@ Love does not work evil to his neighbor; therefore love is the fulfillment of th
 
 ## v11
 
-And this, knowing the time, that it is already the hour for you to be raised from sleep; for now is our salvation nearer than when we believed.
+And this, knowing the time, that it is already the hour for you to be raised from sleep; for now is our [[Romans-13.fn#Footnote 11.1 — salvation|salvation]] nearer than when we believed.
 
 ## v12
 
-The night is far advanced, and the day has drawn near. Let us therefore cast off the works of darkness, and let us put on the weapons of light.
+The [[Romans-13.fn#Footnote 12.1 — night|night]] is far advanced, and the day has drawn near. Let us therefore cast off the works of darkness, and let us put on the weapons of light.
 
 ## v13
 
@@ -55,4 +55,4 @@ Let us walk becomingly as in the day; not in reveling and drunkenness, not in fo
 
 ## v14
 
-But put on the Lord Jesus Christ, and make no provision for the flesh to fulfill its lusts.
+But [[Romans-13.fn#Footnote 14.1 — put|put]] on the Lord Jesus Christ, and make no [[Romans-13.fn#Footnote 14.2 — provision|provision]] for the flesh to fulfill its lusts.

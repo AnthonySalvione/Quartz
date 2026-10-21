@@ -1,6 +1,6 @@
 ## v1
 
-And as David dwelt in his house, David said to Nathan the prophet, See now, I dwell in a house of cedar, but the Ark of the Covenant of Jehovah dwells under curtains.
+[[1 Chronicles-17.fn#Footnote 1.1 — And|And]] as David dwelt in his house, David said to Nathan the prophet, See now, I dwell in a house of cedar, but the Ark of the Covenant of Jehovah dwells under curtains.
 
 ## v2
 

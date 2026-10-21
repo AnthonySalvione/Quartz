@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses and to Aaron, saying,
 
 ## v2
 
-The children of Israel shall encamp each by his own standard with the ensigns of their fathers’ households; they shall encamp facing the Tent of Meeting on every side.
+The children of Israel shall [[Numbers-02.fn#Footnote 2.1 — encamp|encamp]] each by his own [[Numbers-02.fn#Footnote 2.2 — standard|standard]] with the ensigns of their fathers’ households; they shall encamp [[Numbers-02.fn#Footnote 2.3 — facing|facing]] the Tent of Meeting on every side.
 
 ## v3
 
@@ -32,7 +32,7 @@ And his company, that is, his numbered men: fifty-seven thousand four hundred.
 
 ## v9
 
-All who were numbered of the camp of Judah: one hundred eighty-six thousand four hundred, according to their companies. They shall set out first.
+All who were numbered of the camp of Judah: one hundred eighty-six thousand four hundred, according to their companies. They shall set out [[Numbers-02.fn#Footnote 9.1 — first|first]].
 
 ## v10
 

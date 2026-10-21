@@ -3,7 +3,7 @@ Author: John
 ---
 ## v1
 
-Now on the first day of the week, Mary the Magdalene came early to the tomb while it was yet dark and saw the stone taken away from the tomb.
+Now on the [[John-20.fn#Footnote 1.1 — first|first]] day of the week, Mary the Magdalene [[John-20.fn#Footnote 1.2 — came|came]] early to the tomb while it was yet dark and saw the stone taken away from the tomb.
 
 ## v2
 
@@ -19,7 +19,7 @@ And the two ran together, yet the other disciple ran ahead faster than Peter and
 
 ## v5
 
-And stooping to look in, he saw the linen cloths lying there; however, he did not enter.
+And stooping to look in, he saw the [[John-20.fn#Footnote 5.1 — linen|linen]] cloths lying there; however, he did not enter.
 
 ## v6
 
@@ -27,7 +27,7 @@ Then Simon Peter also came, following him, and entered into the tomb; and he beh
 
 ## v7
 
-And the handkerchief which had been over His head, not lying with the linen cloths, but folded up in one place apart.
+And the [[John-20.fn#Footnote 7.1 — handkerchief|handkerchief]] which had been over His head, not lying with the linen cloths, but folded up in one place apart.
 
 ## v8
 
@@ -35,7 +35,7 @@ At that time therefore the other disciple also, who came first to the tomb, ente
 
 ## v9
 
-For as yet they did not understand the Scripture, that He had to rise from the dead.
+For as yet they did not understand the Scripture, that He had to [[John-20.fn#Footnote 9.1 — rise|rise]] from the dead.
 
 ## v10
 
@@ -43,7 +43,7 @@ The disciples therefore went away again to their own home.
 
 ## v11
 
-But Mary stood outside at the tomb weeping. Then as she wept, she stooped to look into the tomb
+But Mary stood outside at the tomb [[John-20.fn#Footnote 11.1 — weeping|weeping]]. Then as she wept, she stooped to look into the tomb
 
 ## v12
 
@@ -67,7 +67,7 @@ Jesus said to her, Mary! She turned and said to Him in Hebrew, Rabboni! (which m
 
 ## v17
 
-Jesus said to her, Do not touch Me, for I have not yet ascended to the Father; but go to My brothers and say to them, I ascend to My Father and your Father, and My God and your God.
+Jesus said to her, Do not touch Me, for I have not yet [[John-20.fn#Footnote 17.1 — ascended|ascended]] to the [[John-20.fn#Footnote 17.3 — Father|Father]]; but go to My [[John-20.fn#Footnote 17.2 — brothers|brothers]] and say to them, I ascend to My Father and your Father, and My God and your God.
 
 ## v18
 
@@ -75,19 +75,19 @@ Mary the Magdalene came, announcing to the disciples, I have seen the Lord, and 
 
 ## v19
 
-When therefore it was evening on that day, the first day of the week, and while the doors were shut where the disciples were for fear of the Jews, Jesus came and stood in the midst and said to them, Peace be to you.
+When therefore it was evening on that day, the first day of the week, and while the doors were shut where the [[John-20.fn#Footnote 19.1 — disciples|disciples]] were for fear of the Jews, Jesus [[John-20.fn#Footnote 19.2 — came|came]] and stood in the midst and said to them, Peace be to you.
 
 ## v20
 
-And when He had said this, He showed them His hands and His side. The disciples therefore rejoiced at seeing the Lord.
+And when He had said this, He showed them His hands and His side. The disciples therefore [[John-20.fn#Footnote 20.1 — rejoiced|rejoiced]] at seeing the Lord.
 
 ## v21
 
-Then Jesus said to them again, Peace be to you; as the Father has sent Me, I also send you.
+Then Jesus said to them again, Peace be to you; as the Father has [[John-20.fn#Footnote 21.1 — sent|sent]] Me, I also [[John-20.fn#Footnote 21.2 — send|send]] you.
 
 ## v22
 
-And when He had said this, He breathed into them and said to them, Receive the Holy Spirit.
+And when He had said this, He breathed into them and said to them, Receive the Holy [[John-20.fn#Footnote 22.1 — Spirit|Spirit]].
 
 ## v23
 
@@ -95,7 +95,7 @@ Whose sins you forgive, they are forgiven them; and whose sins you retain, they 
 
 ## v24
 
-But Thomas, one of the twelve, called Didymus, was not with them when Jesus came.
+But Thomas, one of the twelve, called [[John-20.fn#Footnote 24.1 — Didymus|Didymus]], [[John-20.fn#Footnote 24.2 — was|was]] not with them when Jesus came.
 
 ## v25
 
@@ -103,7 +103,7 @@ The other disciples therefore said to him, We have seen the Lord! But he said to
 
 ## v26
 
-And after eight days, His disciples were again within, and Thomas was with them. Jesus came, though the doors were shut, and stood in the midst and said, Peace be to you.
+And [[John-20.fn#Footnote 26.1 — after|after]] eight days, His [[John-20.fn#Footnote 26.2 — disciples|disciples]] were again within, and Thomas was with them. Jesus [[John-20.fn#Footnote 26.3 — came|came]], though the doors were shut, and stood in the midst and said, Peace be to you.
 
 ## v27
 
@@ -111,7 +111,7 @@ Then He said to Thomas, Bring your finger here and see My hands, and bring your 
 
 ## v28
 
-Thomas answered and said to Him, My Lord and my God!
+Thomas answered and said to Him, My Lord and my [[John-20.fn#Footnote 28.1 — God|God]]!
 
 ## v29
 
@@ -123,4 +123,4 @@ Moreover indeed many other signs also Jesus did before His disciples, which are 
 
 ## v31
 
-But these have been written that you may believe that Jesus is the Christ, the Son of God, and that believing, you may have life in His name.
+But these have been written that you may believe that Jesus is the [[John-20.fn#Footnote 31.1 — Christ|Christ]], the Son of God, and that believing, you may have life in His name.

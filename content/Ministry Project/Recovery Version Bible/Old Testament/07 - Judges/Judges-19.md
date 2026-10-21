@@ -68,7 +68,7 @@ And he lifted up his eyes and saw the wayfarer in the square of the city. And th
 
 ## v18
 
-And he said to him, We are passing from Bethlehem in Judah to the far end of the hill country of Ephraim. I am from there, and I went to Bethlehem in Judah; and I am going to my house, and no one takes me into his house.
+And he said to him, We are passing from Bethlehem in Judah to the far end of the hill country of Ephraim. I am from there, and I went to Bethlehem in Judah; and I am going to [[Judges-19.fn#Footnote 18.1 — my|my]] house, and no one takes me into his house.
 
 ## v19
 

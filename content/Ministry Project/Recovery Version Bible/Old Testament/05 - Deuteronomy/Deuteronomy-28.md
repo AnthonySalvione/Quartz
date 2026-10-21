@@ -56,7 +56,7 @@ And you shall not turn aside from any of the words which I am commanding you tod
 
 ## v15
 
-But if you do not listen to the voice of Jehovah your God and are not certain to do all His commandments and His statutes, which I am commanding you today, all these curses will come upon you and overtake you.
+But if you do not listen to the voice of Jehovah your God and are not certain to do all His commandments and His statutes, which I am commanding you today, all these [[Deuteronomy-28.fn#Footnote 15.1 — curses|curses]] will come upon you and overtake you.
 
 ## v16
 
@@ -84,7 +84,7 @@ Jehovah will make a plague cling to you until He has consumed you from off the l
 
 ## v22
 
-Jehovah will strike you with consuming disease and fever and inflammation, and with burning heat and drought, and with blight and mildew; and these will pursue you until you perish.
+Jehovah will strike you with consuming disease and fever and inflammation, and with burning heat and [[Deuteronomy-28.fn#Footnote 22.1 — drought|drought]], and with blight and mildew; and these will pursue you until you perish.
 
 ## v23
 
@@ -116,7 +116,7 @@ And you will be groping at noonday just as the blind man gropes in darkness; and
 
 ## v30
 
-You will get engaged to a woman, but another man will ravish her; you will build a house, but you will not dwell in it; you will plant a vineyard, but you will not partake of it.
+You will get engaged to a woman, but another man will ravish her; you will build a house, but you will not dwell in it; you will plant a vineyard, but you will not [[Deuteronomy-28.fn#Footnote 30.1 — partake|partake]] of it.
 
 ## v31
 

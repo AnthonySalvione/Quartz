@@ -3,15 +3,15 @@ Author: Mark
 ---
 ## v1
 
-And as He was going out of the temple, one of His disciples said to Him, Teacher, behold, what wonderful stones and what wonderful buildings!
+[[Mark-13.fn#Footnote 1.1 — And|And]] as He was going out of the temple, [[Mark-13.fn#Footnote 1.2 — one|one]] of His disciples said to Him, Teacher, behold, [[Mark-13.fn#Footnote 1.3 — what|what]] wonderful stones and what wonderful buildings!
 
 ## v2
 
-And Jesus said to him, Do you see these great buildings? There shall by no means be left here a stone upon a stone which shall not be thrown down.
+And Jesus said to him, Do you see these great buildings? [[Mark-13.fn#Footnote 2.1 — There|There]] shall by no means be left here a stone upon a stone which shall not be thrown down.
 
 ## v3
 
-And as He sat on the Mount of Olives opposite the temple, Peter and James and John and Andrew asked Him privately,
+[[Mark-13.fn#Footnote 3.1 — And|And]] as He sat on the Mount of Olives opposite the temple, Peter and James and John and Andrew asked Him privately,
 
 ## v4
 
@@ -35,7 +35,7 @@ For nation will rise up against nation, and kingdom against kingdom; there will 
 
 ## v9
 
-But you, take heed to yourselves. They will deliver you to sanhedrins, and in the synagogues you will be beaten, and before governors and kings you will stand for My sake, for a testimony to them.
+[[Mark-13.fn#Footnote 9.1 — But|But]] you, take heed to yourselves. They will deliver you to sanhedrins, and in the synagogues you will be beaten, and before [[Mark-13.fn#Footnote 9.2 — governors|governors]] and kings you will stand for My sake, for a testimony to them.
 
 ## v10
 
@@ -43,7 +43,7 @@ Yet the gospel must first be proclaimed to all the nations.
 
 ## v11
 
-And when they lead you away and deliver you up, do not be anxious beforehand about what you should speak, but whatever is given to you in that hour, speak that; for it is not you who are speaking, but the Holy Spirit.
+And when they lead you away and deliver you up, do not be anxious beforehand about what you should [[Mark-13.fn#Footnote 11.1 — speak|speak]], but whatever is given to you in that hour, speak that; for it is not you who are speaking, but the Holy Spirit.
 
 ## v12
 
@@ -55,7 +55,7 @@ And you will be hated by all on account of My name. But he who has endured to th
 
 ## v14
 
-But when you see the abomination of desolation standing where it should not (let him who reads understand), then let those in Judea flee to the mountains;
+[[Mark-13.fn#Footnote 14.1 — But|But]] when you see the abomination of [[Mark-13.fn#Footnote 14.2 — desolation|desolation]] standing [[Mark-13.fn#Footnote 14.3 — where|where]] it should not (let him who reads understand), then let those in Judea flee to the mountains;
 
 ## v15
 
@@ -71,7 +71,7 @@ But woe to those who are pregnant and to those who are nursing babies in those d
 
 ## v18
 
-And pray that it may not happen in winter,
+And pray that [[Mark-13.fn#Footnote 18.1 — it|it]] may not happen in winter,
 
 ## v19
 
@@ -87,11 +87,11 @@ And then if anyone says to you, Behold, here is the Christ! Behold, there! do no
 
 ## v22
 
-For false Christs and false prophets will arise and will show signs and wonders to deceive, if possible, the chosen.
+For false Christs and false prophets will arise and will [[Mark-13.fn#Footnote 22.1 — show|show]] signs and wonders to deceive, if possible, the chosen.
 
 ## v23
 
-But you, beware; I have told you all things beforehand.
+But you, beware; [[Mark-13.fn#Footnote 23.1 — I|I]] have told you all things beforehand.
 
 ## v24
 
@@ -111,11 +111,11 @@ And then He will send the angels, and He will gather together His chosen from th
 
 ## v28
 
-But learn the parable from the fig tree: as soon as its branch has become tender and puts forth its leaves, you know that the summer is near.
+[[Mark-13.fn#Footnote 28.1 — But|But]] learn the parable from the fig tree: as soon as its branch has become tender and puts forth its leaves, you know that the summer is near.
 
 ## v29
 
-So also you, when you see these things happening, know that it is near, at the doors.
+So also you, when you see these things happening, know that [[Mark-13.fn#Footnote 29.1 — it|it]] is near, at the doors.
 
 ## v30
 
@@ -131,7 +131,7 @@ But concerning that day or hour, no one knows, not even the angels in heaven, no
 
 ## v33
 
-Beware, be alert; for you do not know when the time is.
+Beware, be [[Mark-13.fn#Footnote 33.1 — alert|alert]]; for you do not know when the time is.
 
 ## v34
 
@@ -139,7 +139,7 @@ It is like a man who is about to go abroad, having left his house and given to h
 
 ## v35
 
-Watch therefore, for you do not know when the Master of the house comes, whether in the evening or at midnight or at cockcrowing or in the morning;
+Watch therefore, for you do not know when the Master of the house comes, whether in the [[Mark-13.fn#Footnote 35.1 — evening|evening]] or at midnight or at cockcrowing or in the morning;
 
 ## v36
 

@@ -8,7 +8,7 @@ And Jacob’s anger burned against Rachel, and he said, Am I in the place of God
 
 ## v3
 
-And she said, Here is my servant Bilhah; go in to her, that she may bear upon my knees and that I also may have children through her.
+And she said, Here is my servant Bilhah; go in to her, that she may bear upon my knees and that I also may [[Genesis-30.fn#Footnote 3.1 — have|have]] children through her.
 
 ## v4
 
@@ -20,7 +20,7 @@ And Bilhah conceived and bore Jacob a son.
 
 ## v6
 
-And Rachel said, God has judged me, and has also heard my voice and given me a son; therefore she called his name Dan.
+And Rachel said, God has judged me, and has also heard my voice and given me a son; therefore she called his name [[Genesis-30.fn#Footnote 6.1 — Dan|Dan]].
 
 ## v7
 
@@ -28,7 +28,7 @@ And Bilhah Rachel’s female servant conceived again and bore Jacob a second son
 
 ## v8
 
-And Rachel said, In wrestling with God, I have wrestled with my sister and have prevailed; so she called his name Naphtali.
+And Rachel said, [[Genesis-30.fn#Footnote 8.1 — In|In]] wrestling with God, I have wrestled with my sister and have prevailed; so she called his name [[Genesis-30.fn#Footnote 8.2 — Naphtali|Naphtali]].
 
 ## v9
 
@@ -40,7 +40,7 @@ And Zilpah Leah’s female servant bore Jacob a son.
 
 ## v11
 
-And Leah said, How fortunate! So she called his name Gad.
+And Leah said, How fortunate! So she called his name [[Genesis-30.fn#Footnote 11.1 — Gad|Gad]].
 
 ## v12
 
@@ -48,7 +48,7 @@ And Zilpah Leah’s female servant bore Jacob a second son.
 
 ## v13
 
-And Leah said, Happy am I! For the daughters will call me blessed; so she called his name Asher.
+And Leah said, [[Genesis-30.fn#Footnote 13.1 — Happy|Happy]] am I! For the daughters will call me [[Genesis-30.fn#Footnote 13.1 — Happy|blessed]]; so she called his name [[Genesis-30.fn#Footnote 13.2 — Asher|Asher]].
 
 ## v14
 
@@ -68,7 +68,7 @@ And God gave heed to Leah, and she conceived and bore Jacob a fifth son.
 
 ## v18
 
-And Leah said, God has given me my hire, because I gave my female servant to my husband; so she called his name Issachar.
+And Leah said, God has given me my hire, because I gave my female servant to my husband; so she called his name [[Genesis-30.fn#Footnote 18.1 — Issachar|Issachar]].
 
 ## v19
 
@@ -76,7 +76,7 @@ And Leah conceived again and bore a sixth son to Jacob.
 
 ## v20
 
-And Leah said, God has endowed me with a good dowry; now my husband will dwell with me, because I have borne him six sons; so she called his name Zebulun.
+And Leah said, God has endowed me with a good dowry; now my husband will [[Genesis-30.fn#Footnote 20.1 — dwell|dwell]] with me, because I have borne him six sons; so she called his name [[Genesis-30.fn#Footnote 20.2 — Zebulun|Zebulun]].
 
 ## v21
 
@@ -92,7 +92,7 @@ And she conceived and bore a son and said, God has taken away my reproach.
 
 ## v24
 
-And she called his name Joseph, saying, May Jehovah add to me another son.
+And she called his name [[Genesis-30.fn#Footnote 24.1 — Joseph|Joseph]], saying, May Jehovah add to me another son.
 
 ## v25
 
@@ -112,7 +112,7 @@ And he said, Name me your wages, and I will give it.
 
 ## v29
 
-And Jacob said to him, You indeed know how I have served you, and how your livestock has fared with me.
+And [[Genesis-30.fn#Footnote 29.1 — Jacob|Jacob]] said to him, You indeed know how I have served you, and how your livestock has fared with me.
 
 ## v30
 
@@ -136,7 +136,7 @@ And Laban said, Fine; let it be according to your word.
 
 ## v35
 
-But on that day Laban removed the male goats that were streaked and spotted, and all the female goats that were speckled and spotted, every one that had white in it, and all the black ones among the sheep, and gave them into the care of his sons.
+But on that day [[Genesis-30.fn#Footnote 35.1 — Laban|Laban]] removed the male goats that were streaked and spotted, and all the female goats that were speckled and spotted, every one that had white in it, and all the black ones among the sheep, and gave them into the care of his sons.
 
 ## v36
 

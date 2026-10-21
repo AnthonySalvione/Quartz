@@ -11,7 +11,7 @@ And the soldiers wove a crown of thorns and put it on His head, and they threw a
 
 ## v3
 
-And they came to Him and said, Rejoice, King of the Jews! and slapped Him.
+And they came to Him and said, [[John-19.fn#Footnote 3.1 — Rejoice|Rejoice]], King of the Jews! and slapped Him.
 
 ## v4
 
@@ -35,7 +35,7 @@ When Pilate therefore heard this word, he became frightened the more,
 
 ## v9
 
-And he entered into the praetorium again and said to Jesus, Where are You from? But Jesus gave him no answer.
+And he entered into the [[John-19.fn#Footnote 9.1 — praetorium|praetorium]] again and said to Jesus, Where are You from? But Jesus gave him no answer.
 
 ## v10
 
@@ -51,11 +51,11 @@ From then on, Pilate sought to release Him, but the Jews cried out, saying, If y
 
 ## v13
 
-Pilate therefore, when he heard these words, brought Jesus outside and sat down on the judgment seat in a place called the Pavement, but in Hebrew, Gabbatha.
+Pilate therefore, when he heard these words, brought Jesus outside and sat down on the judgment seat in a place called the Pavement, but in Hebrew, [[John-19.fn#Footnote 13.1 — Gabbatha|Gabbatha]].
 
 ## v14
 
-Now it was the day of preparation for the Passover; it was about the sixth hour. And he said to the Jews, Behold, your King!
+Now it was the day of [[John-19.fn#Footnote 14.1 — preparation|preparation]] for the Passover; it was about the [[John-19.fn#Footnote 14.2 — sixth|sixth]] hour. And he said to the Jews, Behold, your King!
 
 ## v15
 
@@ -63,7 +63,7 @@ They cried out then, Take Him away! Take Him away! Crucify Him! Pilate said to t
 
 ## v16
 
-Therefore at that time he delivered Him to them that He might be crucified. Therefore they took Jesus.
+Therefore at that time he delivered Him to them that [[John-19.fn#Footnote 16.1 — He|He]] might be crucified. Therefore they took Jesus.
 
 ## v17
 
@@ -79,7 +79,7 @@ And Pilate wrote a notice also and put it on the cross; and it was written, JESU
 
 ## v20
 
-This notice therefore many of the Jews read, for the place where Jesus was crucified was near the city, and it was written in Hebrew, in Latin, and in Greek.
+This notice therefore many of the Jews read, for the place where Jesus was crucified was near the city, and it was written in [[John-19.fn#Footnote 20.1 — Hebrew|Hebrew]], in  [[John-19.fn#Footnote 20.1 — Hebrew|Latin]], and in  [[John-19.fn#Footnote 20.1 — Hebrew|Greek]].
 
 ## v21
 
@@ -87,31 +87,31 @@ The chief priests of the Jews therefore said to Pilate, Do not write, The King o
 
 ## v22
 
-Pilate answered, What I have written, I have written.
+Pilate answered, [[John-19.fn#Footnote 22.1 — What|What]] I have written, I have written.
 
 ## v23
 
-The soldiers then, when they had crucified Jesus, took His garments and made four parts, a part for each soldier, and they took the tunic as well. But the tunic was seamless, woven from the top throughout.
+The soldiers then, when they had crucified Jesus, [[John-19.fn#Footnote 23.1 — took|took]] His garments and made four parts, a part for each soldier, and they took the [[John-19.fn#Footnote 23.2 — tunic|tunic]] as well. But the [[John-19.fn#Footnote 23.2 — tunic|tunic]] was seamless, woven from the top throughout.
 
 ## v24
 
-They said therefore to one another, Let us not tear it, but let us cast lots for it to see whose it shall be, that the Scripture might be fulfilled which says, “They divided My garments among themselves, and for My clothing they cast lots.” So then the soldiers did these things.
+They said therefore to one another, Let us not tear it, but let us cast lots for it to see whose it shall be, that the Scripture might be fulfilled which says, “They divided My garments among themselves, and for My clothing they cast lots.” So then the soldiers [[John-19.fn#Footnote 24.1 — did|did]] these things.
 
 ## v25
 
-And there were standing by the cross of Jesus His mother and His mother’s sister and Mary the wife of Clopas and Mary the Magdalene.
+And there were standing by the cross of Jesus His mother and His mother’s [[John-19.fn#Footnote 25.1 — sister|sister]] and Mary the wife of Clopas and Mary the Magdalene.
 
 ## v26
 
-Then Jesus, seeing His mother and the disciple whom He loved standing by, said to His mother, Woman, behold, your son.
+Then Jesus, seeing His mother and the disciple whom He loved standing by, said to His mother, Woman, [[John-19.fn#Footnote 26.1 — behold|behold]], your son.
 
 ## v27
 
-Then He said to the disciple, Behold, your mother. And from that hour the disciple took her into his own home.
+Then He said to the disciple, [[John-19.fn#Footnote 27.1 — Behold|Behold]], your mother. And from that hour the disciple took her into his own home.
 
 ## v28
 
-After this, Jesus, knowing that all things had now been finished and so that the Scripture might be fulfilled, said, I thirst.
+After this, Jesus, knowing that all things had now been finished and so that the Scripture might be fulfilled, said, I [[John-19.fn#Footnote 28.1 — thirst|thirst]].
 
 ## v29
 
@@ -119,7 +119,7 @@ There was lying there a vessel full of vinegar; therefore, they put a sponge ful
 
 ## v30
 
-Then when Jesus had taken the vinegar, He said, It is finished! And He bowed His head and delivered up His spirit.
+Then when Jesus had taken the [[John-19.fn#Footnote 30.1 — vinegar|vinegar]], He said, It is [[John-19.fn#Footnote 30.2 — finished|finished]]! And He bowed His head and delivered up His spirit.
 
 ## v31
 
@@ -134,8 +134,8 @@ The soldiers therefore came and broke the legs of the first man and of the other
 But coming to Jesus, when they saw that He had already died, they did not break His legs;
 
 ## v34
-
-But one of the soldiers pierced His side with a spear, and immediately there came out blood and water.
+ 
+But one of the soldiers pierced His side with a spear, and immediately there came out [[John-19.fn#Footnote 34.1 — blood|blood]] and water.
 
 ## v35
 
@@ -143,7 +143,7 @@ And he who has seen this has testified, and his testimony is true; and he knows 
 
 ## v36
 
-For these things happened that the Scripture might be fulfilled: “No bone of His shall be broken.”
+For [[John-19.fn#Footnote 36.1 — these|these]] things happened that the Scripture might be fulfilled: “No [[John-19.fn#Footnote 36.2 — bone|bone]] of His shall be broken.”
 
 ## v37
 
@@ -151,11 +151,11 @@ And again another Scripture says, “They shall look on Him whom they pierced.�
 
 ## v38
 
-And after these things Joseph from Arimathea, being a disciple of Jesus, but a hidden one for fear of the Jews, requested of Pilate that he might take the body of Jesus away; and Pilate allowed it. He came therefore and took His body away.
+And [[John-19.fn#Footnote 38.1 — after|after]] these things Joseph from Arimathea, being a disciple of Jesus, but a hidden one for fear of the Jews, requested of Pilate that he might take the body of Jesus away; and Pilate allowed it. He came therefore and took His body away.
 
 ## v39
 
-And Nicodemus, he who had come to Him the first time by night, came also, bringing a mixture of myrrh and aloes of about a hundred pounds.
+And Nicodemus, he who had come to Him the first time by night, came also, bringing a mixture of myrrh and aloes of about a hundred [[John-19.fn#Footnote 39.1 — pounds|pounds]].
 
 ## v40
 

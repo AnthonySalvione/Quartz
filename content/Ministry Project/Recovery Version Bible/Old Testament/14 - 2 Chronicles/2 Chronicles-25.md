@@ -60,7 +60,7 @@ And the anger of Jehovah was kindled against Amaziah; and He sent a prophet to h
 
 ## v16
 
-And when he spoke to him, the king said to him, Have we made you a counselor to the king? Stop; why should you be struck down? So the prophet stopped and said, I know that God has determined to destroy you, for you have done this and have not listened to my counsel.
+And when he spoke to him, [[2 Chronicles-25.fn#Footnote 16.1 — the|the]] king said to him, Have we made you a counselor to the king? Stop; why should you be struck down? So the prophet stopped and said, I know that God has determined to destroy you, for you have done this and have not listened to my counsel.
 
 ## v17
 
@@ -80,7 +80,7 @@ But Amaziah would not listen, for it was of God, so that He might deliver them i
 
 ## v21
 
-So Joash the king of Israel went up, and he and Amaziah the king of Judah confronted each other in Beth-shemesh, which belongs to Judah.
+So [[2 Chronicles-25.fn#Footnote 21.1 — Joash|Joash]] the king of Israel went up, and he and Amaziah the king of Judah confronted each other in Beth-shemesh, which belongs to Judah.
 
 ## v22
 

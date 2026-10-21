@@ -1,10 +1,10 @@
 ## v1
 
-And Abraham journeyed from there toward the region of the Negev and dwelt between Kadesh and Shur; then he sojourned in Gerar.
+And Abraham journeyed from [[Genesis-20.fn#Footnote 1.1 — there|there]] toward the region of the Negev and dwelt between Kadesh and Shur; then he sojourned in Gerar.
 
 ## v2
 
-And Abraham said of Sarah his wife, She is my sister. And Abimelech the king of Gerar sent and took Sarah.
+And Abraham said of Sarah his wife, [[Genesis-20.fn#Footnote 2.1 — She|She]] is my sister. And Abimelech the king of Gerar sent and took Sarah.
 
 ## v3
 
@@ -36,11 +36,11 @@ Then Abimelech called Abraham and said to him, What have you done to us? And how
 
 ## v10
 
-And Abimelech said to Abraham, What were you thinking, that you have done this thing?
+And Abimelech said to Abraham, [[Genesis-20.fn#Footnote 10.1 — What|What]] were you thinking, that you have done this thing?
 
 ## v11
 
-And Abraham said, Because I thought, Surely there is no fear of God in this place, and they will slay me because of my wife.
+And Abraham said, Because I [[Genesis-20.fn#Footnote 11.1 — thought|thought]], Surely there is no fear of God in this place, and they will slay me because of my wife.
 
 ## v12
 
@@ -48,11 +48,11 @@ But she is also truly my sister, the daughter of my father, but not the daughter
 
 ## v13
 
-And when God caused me to wander from my father’s house, I said to her, This is your kindness which you must do to me: At every place where we go, say of me, He is my brother.
+And [[Genesis-20.fn#Footnote 13.1 — when|when]] God caused me to wander from my father’s house, I said to her, This is your kindness which you must do to me: At every place where we go, say of me, He is my brother.
 
 ## v14
 
-Then Abimelech took sheep and oxen and male servants and female servants, and gave them to Abraham; and he returned Sarah his wife to him.
+Then Abimelech took sheep and oxen and male servants and female servants, and gave them to Abraham; and he [[Genesis-20.fn#Footnote 14.1 — returned|returned]] Sarah his wife to him.
 
 ## v15
 
@@ -60,11 +60,11 @@ And Abimelech said, My land is now before you; dwell wherever it pleases you.
 
 ## v16
 
-And to Sarah he said, I have now given your brother a thousand pieces of silver. It is now your vindication in the eyes of all who are with you. And in every respect you have been cleared.
+And to Sarah he said, I have now given your brother a thousand pieces of silver. It is now your [[Genesis-20.fn#Footnote 16.1 — vindication|vindication]] in the eyes of all who are with you. And in every respect you have been cleared.
 
 ## v17
 
-And Abraham prayed to God; and God healed Abimelech and his wife and his female servants, so that they bore children.
+And Abraham [[Genesis-20.fn#Footnote 17.1 — prayed|prayed]] to God; and God healed Abimelech and his wife and his female servants, so that they bore children.
 
 ## v18
 

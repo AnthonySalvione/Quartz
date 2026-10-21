@@ -12,7 +12,7 @@ Now then, please take your weapons, your quiver and your bow, and go out to the 
 
 ## v4
 
-And prepare for me a tasty meal, such as I love, and bring it to me to eat, so that I may bless you before I die.
+And prepare for me a tasty meal, such as I love, and bring it to me to eat, so that [[Genesis-27.fn#Footnote 4.1 — I|I]] may [[Genesis-27.fn#Footnote 4.2 — bless|bless]] you before I die.
 
 ## v5
 
@@ -44,7 +44,7 @@ And Jacob said to Rebekah his mother, Behold, Esau my brother is a hairy man, an
 
 ## v12
 
-Perhaps my father will feel me, and I will be as a deceiver in his sight, and I will bring upon myself a curse and not a blessing.
+Perhaps my father will feel me, and I will be as a [[Genesis-27.fn#Footnote 12.1 — deceiver|deceiver]] in his sight, and I will bring upon myself a curse and not a blessing.
 
 ## v13
 
@@ -72,7 +72,7 @@ And he came to his father and said, My father. And he said, Here I am. Who are y
 
 ## v19
 
-And Jacob said to his father, I am Esau your firstborn; I have done as you told me. Now rise up; sit up and eat some of my game, so that you may bless me.
+And Jacob said to his father, I am Esau your firstborn; I have done as you told me. Now rise up; sit up and eat some of my game, so that [[Genesis-27.fn#Footnote 19.1 — you|you]] may bless me.
 
 ## v20
 
@@ -96,7 +96,7 @@ And he said, Are you really my son Esau? And he said, I am.
 
 ## v25
 
-And he said, Bring it near to me, and I will eat of my son’s game, that I may bless you. So he brought it near to him, and he ate; and he brought him wine, and he drank.
+And he said, Bring it near to me, and I will eat of my son’s game, that [[Genesis-27.fn#Footnote 25.1 — I|I]] may bless you. So he brought it near to him, and he ate; and he brought him wine, and he drank.
 
 ## v26
 
@@ -104,7 +104,7 @@ Then his father Isaac said to him, Please come near and kiss me, my son.
 
 ## v27
 
-So he came near and kissed him; and when Isaac smelled the smell of his garments, he blessed him and said,  
+So he came near and kissed him; and when [[Genesis-27.fn#Footnote 27.1 — Isaac|Isaac]] smelled the smell of his garments, he [[Genesis-27.fn#Footnote 27.2 — blessed|blessed]] him and said,  
 See, the smell of my son — /  
 Like the smell of a field /  
 Which Jehovah has blessed.
@@ -130,7 +130,7 @@ And as soon as Isaac had finished blessing Jacob, when Jacob had just gone out f
 
 ## v31
 
-And he also had prepared a tasty meal and brought it to his father. And he said to his father, Let my father rise up, and eat some of his son’s game, that you may bless me.
+And he also had prepared a tasty meal and brought it to his father. And he said to his father, Let my father rise up, and eat some of his son’s game, that [[Genesis-27.fn#Footnote 31.1 — you|you]] may bless me.
 
 ## v32
 
@@ -150,7 +150,7 @@ And he said, Your brother came deceitfully and has taken away your blessing.
 
 ## v36
 
-And Esau said, Is he not rightly named Jacob, for he has supplanted me these two times? He took away my birthright, and behold now he has taken away my blessing. Then he said, Have you not reserved a blessing for me?
+And [[Genesis-27.fn#Footnote 36.1 — Esau|Esau]] said, Is he not rightly named Jacob, for he has supplanted me these two times? He took away my birthright, and behold now he has taken away my blessing. Then he said, Have you not reserved a blessing for me?
 
 ## v37
 
@@ -163,14 +163,14 @@ And Esau said to his father, Do you have only one blessing, my father? Bless me,
 ## v39
 
 And Isaac his father answered and said to him,  
-Behold, of the fatness of the earth shall your dwelling be, /  
-And of the dew of heaven from above.
+Behold, [[Genesis-27.fn#Footnote 39.1 — of|of]] the fatness of the earth shall your dwelling be, /  
+And [[Genesis-27.fn#Footnote 39.1 — of|of]] the dew of heaven from above.
 
 ## v40
 
 Yet by your sword shall you live, /  
 And you shall serve your brother. /  
-And when you become restless, /  
+And when you [[Genesis-27.fn#Footnote 40.1 — become|become]] restless, /  
 You shall break his yoke from off your neck.
 
 ## v41
@@ -195,4 +195,4 @@ Until your brother’s anger turns away from you, and he forgets what you have d
 
 ## v46
 
-And Rebekah said to Isaac, I am weary of my life because of the daughters of Heth. If Jacob takes a wife of the daughters of Heth like these, from the daughters of the land, what good will my life be to me?
+And Rebekah said to Isaac, I am weary of my life because of the [[Genesis-27.fn#Footnote 46.1 — daughters|daughters]] of Heth. If Jacob takes a wife of the daughters of Heth like these, from the daughters of the land, what good will my life be to me?

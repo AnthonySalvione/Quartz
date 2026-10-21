@@ -1,6 +1,6 @@
 ## v1
 
-And the men of Kiriath-jearim came and took up the Ark of Jehovah and brought it to the house of Abinadab on the hill, and they consecrated Eleazar his son to keep the Ark of Jehovah.
+And the men of Kiriath-jearim came and took up the Ark of Jehovah and brought it to the [[1 Samuel-07.fn#Footnote 1.1 — house|house]] of Abinadab on the hill, and they consecrated Eleazar his son to keep the Ark of Jehovah.
 
 ## v2
 
@@ -8,7 +8,7 @@ And it was a long time from the day that the Ark began to abide in Kiriath-jeari
 
 ## v3
 
-Then Samuel spoke to all the house of Israel, saying, If you are returning with all your heart to Jehovah, remove the foreign gods and the Ashtaroth from your midst, and direct your heart to Jehovah and serve only Him; and He will deliver you from the hand of the Philistines.
+Then Samuel [[1 Samuel-07.fn#Footnote 3.1 — spoke|spoke]] to all the house of Israel, saying, If you are returning with all your heart to Jehovah, remove the foreign gods and the Ashtaroth from your midst, and direct your heart to Jehovah and serve only Him; and He will deliver you from the hand of the Philistines.
 
 ## v4
 
@@ -44,7 +44,7 @@ And the men of Israel went out from Mizpah and pursued the Philistines, and they
 
 ## v12
 
-Then Samuel took a stone and set it between Mizpah and Shen; and he called its name Ebenezer and said, Thus far Jehovah has helped us.
+Then Samuel took a stone and set it between Mizpah and Shen; and he called its name [[1 Samuel-07.fn#Footnote 12.1 — Ebenezer|Ebenezer]] and said, Thus far Jehovah has helped us.
 
 ## v13
 

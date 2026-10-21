@@ -1,0 +1,279 @@
+---
+speaker:
+  - Bob Danker
+hymn:
+  - "[[Bluebook-1]]"
+  - "[[Hymn-832]]"
+---
+Tonight we come to a very important subject... This one is another important section of the Pre-Training. We have this class every term, I think we use the same outline every term, so you hear this message 4 itmes while in the Trainng - there is a reason for that, because it is so so crucial. We must see and understand how crucial this matter of keeping the oneness in the Body is with the Apostles Teaching... different teachings equals division in this christian realm, and as a result, are many divisions - build around different teachings which are not part of the unique teaching of the Apostles.
+# The Apostles' Teaching (1-01)
+
+**Scripture Reading:** [[Acts-02#v42|Acts 2:42]]; [[Hebrews-01#v2|Heb. 1:2]]; [[John-14#v10|John 14:10]]; [[John-16#v12|16:12-15]]; [[Matthew-28#v20|Matt. 28:20]]; [[Revelation-02#v1|Rev. 2:1]], [[Revelation-02#v7|7]]; [[1 Timothy-01#v3|1 Tim. 1:3-4]]
+
+Apostles is plural, meaning there are more than one apostle. These apostle,s though plural, has one teaching. The teaching is singular. The first apostle in the NT was the Lord. He was the sent one. An apostle is one who is sent. THe lord said repeatedly he was sent by the father. The father sent him. He is the first apostle, and there are others who following Him, and they all spoke, taught, wrote, and what they spoke, taught and wrote was just the unique speaking of hte apostles. We can rejoicei n  the lord and be vey thankful that the lord has recovered all the content of the apostles teaching.... from matthew to revelation by the ministry o the lords recovery. We are here in the training with the totality of the apostles teaching available and open to us- we need to enter into it, and that is one of the purposes of the trainnig... to have a solid grasp fo the apostles teaching so we would not teach anything else ourselves... and know what to teach
+
+This outline is quite long but it is very very rich
+
+## I. The three thousand believers who were saved on the day of Pentecost continued steadfastly in the teaching and the fellowship of the apostles—[[Acts-02#v41|Acts 2:41-42]].
+
+THis is quite a marvelous thing. I was thinking today - it's very interesting that on the day of pentacost - not only 20 were saved, but 3,000... big number, probably all Jews but they are from differnt parts of the world coming to Jerusalm for the Pentacost feast. Peter released the gospel, and 3000 were saved. These three thousand, at that point in time, were the totality of the body of Chrsit, the totality of the local churches, and all the beelivers at that earth at that time. One group of believers making up the church in Jeruslam - the unique local church on the earth. There was only one. So, this kind of scenery... gives us a kind of view, because ACts 2:41-42 says that, ![[Acts-02#V42]]Teaching and fellowshjip are relayed here. Every teaching produces a fellowship - if i teach yo ua certain way, it will produce a certain fellowship. One unique teaching and fellowhisp of the apostles. You could say that these 3000 on the day of pentecost represent all beleivers across all ages... they had one teaching, one fellowship. IN the Lord's recovery, on every part of this earth, we have, you can go and you can enjoy the fellowshuip - and it is one fellowship. It is the same everywhere because there is only one teaching. We believe we are in the unique fellowship of the apostles based upon the uniqute teachings of the apostles. We have the assurance we are in this teaching. 1 John 1:3 says , ![[1 John-01#v3]]Us here is the apostles... So, there is only one fellowship in the whole universe among gods people, and this is based upon the teaching and reporting of the teaching of the apostles. The apostles reported to the beleivers what they had seen and heard, bringing the belivers into the same fellowship the apostles were in. Among gods people there should be only one teaching producing only one fellowship, which is enjoyed, partaken of, and participated in only one church - the unqiue body of christ. Everything is one. The oneness. 
+
+### A. The teaching and the fellowship of the apostles are related directly to God's economy for the keeping of the oneness of the church, the Body of Christ.
+
+So, if we have... God has an Economy we sang about it earlier, is to build up the BOC by dispensing himself into his chosen people woh are memebrs of his body... and for this, There HAS TO BE THE ONENESS. Onc ewe have division, the body is basically dismembered, broken up into many pieces, and there can be no real experince of the body life nor any building up. The teaching is crucial, and the teaching of the apostles are related directly to this keeping of the oneness of fellowship
+
+#### 1. The teaching of the apostles is the holding factor of the one accord—[[Acts-02#v42|Acts 2:42a]], [[Acts-02#v46|46a]].
+
+In the book of Acts, the expression 'one accord' appears in (related to belivers) 5 verses. The first one Acts 1:14 - upper room praying in one accord. What is one accord? It is a particular word in the greek language - homothumadon.... referring to having one mind, one heart, and purpose - a oneness not just in the spirit, but in the soul. So, in this, you can see in the Book of Acts, there are 5 different places inthe book saying the believers were in one accord...
+
+chapter 2 - after saying they continued steadfastly in the teaching and fellowship of the apostles - it said they continued steadast in the one accord.... teaching and one accord - the one accord came from and out of the teaching, and the teaching is the holding factor that keeps us in the one accord/ We have one teaching among us among the lords recoverey - you wont find another teaching... so the way we thikn, our goal, our desire, is one. We are one in this. We have one accord. THat is what we should have... this is what God wants us to have, and what we need to have in order t ocarry out gods economy and purpose to build up the BOC. If we have different eachings and fellowship, we will have discord and diviosn. We cannot allow anything to come in that breaks the one accord amung us.... to keep the same mind heart and purpose.
+
+How can we keep the one accord? Point 2 says,
+
+#### 2. ==If we limit ourselves to the apostles' teaching==, the teaching concerning God's New Testament economy, we will be kept in oneness and will have one way for one goal.
+
+The apostles teaching teaches God's NT economy - how do we know that? Because 1 TImothy, Paul said to Timothy that he left him in a cerain place, that he would charge certain ones not to teach different things. So, there were differetn teachings, right? Then, the next verse he says that they are teaching things that are different from God's econmy - Gods economy  therefore is the unique teaching...
+
+In contrast, if we don't limit ourselves to the one unique teaching, we will lose the oneness, and have many ways with many goals - this is the situation with todays christianity - in the recovery, we have one teaching, one way, one goal - the one goal is to build up the Body of Christ... to do what? To consummate the New Jerusalem! Our goal, our unqiue goal is the New Jerusalem. Of course, we are going to see a lot about the New Jerusalem in this training.
+
+Okay, so we need to have one goal. BL said that the problem among christians is that the workers - the one who carry out gods work - do not take the  New Jerusalemas their unique goal. Most of them dont know what the NJ is.... let alone taking it as their goal. We know what it is, PTL it has been recovered.
+
+#### 3. God's economy is to dispense the Triune God into His chosen and redeemed people to be their life and everything that they might be regenerated and transformed into the proper material for the building up of the Body of Christ that God may have a corporate expression on earth in many localities in this age with a view to the building up of the coming New Jerusalem for His eternal expression.
+
+Firstly regenerated, then transformed. So God would have a corporate expression on earth. So, God wants to have a corporate expression... which is the entire bible. The body is the corporate expression - your body is your expression. Your person livers in your body, and your body is your expression. Same with Christ. His body is His expression - and this expression SHOULD APPERA in many localities as many local churches. Every local church should be a local expression of the unqiue BOC. It's through these local expressions that the Lord will build up the universal BOC... which will consummate in the NJ in eterniy for God's eternal expression. This is the one goal that God has - to build up the BOC, the body is also the bride... we talk both about bride preparation, and also building the body, which are the same thing. This will ultimately consummated in the New Jerusalem.
+
+Okay, so, the source of the churches degredgraadtion and division is turning away from the apostles teaching. "All who are in Asia turned away from me" the footnote says they did not turn away from the person of Paul, but his teaching.... the teaching of paul was to complete GOd's revelation... part of the apostles teaching - they turned away from that... so the church became degraded and divided. Whatever we see among christians today, si a kind of degraded situation with much divsion... becaus there was an absolute turning away of the apostles teaching, which is the source of degredation... By the time paul passe daway in 2 Tim, degredtion was already there, but when you get to Revelation, you see it even developed... in Rev. 2-3. The degredation began when the church turned away from the apostles teaching... then it declined further.
+
+### B. In the church there should be only one unique teaching—the teaching of the apostles.
+
+We have to lay hold of this, and absolutely limit ourselves to the one unique teaching.
+
+#### 1. Teaching is the unveiling of God's New Testament economy.
+
+THis is the defintion of teaching. So, what is an unveiling? it's a removing of the veil so people can see. God's NT ECON is omething taht is reawl, but not many see it. It's not visible to many... so, we have to teach people, including each toher, so that the veil could be taken away and we could see the revelation of God's NT Econ, which concenrs Christ and the church.
+
+#### 2. In God's New Testament economy there is only one kind of teaching revealed and recognized by God—the apostles' teaching.
+
+God does not recognize any other teaching... He does not permit it, neither accept it or recognize it. This one teaching is revealed by Him and recognized by Him... I was thikning about matt. 16 when he asked the disciples who do you say that I am? Peter said he is the christ... then the Lord said "flesh and blood did not revela this to you but my fahter" so, peter received a revelation FROM THE FATHER to see who this man was. He was standing in front of him, the lord jesus is the very Christ and the son of the living god.
+
+This is revelation. Paul, in Galatians 1 - it pleased God to reveal His son in me. So, we need revelation. Every time we come to the word, we should open ourselves to the Lrod, and exercise our spirit and contact THE SPIRIT who is the spirit of revelation. He revelas things to us. So, our entire christian life we should be receiving revelation upon revelation concerning GOd's ECON which is the unique teaching of hte NT.
+
+#### 3. The apostles' teaching is the teaching concerning Christ's person and redemptive work—[[2 John-01#v9|2 John 9-11]].
+
+Okay, his person is mainly related to his incarnation as the son of God/ He is the son of god, the embodiment of hte entire Tg... he became a man through incarnation. We have his person - who is he? Eventually through his deat hand resurrection, he became the LG SPIRIT. First a man of flesh and blood, then life giving spirit. He has his person and he has his work - his work is a work of redemption... mainly through His deat hand His resurrection - he redeemed us by dying  to bear our sins on his body, carried them onto the cross for us... to bear them away, to remove our sins. I don't know whether this is true... but i belivee it may be true that the entire work of Christ is to REDEEM not just judicially but sanctification and transformation then redemption of our body. When the Lord ocmes, he will redeem the third part of our being, so our entire being will not just be juditially redeemed and accepted by god, but fully brought back to God and even brought into God making us the same as he. Anyways, Christ has his person and his work. If you read the NT, you can see there was a struggle here... there were some who taught that CHrist was not Son of GOd, not God, and that he was ont a real man, but a phantom... not a real man. There were heresies going around at the times of the apostles concerning Christ's person.
+
+#### 4. The apostles' teaching is also the teaching concerning God's economy in faith—[[1 Timothy-01#v3|1 Tim. 1:3-4]].
+
+So, God's econmoy is in faith. It is not in the natural relam, nor in the work of law. It is nothing to do with keeping the law, not in the natural realm of sight where you can see with your eyes.. but there is a defition of faith in Hebrews 11 - faith is the substantiation of things hoped for... and there is a verse in romans that said - "if you hope for something, it means you dont see" so. the things hoped for are things not seen - and it's the conviction of things not seen. So, faith brings us into a realm taht is beyond the things that are physical in the physical realm... So, God's ECONOMY is in the realm of faith. It's in the realm of faith, not in the natural realm.
+
+
+## II. The entire teaching of the New Testament, which is the apostles' teaching, is God's speaking, God's oracle, in the Son to His New Testament people—[[Hebrews-01#v1|Heb. 1:1-2]].
+
+So, here is another definition of the apostles teaching. It is the entire teaching of the NT, the whole NT is the apostles teaching.... and that teaching is the teaching of the apostles who were men, but it is God's speaking... so God speaks, meaning God speaks in and through man - but here it says that this speaking is in the sonl... this is based upon Heb. 1:1-2 which says, ![[Hebrews-01#v1]]![[Hebrews-01#v2]]
+God speaking in the NT is in the son... it's not through the prophets, but rather through the Son.
+
+### A. God's speaking in the New Testament is in the principle of incarnation.
+
+Now, what is incarnation? God... enters into man, mingles Himself with man, and becomes one with man, SO THAT, when man speaks, God also speaks. So, we are here to cultivate this principle of incarnation, and to participate in it for God's speaking... you know for 1 Cor. 7 , paul said that he gave his opinion - remember? "I think i have the spirit of god" this was paul giving his opmionon, but then his word became pat of gods NT revelation. We have man's speaking - but God speaks in mans speaking.
+
+I LOVE THIS VERSE - 1 Thess. 2:13... Listen to this? ![[1 Thessalonians-02#v13]]
+What you received was the word of God, but you heard it from us... Isn't this amazing? You recevied the word not as the word of men, but as it truly is!! THIS IS THE PRINCIPLE OF INCARNATION - man speaks, but man's speaking is the word of God. This should be common among us... we should be those who speak... as God's oracle. God's mouthpeace so to speak. Our speaking should be God's speaking... not just the word of man... the entire NT is God's speaking - but HJe speaks in the Son... 
+
+### B. In the age of the New Testament God does not speak to His people in many portions and in many ways or through the prophets but speaks in only one person, the Son.
+
+Remember John 1 - the son is the word. He is the word - the defintinion, explanation and expression of God... whatever GOd is is expressed in this person - He is God's speaking.
+
+#### 1. First, God spoke in the Son as a man in the four Gospels—[[John-14#v10|John 14:10]]; [[John-05#v24|5:24]]; [[John-16#v12|16:12]]; [[John-10#v30|10:30]].
+
+So, this is the first part of the NT - four gospels... Matthew through John. All of that is God's speaking in the Son as a MAN. The Lord was a man on the earth... and His speaking was God's speaking. He was the unique one who spoke the Word of GOd. There are a number of wonderful verses here i would like to point out to you. ![[John-07#v16]]![[John-07#v17]]![[John-07#v18]]
+"I am teaching you what the one who sent me wants to speak to me."  This is the Lord ,right? John 8:28
+![[John-08#v28]]
+
+What is the source of the apostles teaching? It's the Father. The Father is the source... even when the Son was on the earth, the Father was the source of His speaking... He spoke the Father's word. This is the first apostle sent by the Father, and He spoke the fathers word... there are other portions that say the same thing basically - the son is speaking in the fathers speaking. This is in the four gospels...
+
+#### 2. Second, God spoke in the Son as the Spirit through the apostles in Acts and the twenty-one Epistles (Romans through Jude)—[[John-16#v12|John 16:12-15]]; [[Matthew-28#v19|Matt. 28:19-20]]; [[Hebrews-02#v3|Heb. 2:3-4]]; [[2 Peter-03#v15|2 Pet. 3:15-16]]; [[Colossians-01#v25|Col. 1:25-27]].
+
+Firstly he spoke in the gospels as a man, but in acts and the 21 epistles... God spoke in spirit THORUGH the apostles, but these apostles were members of the son, the corporate Christ. So, even God's speaking in the book of acts and the 21 epoistles that follow the book of Acts was spoken by apostles, it was the speaking of the son of God by the spirit. Are you not a member of the son? You are. We are all members of the son... and our spaking should be gods speaking! He was in the apostles speaking in them as the spriit. All the verses here show us the wonderful speaking.
+
+#### 3. Third, God spoke in the Son as the seven Spirits through the apostle John in Revelation—[[Revelation-01#v2|Rev. 1:2]], [[Revelation-01#v4|4]]; [[Revelation-02#v1|2:1]], [[Revelation-02#v7|7]].
+
+So, John said in Revelation that he testified the Word of God... then, the Son's speaking in the seven epistles to the seven churches - it says CHrist and the Spirit was speaking.. Christ is the speaking spirit, and he spoke as the spirit to the churches THROUGH THE MESSENGERS. So, here is again God speaking in and through man... anyways, the book of Revelation you have GOd's speaking in the son as the sevn spirits... He is the seven fold intensified spirit to overcome the degredation of the church.
+
+Okay, so in the NT, God's speaking was completed through Paul and John. Paul said God had commissioned him to complete the word of GOd. Then John, a tthe end of his book, he said nobody should add to what i have written here, whoever adds to it, God will add to him the plagues of this book. Johns writing ends and concludes the entire speaking of God in the entire BIBLE. We don't go beyond what is spoken in the bibel... we hshould not add nor subtract.... There are groups of people on the earth who add... the Mormons are one of them. They add. They have another book... and the Jehovah Witnesses also, they are the ones who add. They also subtract because they don't bring the revelation that the man Jesus is the TG himself in humanity... they don't bring it to you. Recently they knocked on my door - John said we shouldnt even recive such a person... nor bring them into our home... No! We should wish them well! It's not that we would be mean, but just shut the door... the door to your mind, house, soul... you have nothing to say to them, and they don't have anything to say to us. IF we get into a conversation with them, we may get entangled, but we should simply proclaim that Jesus is God!!!!!
+
+#### 4. God first spoke in the Son individually, and then He spoke in the Son corporately, speaking in the enlarged, corporate Son, the corporate Christ—[[1 Corinthians-12#v12|1 Cor. 12:12]].
+
+This is again the matter of individually and corporately... so, today we are members of the CORPORATE CHRIST. God should speeak IN OUR SPEAKING... but what do we speak? We don't add anything from what has been spoken in the biboe, not do we subtract - we simply repeat... our speaking is a repition of what has already been spoken in the 66 books o f the bible, which are Gods complete speaking.
+
+### C. This speaking in the Son, the apostles' teaching, does not stress matters such as foot-washing, baptism, head covering, etc. These are not the basic, intrinsic, central, and elementary things contained in the New Testament revelation concerning God's eternal economy. Such items are not the crucial parts of God's economy.
+
+WE don't stress these things because these are not the focus of God's speaking in teh Son, nor crucial items of God's economluy... we shouldn't stress things like that. So, when we speak for the Lord, we should stress the items that are on the central line of the DR.... these are the items of the christian faith that make all the belviers one... if i try to speak to you about tongue speaking... what would happen then? There would be no oneness, because some may not buy it... you can't stress these things... what do we stress then? God's eternal econmoy - we take the building up of the BOC as the goal and the NJ as the ultimate consummation.
+
+We need to limit ourselves ... we shouldn't stress things that are not in the central line of God's revelation. If we do, we would bring in division and confusion.
+
+## III. The teaching of the apostles is the unique divine revelation of God's New Testament economy from the incarnation of God to the consummation of the New Jerusalem, carried out by the full ministry of Christ in three divine and mystical stages for the fulfillment of God's eternal economy.
+
+Gospel of Matthew begins with this - "the generations of Jesus Christ" Goes all the way back to Abraham - it talks about the incarnation - that is the beginning of the revelation of God's NT ECON.... God becoming man... this teaching continues, and reaches a consummation of the NJ at the end of the bible. This economy of God, which begins with incarnaiotn, ending in NJ, is carried out by the full min of christ in three divine and mystical stages... we have a class in this training called the full min of christ - this ministry of christ is the way that GOds econ is carried out.
+
+### A. The first stage, the stage of incarnation, is for Christ to bring God into man [to mingle the Triune God with the tri-partite man], to express God in humanity, and to accomplish His judicial redemption.
+
+THis is from Christ's incarnation to His death - the first stage.
+
+### B. The second stage, the stage of inclusion, is for Christ to be begotten as God's firstborn Son, to become the life-giving Spirit, and to regenerate the believers for His Body.
+
+This stage, the stage of inclusion, brother Lee used this term inclusion... began with Christ's resurrection, and ended wtih the degredation of the church... a very positive and wonderful thing the resurrection, and the terrible degredation of the church - that ends the second stage of christs full min... When was christ begotten to be a firstborn son? In resurrection right? To become the LGS... and to regenerate the belivers for his body - that is also in resurrection, all three of these things were accomplished by christs resurrection... this second stage is portrayed from Acts to Jude - 21 epistles.
+
+### C. The third stage, the stage of intensification, is for Christ to intensify His organic salvation, to produce the overcomers, and to consummate the New Jerusalem.
+
+This is for Christ to do three things, and this time Christ is the Spirit in resurreciton, but He had been intensified 7-fold. We live in the age of intensification! If we exercise our spirit, we will touch the 7-fold intensified spirit! What a wonderful thing... 
+
+three things - intensify his organic salvation... which he needs to intensify to produce the overcomers. We are here to be PRODUCED as overcomers by the 7-fold intensified spirit - we don't make ourselves overcomers but are produced by teh 7-spirits, and ultimately consummate the NJ - this is all in the book of revelation, the contents of God's eternal econ carried out by the full min of christ carried out in three divine and mystical stages.
+
+## IV. ==The apostles' teaching is the church's constitution==; the church must hold it and be under it absolutely.
+
+Now, the way I see this matter of the constitution - we live in the US of A... probably most all of countries have a constitution - which is a document which governs all the people - it states their rights... we have a constitution, and nobody is above the constitution. No one. The constitution is the highest rule... even the president of the US... if he violates the constitution, he is out, he has no standing... so, what is our constitution? The church is God's kingdom, right? We are the citizens of that kingdom, so we have a constitution. This constitution is the apostles teaching. So, the church must hold it and be under it absolutely, without any wavering... absolutely we must hold to the apostles teaching. We are not here because we are loyal to a *person* but we are holding the apostles teaching as our constitution. Even brother Lee, whom we appreciate to the uttermost, and from whom we recevie so much is NOT ABOVE the constitution - no... we are not followign a man, but rather holding the teaching of the apostles as our CONSITUTION.
+
+I am very impressed with the apostle Paul... what he said - he wrote something in Galatians, listen to this - In Galatians 1:6-9 and 11-12
+![[Galatians-01#v6]]
+A different gospel ![[Galatians-01#v7]]There isn't another gospel... Then Paul says, ![[Galatians-01#v8]]Even we, meaning himself... So, paul pronounced a curse on himself if we would teach or announce a gospel other than the one he himself announced... he was the person who brought the gospel to the believers, but he was not above it but under it - he had to cnoduct himself undre the gospel and could not teach differently...![[Galatians-01#v9]]![[Galatians-01#v11]]![[Galatians-01#v12]]
+
+
+Paul received his gospel directly through revelation from the lord. The Lord was the one who gave him the revelation of the gospel - and he announced the reelation that he had received, and then said even if I teach different.. something not so good would happen - you see how binding and absolute the constitution is - nobody is above it... and you know, rbtoehr Lee gives an account - i think he attended watchman nees wedding, and there was a big turmoil coming out of that, but a brother said brother nee - "i dont follow you as a man. I want you to know, that if you take another way, i would not follow you... I will fallow the revelation that i have reecived" we should be like this. Suppose it happens - may it mever happen - a person whom you regard very highly eentually takes another way, would you follow him? No. You shouldnt. the revelation, the apostles teaching of gosd NT econ... even if you reeciveed it by then. That was intended to be an encouragement from brother lee to nee.... would you be encouraged by that? If you take another way I wont follow you?
+
+### A. The apostles' teaching is the constitution of the Christian faith—Jude 3; [[1 Timothy-01#v19|1 Tim. 1:19]]; [[1 Timothy-06#v12|6:12]]; [[2 Timothy-04#v7|2 Tim. 4:7]].
+
+So, it is the christian faith. It is what we christians believe - we have our faith, not the subjective faith, but the things in which we believe. This is our constitution, our faith. Jude 3 says, ![[Jude-01#v3]]Contend for the faith. And paul in 1 Tim 6:12 ![[1 Timothy-06#v12]]and ![[2 TImothy-04#v7]]
+
+### B. The apostles' teaching, as the church's constitution, should be universally taught everywhere in every church in the same way—[[1 Corinthians-04#v17|1 Cor. 4:17]]; [[1 Corinthians-07#v17|7:17]].
+
+This is Paul's word in 1 Corinthians 4:17... where Paul said that , ![[1 Corinthians-04#v17]]
+So, Paul taught the same thing everywhere and every church. Wonderful. He was restricted, he had no liberty to teach differently among the churches.
+
+#### 1. The teaching of the apostles is for God's economy, and the teaching is the healthy words of the Lord Jesus—[[1 Timothy-01#v3|1 Tim. 1:3-4]]; [[1 Timothy-06#v3|6:3]].
+
+So, there are verses which talk about healthy words. Healthy words are words that minister life - nourish and enlighten us so we can grow. Differnt teachings are not healthy, not healthy words.... so we need to hold on to the healthy words.
+
+#### 2. All teachings must be restricted by the limit and sphere of the apostles' teaching.
+
+So, we must be restricted. The Lord was restricted, the spirit is restricted, all the apostles were restricted, and we all should be restricted not to teach anything outside the apostles teaching.
+
+#### 3. Christianity has many ways because of the many teachings outside the limit of the apostles' teaching.
+
+#### 4. **All** the problems, divisions, and confusion among Christians today are due to one thing—not caring only for the unique revelation of the apostles' teaching.
+
+THis shows us how crucial this is - we are here in this training to enter fully into this teaching and learn how to care for it, be limited by it, stay within the boundary with it, so there would be no problem of divsion or confusion among us...
+
+### C. In the church there should be one unique teaching, the apostles' teaching, not different teachings.
+
+This is a good point coming.
+
+### D. This constitution, like every constitution, must be properly interpreted.
+
+That is interesting isn't it. We have the US constituion... what do we call the *interpretive* function in the government? It's the supreme court - that is their Job... that is their Job - to tell you waht the constitution says and means... they are supposd to hold everybody hfaithful to the constitution,... the constitution is a document produced by teh foudning fathers of our country 250 years ago... it stands today as the top - well, governning document, but you have to have the right intepretatino about it, and there is a struggle about htis in the worldly realm, but I think I can say hvery clearly and definitely we have the right interpretation. Everybody has the NT... all believers have it, but where is the proper interprettion? I belvie it's in the Lords recovery.
+
+## V. Any teaching that was different from the apostles' teaching was not allowed by the apostles.
+
+The apostles disallowed different teachings in other words.
+
+### A. No other belief besides the unique faith was allowed by the apostles—[[Galatians-01#v7|Gal. 1:7-9]].
+
+This is Galatians again where Paul said "let those who teach differently be accursed" which is a strong pronouncement... romans 16:17 says , ![[Romans-16#v17]] So we should turn away from these ones... if anyone comes like this, we must follow gods word - the word says not to receive them, to not allow them to remain, turn aay from them - because they will cause divisions and ones to stumble - these things have happened in our history.
+
+### B. Teachings that went beyond the teaching of Christ were not allowed by the apostles—[[2 John-01#v9|2 John 9-11]].
+
+in 2 John tehre were heresys concerning the person of christ. John said - when people come to you with these heresies, you should not receive them, reject them.
+
+### C. The different teachings, including those from the Old Testament dispensation that were different from God's economy, were not allowed by the apostles—[[1 Timothy-01#v3|1 Tim. 1:3-4]].
+
+There was a big problem in the NT, right? The book of galatians for instance, what was the problem there? It was the law... the Judaizers were doing their best to bring the believers back to the law - they were lawkeepers, paul was fighting the battle to keep them in the grace of the NT... so, he rejected these teachings, and he was struggling to help the belivers stay in the NT economy.
+
+### D. All teachings that were different from the unique revelation of God's New Testament economy were considered by the apostles to be winds of teaching—[[Ephesians-04#v14|Eph. 4:14]].
+
+Winds. Different teachings are like winds *bowing* the believrs... blwoing them away from God's Nt economy, and all the riches of the lord that we enjoy in that economy - blow them away.. .espeically yong believers are susceptible to this. Paul said something like... in Eph 4:14 ![[Ephesians-04#v14]]The waves toss you around, and carried about by every wind. We need to grow in life. The way to avoid being carried away by winds of teaching is to ENJOY - enjoy the life supply of the word and grow in life day by day. We need to grow.
+
+### E. God's holy writing should not be twisted by anyone in any way but rather unfolded rightly and straightly without any distortion—[[2 Peter-03#v16|2 Pet. 3:16]]; [[2 Timothy-02#v15|2 Tim. 2:15]].
+
+I've been under the ministry of lee and nee for 53 years... i have never found any distortion. You know, in 2 Tim... Paul says, "timothy should be an unashamed workman, cutting straight the word of the truth" he was a carpenter... cutting straight - we should not twist... and in 2 peter, peter wrote that some were twisting pauls teaching - twisting or distorting.. we have to be on the alert that there may be some crookedness... not a straight cut, and the twisting of certain teachings...
+
+So, as long as we stay under the minsitry of brother nee and lee, we would be those who would be able to cut straight the word, and not be under the twisting...
+
+## VI. The blessing of the church is dependent upon the church's continuing steadfastly in the teaching and fellowship of the apostles—[[Acts-02#v42|Acts 2:42]], [[Acts-02#v46|46]]; [[Acts-06#v7|6:7]].
+
+This blessing contains or consists of mainly two things - firstoy., the growth in life... i Think acts 6:7 said the word of God grew - the word is like a seed sown into our being... if we stay under the apotsles teahcing, we will have the blessing of hte grtowth in life - the second one is the increase in teh number of people... it says in Acfts 2:46, that, ![[Acts-02#v46]]
+Acts 6;7 ![[Acts-06#v7]]There was a growth of the word as the seed growing in our being... then, there was also a growth in the number of ones who were added to the church, so we need to be under the Lords' blessing.
+
+On the other side, the degredation of the church, which is the oppostie of blessing is the result of the believers turning away from the apostles teaching. We must continue steadfastly in these teachings. I just feel like the 7 feasts are our continuing steadfastly... then, the morning revival comes out to help us to digest these messages as a way to continue steadfastly... we should be in the word, and then in the bible we should read the bibel, and also the ministry that opens the word...
+
+## VII. The deciding factor in determining the right ministry, which is the ministry of God's New Testament economy, is the teaching of the apostles.
+
+Whast is the right ministry? The ministry which minsters God's NT econmoy. We need to develop a discernment by ourselves being saturated wih the apostles teaching... then, if some other kind of teaching comes along, then we would be able to discern. we need to know this - we need a TASTE... you know, a taste that won't accept anything but  the taste of the Lord through the proper tecahing... and we need a NOSE that can SMELL all the odors that are different - "something is different here...." this is the deciding factor - DOES THIS MINISTRY, THE MINISRY OF THIS CERTAIN PERSON ( ministry is rlated to a person ,a minsiter,, how do you determine the right ministsry?????) DOES IT BRING TO YOU GODS NT ECONOMY, THE TEACHING OF THE APOSTLES??? We were on, last week, finishing the ICSC mornign revival, we took the message on job - a good man becoming a Godman. There was one sentence, i wish i had it with me
+
+it said - "the most positive thing is to express God. What is the most positive thing you can do? Express GOd" That is what we were created for - God made us to experss Him... so, that struck me. Job was not in that realm - he was in the realm of uplifting himself... being perfect and upright just as a man, developing his human capacity.... but he was altogether not in the realm of expressing God... so God had to do something to turn him from the realm of right and wrong to the realm of expressing God.
+
+The next thing that impressed me is that a chrsitian should endeavor to gain God. If we don't gain GOd, we cannot express GOd.... 
+
+Where di Job gain God? At the very end of the book - he says, after God appears to him and speaks to him... "where were you when I created X..." he humbled jpb a bit, and job said " iheard of you with my ear, but now my eye has seen you" brother lee saw - TO SEE GOD IS TO GAIN GOD. When you see GOd, God comes into us and mingles himself to us... and the result is we express him instead of ourselves. I was so impressed with this - wow, i need to express God... fortunately I am a sinner... I have failed, so I need God to express God. THat is a blessing - any time you fail you should thank the Lord... because you realize you need to gain Him more, your problem is because you are short of Him... my failures are just because I don't have enough of the Lord.
+
+So, Job suffered two things - consuming and stripping... so terrible... But, actually, there is another sentence in the MR - "when we have been stripped by God, we will see him." So, if we have too much of ourselves... that blinds us, adn we are not able to see God, so God has to do a little bit of work on us. When I was in christianity 28 years old, the Lord brought me to a situation in my christianl ife where i just had NO WAY TO GO ON - i realized i had no idea what a crhstiian was or how to be one, i was at a dead end, then a couple weeks later the lored brought me to my frist meeting in LA and I SAW GOD IN THE SAINTS... they were speaking, i thought "these people know the Lord, He is real to them! I want that I dont have that!" I decided that night to leave the denomination i grew up in to be with these people. If I hadn't been... reduced... i wouldn't have been able to see - i dont believe so, i don't believe i would be content... when you meet people on the campus, some people are very content with what the have, so they can't see... but some people are not content, they are what we call the seeking ones - seeking for something moer than what the yhae... and they are the ones who we can lead into the recovery - not because of us, but because the yhaev the capacity to see God, whereas others don't have that capacity because hey were satisfied...
+
+Job was content in his uprightness and human perfecftion - no way for him to see God, then the lord did a work in him, then eventually job was able to see God. We need the Lord to open our eyes on one hand, and also bring us into a situation where we are able to see him and not content with what we have. This is very good.
+
+### A. A person's work is in the New Testament ministry if he teaches the teaching of the apostles.
+
+### B. The unique ministry is the ministry ordained by God according to the apostles' teaching.
+
+Unique ministy meaning there is only one - the one unique teaching which is the teaching of the apostles.
+
+### C. The unique ministry is only for the accomplishment of God's economy, which is to build up the church as the Body of Christ.
+
+I would like to add, "for the consummating of the New Jerusalem as the eternal goal of God's eternal econ...." So, the biulding up of the body is for the consummating of the NJ.. Okay, i hope you receveid something - you have 15 minutes... there is nobody here to give announcements yet... should we have some sharing??
+
+
+
+
+What a privilege for us to be under the one unique minsistry NT todya - this minstiry was carried out by the lord jesus christ himself - then later in acts this minstry was carried out by the teaching and fellowship of the apostles. we today need to see and be governed by this vision of the apostles teaching, so we can be those who build up the body of chrsit.
+
+Tim Huang - the blessing of the churhc depends on whether we continue the apostles teaching or not, which is the holding factor of our oneness. To teach something different than the apostles teaching is not small, but a direct word of satan. Apostles teaching began with christ in the 4 gospels according to Hebrews 1:2... in the 4 gospels, the apostles teaching is god speaking in the son as a man, the epsitles is god speaking as a man through the spirit - we see this in John 14:20 and 1 Cor. 2:13... It is only when we are in the spirit we can be brought into this divine mystical realm... where the divine trinity is a factor of our oneness... it is only in this oneness where we can bring CHrist back...
+
+Ivy - I've never been in anywhere else but the lords recovery, so i dont know what it is like to be under a different teaching, but i am so happy and praising the lord for his mercy that i am in the lords receovery, where i am under the healthy teaching of Gods econ.... i cant imagine if it would be any other way - i was to testify that in the training, it's just like so much healthy teaching, and by being constituted with the apostles teaching... and this teaching becomes our MINSTRY. There is no guarentee that we wil stay in the lords recovery, btu i pray to the lord that we would have mercy....
+
+Jony B - so happy to be here listening to this. I used to go out on the gospel... not that long ago, and when i preached the gospel, i would preach the story of mary or my concepts of the gospel... but the NT teaching is not from men, nor is it unveiled by men... paul received it by revelation from jesus christ... even the lord spoke not his own teaching but the fathers teaching - what is this teaching? It is God's econ - we sang the song! This should be all that we speak.... this NT teaching - but it has to be real to us... Paul in 1 Thes. 2:13 - he spoke what he reecived from the lord, and it was the word of God. God works through incarnation, speaking through men, what should our speaking be? Not to add or substract, but to respeak this apostles teaching.
+
+Crystal Khan - we have the proper interpretive word! I apprecaited that we are all here under the healthy teaching. The teaching is the flowhsi0... and edeternmines whehter we are oneness.. ouyr only goal should be the biulding - and see it consummates the NJ... last term - what kind of bible we have is determined by what kind of person we are... Lat term, i remember I went to one of our home meetings, when i opened the door there were two y9oung men - turneed out they were mormons and I thought they were new ones - the saints opened the door to them, i wasn't that clear... i had a naturally good concept to peach to them... but we need to study and cut straight the word of God. Even if my natural goodness , we should say amen to the word of God.
+
+Karen He - PTL, i am starting to feel pretty convicted by the lrod throughout this message - god cannot afford for us to stray away from teh apostles teaching. His whole purpose the nj, the oneness of the body of christ hinges on the apostles teaching as the holding line. A lot of people might have problems with the NT and the epostles, th apostles teacihngs, because they think its from men, but we see the entire teaching of hte NT, which is the apostles teaching, IS GOD SPEAKING... today, we have the very opportbnity to participate in speakign the NT economy to one another... some part of me is like "oh idk, i want to speak something new..." but now, we jsut need to respeak gods nt economy... we are not form ideal christian beliefs... or an ideal way of life, but be saturated with the NT economy... PTl we can speak the NT economy into one another to build up the BOC.
+
+The apstles teaching is concerning christs person and his redemptive term... last year i was wondering what the full min of christ is or this NT minsitry... we were on the stage of inclusion for the past two tersm... like it said here - the NT began with the incarnation of christ as a man, the stage of incarnation, but then after he resurrected, he spoke through the spirit, which is the stage of inclusion... and this term we will get into the intensification, but at one point i just ealized the full min of christ is just who chrsit is... what he went through and what he is ministering- which is himself into us, through the spirit... and eventually through the intensified spirit - the end goal of his econmy is the NJ... which is the final product of what he is diong... this is exactly what the NT is talking about!! Coming out from denomination, i was dissapointed because there was no end goal... we had salvation and that was it, where are we going? Because they dont have the full apostles teaching - toward the end we see the NT revelation of the NJ, with the BOC as the procedure, so you could say the degredation is of the church is the lost of christss full min and the apostles teaching. We need to KNOW CHrists full ministry so we can fulfil God's plan for us as CHristians.
+
+Melissa-  wanted to share a verse i enjoyed this morninng in Jude - this subject is contendning for the faith - verse 17 - you trainees... ![[Jude-01#v17]]
+1 Tim 1:3 says -- Daniel Viatooro - often times when I have been asked by opposers, they ask "why does your bible have footnotes?" Why are their pages of footnotew and only a couple of verses . this is not an uncommon practice - the bookstore has bibles with commentary... in denominations, they give me the passages in the bile which creates the vision - the separation of our bible is the footnotes of the interpreted word....
+
+Sean Lin - Hallelujah for gods econ... Eph 4:14 says, ![[Ephesians-04#v14]]Thsi verse just touched me, and along with the message, that... sometimes we may are still children, if there is no life in us. You know, how do we know what we are hearing is from the apostles teaching? It's according to the LIFE WITHIN. If you are enjoy8ing the lrod enoujgh, if we have life in us... we have a TASTE. That taste tells us that this is from God. The Lord... brother Nee and Lee, the trainers and even trainees speaking... if we have that TASTE - we know, that is from God. So, we need to turn to our spirit, we need to have growth in life... in that moment, when we speak and listen, we know that these words are from our FATHER. We are one with him.
+
+Henna - I was very impressed by ephesians 4:14... *reads* - i think about, how could we be the little children? Even when I heard a lot of "mature brothers" being tossed by waves and leaving... what about us? If we didn't really konw the apostles teaching, maybe the little winds would blow us away from the Lord's recovery - may the Lord have mercy on us... and make it really clear that there is jiust one teaching, which sit he apostles teaching - and the Lord would really keep us faithful and to stay in the lords recovery.
+
+Throughout this message i was wondering - why do we need to teach gods econ and why is it so important? Let me tell you why - God's economy brings god into man and man into God. That is the purpose of Gods econ. If we are not teaching this very fact, how would God ever get his hearts desire. How would he get his bride? If we odont teach god hetting into man.. .God culd not be satisfied... Job was strict because he couldnt see GOd.. sometimes we are in our environemnt, and we ask the Lord "why?" How many times I've asked the Lord why! Even the past few days!!  Through this message, through hearing about Job, the Lord is like "i need to strip you!! Becuase I need you to see me and God's economy!! And that God wants man to enter into him!!!" This is our ministry!!
+
+Matthew Wu 0 i want to ehco what our sister was sharing - the reason why the apostles teaching is o important is because we are serving according to a vision of the NJ.... in revelation 21:12, it describes a great and high wall of the NJ, at the gates, 12 angels, with names inscribed.... okay, the point is that the foundations of the NJ are the apostles and the prophets - ephesians 2:20 WE ARE BEING BUILT... so, while we are here in the FTT, we are giving ourlves to be constituted with teh apostles teaching - this is imporatn because the teaching produces the fellowship acts 2:42 *reads* we see that the teaching of the apostles is clearl shown in 1 JOhn 1:3... our fellowship is with the father and with the son Jesus Christ.... so, we know the teachings are healthy, because when we receive these healthy words - we are brought into the fellowship and with His son JESU CHRIST. what other teaching does htis??!?!? Bringing god into man!?!?? We know the teachings are good! These teachings are healthy!! These are not limited!! If we are only teahching one thing, it seems we are being devising... but other denominations - they limit their fellowship to only the people with their teaching, but the apostles teaching is the MOST BROAD AND INCLUSIVE - so praise the lord we have these healthy tesachings, we can fellowship with our brothers and sisters, and dispense God into one another... and serve according to this vision
+
+Jacob wong - I really like ROman numeral 4 - this means that... there is no individual saint in the church that is above the apostles teaching... even the apostle Pual himself in Galatians 1... he said that even he is not above the gospel that was revealed to him from the Lord Jesus CHrist. I also apprecaited that statement brother Lee told brother Nee - "I am not following just you your person, but what the lrod has revealed to you to advance his recovery1" tHE APOSTLES teaching is not something fabricated by man, but something revelaed by the Lord through the spirit through the principle of incarntion. I am thankful to the lord we can be in the training to under the apostles teaching - i pray we would become what we read, and we would be able to keep the oneness of the church
+
+Nathan Rottgen - PTL for Gods economy, and that it was unveiled in the aposttles teaching - it is our duty to hold to this teaching and one mnistry... we realize that as CHrist's organic body, we need to be one with Christ to pursue toward his unique goal - his teaching concerning his ecnomy is in faith as seen in 1 Tim. 1:3-4 and we need to trust that by holding to this one teaching, God can accomplish his hearts desrie. .. god spoke through the son, and today the lord is speaking through his body as each one of his members, each one of you needs to dispense and minister GOd's economy to be gain the church. The outline mentions - all the problems today in chrisianity are because these churches do not hold fast to these ONE UNQIEU TEACHING OF THE APOSTLES. This should warn us - we should hold to this one teaching, we shouldnt go in a different way, or try to teach something different... this is something already unveiled to us. We are glorious inheriters of this econmoy.. I have seen a little bit of it, but I realize I need to speak it. I'm speaking it now - each time we pass another term in the trainnig, the Lord is stripping us, and in his stripping, he is adding more of himself into us to make us the same as he is in life and nature... he desires we would build and constitute his church. This is the ministry that we are nuder, we must hold fast to it - PTL we are in the training, a unique opportunity to build up his church... thel ord needs a group of people holding fast to this one apostles teaching.
+
+Andrew Li - no more than one minute
+
+Although i grew up in the lords recovery, i should not take this for granted because i heard this every day growing up, but just took it for granted... we should really experience and taste this healthy teaching, because there are many subtle differences... so we need to know how it tastse. We need to hold fast else we be tossed by waves. We need to hold fast to this apostles teaching as our constitution.
+
+COntinued steadfastly... it would be so wonderful if were there 2000 years ago one of the 3000... but we are in the last time of this age - the lords word is that we need to preac hteh gospel to the end of the world... and this will happen. The enemy did all he could to destroy this apostles teaching - he made so many divisions, but the Lrods reocgery and this ministry is a miracle... all from different back grounds and countries... are here one in the body of christ for the tesimony of the churhc...
+
+Tim Chen - 1 Tim. 4:16 says - ![[1 Timothy-04#v16]]Continuing in the apostles teaching is actually a salvation TO US. Not only to us, but to those whom we proclaim this teaching to. PTL we can be in the training and fully enter into this teaching - may we take this as our foundation, and by keeping this as our foundation, we would enter into the one accord, building up the body of christ consummating the NJ
+
+Zach - i am in this room because there were men who were faithful to speak this - the healthy teaching... is us becoming GOD. That the healthiest!! It's THE healthy teaching. I love that verse that brother Bob shared - when you reecive the word of God... which you heard from us... YOU ACCEPTED IT AS IT TRULY IS - THE WORD OF GOD. We need to keep speaking! Because God is in us, and God speaks through us.
+
+Ben Ramos - what stands before us today is the apostles teaching verses all these other teachings. What is the distinsgguishing? Its a teaching that has a vision - a visoin to bring god to man, which brings man to god for the NJ... all these other teachings dont have such a high vision - if anything, something about headcovering or footwashing... but about this his truth.... in the training we have this special portion where we can fully enter into the apostles teaching -w e can sperad and propogate this teaching to others - not only to unbelievers but fellow believers. This is what builds up the chruch and consummates in the NJ.
+
+John wang - Gods speaking in the NT is in the porciple of Apostles teaching - our qualification is that each one of us has been indwelt by the processed triune god - each one of us is a living testimony of god becoming man so that man can become god - this is why we can present gods econoy - but there is also a practical side which is why we are all here - we need to present the truth faithfully so we need to learn it - but the knowledge of the thing doesnt equal having the thing, we need the reality, and the reality is in your spirit - the processed triune God!
+
+Daniel Zheng - the entire teaching is God's speaking... God's oracle - gods speaking is in the principle of incarntion. First, God spoke in the son, and now the SOn is speaking continually in the mmebers.. Our speaking can really be the apostles teaching . 1 Thes. 2:16 says *reads* - like Zach read - our speaking, what we know from our knowledge is not the teaching - our teaching is really the Son speaking in us... may we continue to afford God a way to speak through us... 
+
+Athan - I appreciated how... in this message we see that God came as the Son, where the father was able to speak through the son, and in the second stage, the apostles spoke, because the Spirit as the Son spoke through them... the stage of intensification - i was reminded liike this morning in being a trainee, it talksed about our charge as a trainee is to teach Gods econ... this message mirrors that where we are teaching the one teaching - the one teaching being the apostles teaching being God's economy - God became man to make ma nGod.

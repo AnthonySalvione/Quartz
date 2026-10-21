@@ -1,0 +1,85 @@
+---
+speaker:
+  - Tony Espinoza
+hymn:
+  - "[[Hymn-947]]"
+---
+# The Crown of Righteousness—The Reward of the Kingdom (2-01)
+
+**Scripture Reading:** [[2 Timothy-04#v7|2 Tim. 4:7-8]], [[2 Timothy-04#v18|18]]
+
+## I. "I have fought the good fight"—[[2 Timothy-04#v7|2 Tim. 4:7a]]
+
+### A. A proper Christian life involves fighting the good fight against Satan and his kingdom of darkness and for the interests of God's kingdom—[[Ephesians-06#v10|Eph. 6:10-19]].
+
+### B. Whenever we minister Christ to others, we find ourselves in a battle; hence, we should be soldiers fighting for God's interests—[[2 Timothy-02#v3|2 Tim. 2:3-4]].
+
+### C. To fight the good fight of the faith means to fight for God's New Testament economy; in particular, it is to fight for Christ as the embodiment of God and the church as the Body of Christ—[[1 Timothy-06#v12|1 Tim. 6:12]]; [[1 Timothy-01#v4|1:4]]; [[Colossians-02#v9|Col. 2:9]], [[Colossians-02#v19|19]].
+
+### D. The overcomers are not delivered out of the present chaos; instead, they conquer the destructive satanic chaos and triumph in the constructive divine economy—[[1 Timothy-01#v3|1 Tim. 1:3-4]], [[1 Timothy-01#v19|19-20]]; [[1 Timothy-04#v1|4:1-2]]; [[Titus-03#v10|Titus 3:10]]; [[2 Timothy-01#v15|2 Tim. 1:15]]; [[2 Timothy-02#v17|2:17-18]]; [[2 Timothy-04#v8|4:8]].
+
+#### 1. The overcomers suffer the chaos, but instead of being disappointed or discouraged, they are strengthened and enabled to stand for and live out the divine economy according to the truth—[[1 Timothy-04#v10|vv. 10]], [[2 TImothy-04#v14|14-18]]; [[2 Timothy-04#v15|2:15]].
+
+#### 2. We conquer the chaos by the processed and consummated Triune God as the all-sufficient grace—[[Matthew-01#v9|1:9]]; [[Matthew-04#v22|4:22]].
+
+## II. "I have finished the course"—[[2 Timothy-04#v7|2 Tim. 4:7b]]
+
+### A. A proper Christian life involves running the course for the carrying out of God's economy according to His eternal purpose—[[1 Corinthians-09#v24|1 Cor. 9:24]].
+
+### B. In order to run the race, we need to put away every encumbrance, every unnecessary burden or impediment—[[Hebrews-12#v1|Heb. 12:1]].
+
+### C. We need to run the race with endurance, suffering the opposition with endurance and never growing weary or fainting in our souls—[[Matthew-04#v2|vv. 2-3]].
+
+## III. "I have kept the faith"—[[2 Timothy-04#v7|2 Tim. 4:7c]]
+
+### A. A proper Christian life involves keeping the faith for participation in the divine riches in God's economy—[[1 Timothy-01#v19|1 Tim. 1:19]]; [[1 Timothy-03#v9|3:9]]; [[1 Timothy-04#v1|4:1]]; [[1 Timothy-06#v12|6:12]]; [[Titus-01#v4|Titus 1:4]]; [[Jude-01#v3|Jude 3]].
+
+### B. To keep the faith is to keep the entire New Testament economy of God—the faith concerning Christ as the embodiment of God and the mystery of God and the church as the Body of Christ and the mystery of Christ—[[1 Timothy-01#v4|1 Tim. 1:4]].
+
+## IV. "Henceforth there is laid up for me the crown of righteousness, with which the Lord, the righteous Judge, will recompense me in that day, and not only me but also all those who have loved His appearing"—[[2 Timothy-04#v8|2 Tim. 4:8]]
+
+### A. The crown is a symbol of glory given as a prize, in addition to the Lord's salvation, to the triumphant runner of the race—[[1 Corinthians-09#v25|1 Cor. 9:25]].
+
+#### 1. This prize is neither of grace nor by faith as salvation is ([[Ephesians-02#v8|Eph. 2:8]]) but of righteousness through works—[[Matthew-16#v27|Matt. 16:27]]; [[Revelation-22#v12|Rev. 22:12]]; [[2 Corinthians-05#v10|2 Cor. 5:10]].
+
+#### 2. The crown of righteousness will be awarded not according to the grace of the Lord but according to His righteousness, and the One who awards it will be the Lord as the righteous Judge.
+
+#### 3. The crown of righteousness, of which Paul was assured, is an incentive to the inoculator to overcome the degradation of the church—[[Revelation-02#v7|Rev. 2:7]].
+
+### B. The crown of righteousness is a reward that will be given to all who love the Lord's appearing—[[2 Timothy-04#v8|2 Tim. 4:8]].
+
+#### 1. The Lord's appearing, His coming back, is a warning, an encouragement, and an incentive to us—[[Matthew-24#v42|Matt. 24:42]].
+
+#### 2. We should love the Lord's appearing and look forward to it with earnest expectation and joy—[[Titus-02#v13|Titus 2:13]].
+
+#### 3. Loving the Lord's appearing is in contrast to loving the present age, the world now before us—[[2 Timothy-04#v10|2 Tim. 4:10]].
+
+#### 4. If we love the Lord's appearing, we will take sides with Him, not with the world, and fight for His interests—[[Matthew-06#v9|Matt. 6:9-10]]; [[James-04#v4|James 4:4]].
+
+## V. "The Lord will...save me into His heavenly kingdom"—[[2 Timothy-04#v18|2 Tim. 4:18]]
+
+### A. The heavenly kingdom, which equals the crown of righteousness, is the kingdom of our Father ([[Matthew-13#v43|Matt. 13:43]]), the kingdom of the Father ([[Matthew-26#v29|Matt. 26:29]]), the kingdom of Christ and of God ([[Ephesians-05#v5|Eph. 5:5]]), and the eternal kingdom of our Lord and Savior Jesus Christ ([[2 Peter-01#v11|2 Pet. 1:11]]), which will be a reward to the overcoming saints—[[Revelation-20#v4|Rev. 20:4]].
+
+### B. The overcoming believers will participate in the heavenly kingdom, the manifestation of the kingdom of the heavens—[[Matthew-07#v21|Matt. 7:21]].
+
+#### 1. As the righteous, the sons of the kingdom, the overcomers will shine forth like the sun in the kingdom of their Father—[[Matthew-13#v43|Matt. 13:43]].
+
+#### 2. In the heavenly kingdom the overcomers will drink the cup of the new covenant anew with their Lord—[[Matthew-26#v29|Matt. 26:29]].
+
+#### 3. In the kingdom of their Father the overcoming believers will feast with the Old Testament overcomers—[[Matthew-08#v11|Matt. 8:11]].
+
+#### 4. To the overcomers the heavenly kingdom will be a joyful inheritance—[[1 Corinthians-06#v9|1 Cor. 6:9-10]].
+
+#### 5. In the heavenly kingdom the overcomers will inherit eternal life and thereby have a fuller enjoyment of the divine life—[[Luke-18#v29|Luke 18:29-30]].
+
+#### 6. In the heavenly kingdom the overcomers will enter into the Lord's joy and thus gain their soul, save their soul, and enjoy the salvation of their soul—[[Matthew-10#v39|Matt. 10:39]]; [[Matthew-16#v25|16:25-26]]; [[Matthew-25#v21|25:21]], [[Matthew-25#v23|23]]; [[Luke-09#v24|Luke 9:24]]; [[Hebrews-10#v39|Heb. 10:39]]; [[1 Peter-01#v5|1 Pet. 1:5]].
+
+#### 7. In the heavenly kingdom the overcoming believers will reign with Christ—[[Revelation-20#v4|Rev. 20:4]].
+
+#### 8. In the heavenly kingdom the overcomers will rule over the nations—[[Revelation-02#v26|Rev. 2:26-27]].
+
+#### 9. In the heavenly kingdom the overcomers will rule over all the possessions of the Lord—[[Matthew-24#v47|Matt. 24:47]].
+
+### C. To receive the reward of the heavenly kingdom is to have the uttermost enjoyment of Christ in a particular way; this special portion will be the prize to His faithful followers—[[Matthew-25#v21|Matt. 25:21]], [[Matthew-25#v23|23]]; [[Philippians-03#v14|Phil. 3:14]]; [[Revelation-17#v14|Rev. 17:14]].
+
+**Reference:** *Crystallization Study Outlines of 1 and 2 Timothy and Titus*, Message 12

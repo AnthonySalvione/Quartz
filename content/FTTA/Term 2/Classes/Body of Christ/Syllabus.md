@@ -1,9 +1,9 @@
 
 | DATE | LESSON | TOPIC                                                                                          | READING ASSIGNMENT                                                                 |
 | ---- | -----: | ---------------------------------------------------------------------------------------------- | ---------------------------------------------------------------------------------- |
-| 2/26 |      1 | [[FTTA/Term 2/Classes/Body of Christ/Lessons/Lesson One\|The Failures in the Churches (1—2)]]  | [[FTTA/Term 2/Classes/Body of Christ/Readings/Week 1 Reading\|CNT, msgs. 221—222]]                                             |
-| 3/5  |      2 | [[FTTA/Term 2/Classes/Body of Christ/Lessons/Lesson Two\|The Degradation of the Church (1—3)]] | [[FTTA/Term 2/Classes/Body of Christ/Readings/Week 2 Reading\|CNT, msgs. 223—225]] |
-| 3/12 |      3 | The Overcomers in the Church (1—2)                                                             | [[FTTA/Term 2/Classes/Body of Christ/Readings/Week 3 Reading\|CNT, msgs. 226—227]]                                             |
+| 2/26 |      1 | [[FTTA/Term 2/Classes/Body of Christ/Lessons/Lesson 1\|The Failures in the Churches (1—2)]]  | [[FTTA/Term 2/Classes/Body of Christ/Readings/Week 1 Reading\|CNT, msgs. 221—222]] |
+| 3/5  |      2 | [[FTTA/Term 2/Classes/Body of Christ/Lessons/Lesson 2\|The Degradation of the Church (1—3)]] | [[FTTA/Term 2/Classes/Body of Christ/Readings/Week 2 Reading\|CNT, msgs. 223—225]] |
+| 3/12 |      3 | The Overcomers in the Church (1—2)                                                             | [[FTTA/Term 2/Classes/Body of Christ/Readings/Week 3 Reading\|CNT, msgs. 226—227]] |
 | 3/19 |      4 | The Overcomers in the Church (3—4)                                                             | *CNT*, msgs. 228—229                                                               |
 | 3/26 |      5 | The Recovery of the Church (1—2)                                                               | *CNT*, msgs. 230—231                                                               |
 | 4/2  |      6 | The Recovery of the Church (3—5)                                                               | *CNT*, msgs. 232—234                                                               |

@@ -1,6 +1,6 @@
 ## v1
 
-Now these are the priests and the Levites who went up with Zerubbabel the son of Shealtiel and Jeshua: Seraiah, Jeremiah, Ezra,
+Now these are the [[Nehemiah-12.fn#Footnote 1.1 — priests|priests]] and the Levites who went up with Zerubbabel the son of Shealtiel and Jeshua: Seraiah, Jeremiah, Ezra,
 
 ## v2
 
@@ -172,7 +172,7 @@ And they offered great sacrifices that day and rejoiced, for God had caused them
 
 ## v44
 
-And on that day men were appointed over the chambers for the stores, for the heave offerings, for the firstfruits, and for the tithes, to gather into them, according to the cities’ fields, the portions assigned by the law for the priests and the Levites, for Judah rejoiced over the priests and Levites who served.
+And on that day men were appointed over the chambers for the stores, for the heave offerings, for the firstfruits, and for the tithes, to gather into them, according to the cities’ fields, the [[Nehemiah-12.fn#Footnote 44.1 — portions|portions]] assigned by the law for the priests and the Levites, for Judah rejoiced over the priests and Levites who served.
 
 ## v45
 

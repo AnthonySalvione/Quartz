@@ -56,7 +56,7 @@ And Jehovah will raise up for Himself a king over Israel who will cut off the ho
 
 ## v15
 
-And Jehovah will strike Israel, as a reed is shaken in the water; and He will uproot Israel out of this good land, which He gave to their fathers, and will scatter them beyond the River, because they made their Asherahs, provoking Jehovah to anger.
+And Jehovah will strike Israel, as a reed is shaken in the water; and He will uproot Israel out of this good land, which He gave to their fathers, and will scatter them beyond the [[1 Kings-14.fn#Footnote 15.1 — River|River]], because they made their Asherahs, provoking Jehovah to anger.
 
 ## v16
 

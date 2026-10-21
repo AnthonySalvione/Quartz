@@ -1,6 +1,6 @@
 ## v1
 
-He who has been wounded in the testicles or has the male organ cut off shall not enter the congregation of Jehovah.
+He who has been [[Deuteronomy-23.fn#Footnote 1.1 — wounded|wounded]] in the testicles or has the male organ cut off shall not enter the congregation of Jehovah.
 
 ## v2
 
@@ -8,7 +8,7 @@ An illegitimate child shall not enter the congregation of Jehovah; even to the t
 
 ## v3
 
-An Ammonite or a Moabite shall not enter the congregation of Jehovah; even to the tenth generation, no descendant of theirs shall enter the congregation of Jehovah forever;
+An [[Deuteronomy-23.fn#Footnote 3.1 — Ammonite|Ammonite]] or a [[Deuteronomy-23.fn#Footnote 3.1 — Ammonite|Moabite]] shall not enter the congregation of Jehovah; even to the tenth generation, no descendant of theirs shall enter the congregation of Jehovah forever;
 
 ## v4
 
@@ -24,7 +24,7 @@ You shall not seek peace with them nor prosperity with them all your days foreve
 
 ## v7
 
-You shall not abhor an Edomite, for he is your brother. You shall not abhor an Egyptian, for you were a sojourner in his land.
+You shall not abhor an [[Deuteronomy-23.fn#Footnote 7.1 — Edomite|Edomite]], for he is your brother. You shall not abhor an Egyptian, for you were a sojourner in his land.
 
 ## v8
 
@@ -56,7 +56,7 @@ For Jehovah your God walks in the midst of your camp to rescue you and deliver u
 
 ## v15
 
-You shall not deliver to his master the slave who has escaped from his master to you;
+You shall not [[Deuteronomy-23.fn#Footnote 15.1 — deliver|deliver]] to his master the slave who has escaped from his master to you;
 
 ## v16
 
@@ -68,7 +68,7 @@ There shall not be a cult prostitute among the daughters of Israel, nor shall th
 
 ## v18
 
-You shall not bring the payment for a harlot or the price for a dog into the house of Jehovah your God for any vow, for both of them are an abomination to Jehovah your God.
+You shall not bring the payment for a harlot or the price for a [[Deuteronomy-23.fn#Footnote 18.1 — dog|dog]] into the house of Jehovah your God for any vow, for both of them are an abomination to Jehovah your God.
 
 ## v19
 
@@ -80,7 +80,7 @@ You may make a foreigner pay interest; but you shall not make your brother pay i
 
 ## v21
 
-When you vow a vow to Jehovah your God, you shall not delay in paying it; for Jehovah your God would certainly require it of you, and it will become sin in you.
+When you vow a [[Deuteronomy-23.fn#Footnote 21.1 — vow|vow]] to Jehovah your God, you shall not delay in paying it; for Jehovah your God would certainly require it of you, and it will become sin in you.
 
 ## v22
 
@@ -92,7 +92,7 @@ What proceeds out of your lips you shall keep and do, as you have vowed to Jehov
 
 ## v24
 
-When you enter your neighbor’s vineyard, you may eat grapes as your soul desires, until you are satisfied; but you shall not put any into a vessel of yours.
+When you enter your neighbor’s vineyard, you may eat grapes as your soul desires, until you are satisfied; but you shall not put any into a [[Deuteronomy-23.fn#Footnote 24.1 — vessel|vessel]] of yours.
 
 ## v25
 

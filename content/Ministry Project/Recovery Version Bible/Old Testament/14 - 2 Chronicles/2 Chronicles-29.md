@@ -1,6 +1,6 @@
 ## v1
 
-Hezekiah began to reign at the age of twenty-five years, and he reigned twenty-nine years in Jerusalem; and his mother’s name was Abijah, the daughter of Zechariah.
+[[2 Chronicles-29.fn#Footnote 1.1 — Hezekiah|Hezekiah]] began to reign at the age of twenty-five years, and he reigned twenty-nine years in Jerusalem; and his mother’s name was Abijah, the daughter of Zechariah.
 
 ## v2
 
@@ -20,7 +20,7 @@ And he said to them, Listen to me, you Levites: Sanctify yourselves now, and san
 
 ## v6
 
-For our fathers were unfaithful and did what was evil in the sight of Jehovah our God, and they forsook Him and turned their faces from the dwelling place of Jehovah, and they turned their backs on Him.
+For our fathers were unfaithful and did what was evil in the sight of Jehovah our God, and they forsook Him and turned their faces from the [[2 Chronicles-29.fn#Footnote 6.1 — dwelling|dwelling]] place of Jehovah, and they turned their backs on Him.
 
 ## v7
 
@@ -120,7 +120,7 @@ And Hezekiah the king and the leaders commanded the Levites to praise Jehovah wi
 
 ## v31
 
-Then Hezekiah responded and said, Now you have consecrated yourselves to Jehovah; come near and bring sacrifices and thank offerings to the house of Jehovah. So the congregation brought sacrifices and thank offerings, and all who were willing in heart brought burnt offerings.
+Then Hezekiah responded and said, Now you [[2 Chronicles-29.fn#Footnote 31.1 — have|have]] consecrated yourselves to Jehovah; come near and bring sacrifices and thank offerings to the house of Jehovah. So the congregation brought sacrifices and thank offerings, and all who were willing in heart brought burnt offerings.
 
 ## v32
 

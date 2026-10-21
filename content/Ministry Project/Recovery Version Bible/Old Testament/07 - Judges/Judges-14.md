@@ -1,6 +1,6 @@
 ## v1
 
-And Samson went down to Timnah, and he saw a woman in Timnah from the daughters of the Philistines.
+And Samson went down to Timnah, and he saw a [[Judges-14.fn#Footnote 1.1 — woman|woman]] in Timnah from the daughters of the Philistines.
 
 ## v2
 
@@ -20,7 +20,7 @@ So Samson went down with his father and mother to Timnah. And as they came to th
 
 ## v6
 
-And the Spirit of Jehovah rushed upon him, and he tore it apart as one might tear a kid apart with his bare hands. And he did not tell his father and mother what he had done.
+And the Spirit of Jehovah rushed upon him, and he [[Judges-14.fn#Footnote 6.1 — tore|tore]] it apart as one might tear a kid apart with his bare hands. And he did not tell his father and mother what he had done.
 
 ## v7
 
@@ -58,7 +58,7 @@ And they could not explain the riddle after three days.
 
 ## v15
 
-Then on the fourth day they said to Samson’s wife, Entice your husband to explain the riddle to us; otherwise we will burn you and your father’s house with fire. Have you invited us here in order to impoverish us? Is it not so?
+Then on the [[Judges-14.fn#Footnote 15.1 — fourth|fourth]] day they said to Samson’s wife, Entice your husband to explain the riddle to us; otherwise we will burn you and your father’s house with fire. Have you invited us here in order to impoverish us? Is it not so?
 
 ## v16
 

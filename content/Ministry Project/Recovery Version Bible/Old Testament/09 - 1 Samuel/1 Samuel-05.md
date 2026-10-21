@@ -12,7 +12,7 @@ And when the Ashdodites arose early the next day, there was Dagon, fallen on his
 
 ## v4
 
-And when they arose early in the morning of the next day, there was Dagon, fallen on his face to the ground, before the Ark of Jehovah. And Dagon’s head and the palms of his hands were cut off, lying on the threshold; only Dagon’s trunk was left to him.
+And when they arose early in the morning of the next day, there was Dagon, fallen on his face to the ground, before the Ark of Jehovah. And Dagon’s head and the palms of his hands were cut off, lying on the threshold; [[1 Samuel-05.fn#Footnote 4.1 — only|only]] Dagon’s trunk was left to him.
 
 ## v5
 
@@ -20,7 +20,7 @@ Because of this, neither the priests of Dagon nor any who enter the house of Dag
 
 ## v6
 
-But the hand of Jehovah was heavy upon the Ashdodites, and He devastated them and struck them with tumors, even Ashdod and its borders.
+But the hand of [[1 Samuel-05.fn#Footnote 6.1 — Jehovah|Jehovah]] was heavy upon the Ashdodites, and He devastated them and struck them with tumors, even Ashdod and its borders.
 
 ## v7
 

@@ -1,0 +1,41 @@
+---
+Category:
+  - Assurance of Salvation
+  - Joy of Salvation
+Subcategory:
+  - Saved by Grace
+Lyricist:
+  - Robert Robinson
+Melody:
+  - John Wyeth
+---
+# Come, Thou Fount of every blessing
+## Stanza 1
+Come, Thou Fount of every blessing,
+Tune my heart to sing Thy grace;
+Streams of mercy, never ceasing,
+Call for songs of loudest praise.
+Jesus sought me when a stranger,
+Wand'ring from the face of God;
+He, to save my soul from danger,
+Interposed His precious blood.
+
+## Stanza 2
+O to grace how great a debtor
+Daily I'm constrained to be!
+Let that grace, Lord, like a fetter,
+Bind my wand'ring heart to Thee.
+Teach me, Lord, some rapturous measure,
+Meet for me Thy grace to prove,
+While I sing the countless treasure
+Of my God's unchanging love.
+
+## Stanza 3
+Prone to wander, Lord, I feel it;
+Prone to leave the God I love:
+Take my heart, oh, take and seal it
+With Thy Spirit from above.
+Rescued thus from sin and danger,
+Purchased by the Savior's blood,
+May I walk on earth a stranger,
+As a son and heir of God.

@@ -8,7 +8,7 @@ And he did what was evil in the sight of Jehovah, but not as his father and his 
 
 ## v3
 
-Yet he clung to the sins of Jeroboam the son of Nebat, by which he caused Israel to sin; he did not turn away from them.
+Yet he clung to the [[2 Kings-03.fn#Footnote 3.1 — sins|sins]] of Jeroboam the son of Nebat, by which he caused Israel to sin; he did not turn away from [[2 Kings-03.fn#Footnote 3.2 — them|them]].
 
 ## v4
 

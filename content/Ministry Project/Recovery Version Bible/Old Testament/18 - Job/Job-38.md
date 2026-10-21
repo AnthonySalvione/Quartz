@@ -1,6 +1,6 @@
 ## v1
 
-Then Jehovah answered Job out of the whirlwind and said,
+Then Jehovah [[Job-38.fn#Footnote 1.1 — answered|answered]] Job out of the whirlwind and said,
 
 ## v2
 
@@ -14,7 +14,7 @@ For I will ask of you, and you shall inform Me.
 
 ## v4
 
-Where were you when I laid the foundations of the earth?  
+[[Job-38.fn#Footnote 4.1 — Where|Where]] were you when I laid the [[Job-38.fn#Footnote 4.2 — foundations|foundations]] of the earth?  
 Tell Me, if you have understanding.
 
 ## v5
@@ -29,8 +29,8 @@ Or who laid its cornerstone,
 
 ## v7
 
-When the morning stars sang together  
-And all the sons of God shouted for joy?
+When the [[Job-38.fn#Footnote 7.1 — morning|morning]] stars sang together  
+And all the [[Job-38.fn#Footnote 7.1 — morning|sons]] of God shouted for joy?
 
 ## v8
 
@@ -64,8 +64,8 @@ And the wicked might be shaken out of it?
 
 ## v14
 
-The earth is changed like clay under a seal,  
-And all things on it stand forth like a garment.
+[[Job-38.fn#Footnote 14.1 — The|The]] earth is changed like clay under a seal,  
+And [[Job-38.fn#Footnote 14.2 — all|all]] things on it stand forth like a garment.
 
 ## v15
 
@@ -154,7 +154,7 @@ Or loosen the cords of Orion?
 
 ## v32
 
-Can you lead forth the Mazzaroth in their season?  
+Can you lead forth the [[Job-38.fn#Footnote 32.1 — Mazzaroth|Mazzaroth]] in their season?  
 Or can you guide the Bear with its cubs?
 
 ## v33
@@ -175,7 +175,7 @@ And say to you, Here we are?
 ## v36
 
 Who has put wisdom in the inward parts,  
-Or given understanding to the mind?
+Or given understanding to the [[Job-38.fn#Footnote 36.1 — mind|mind]]?
 
 ## v37
 

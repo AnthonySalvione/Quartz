@@ -5,7 +5,7 @@ hymn:
   - "[[Hymn-266]]"
   - "[[Hymn-1119]]"
   - "[[Hymn-1120]]"
-reading: "[[Spirit with our spirit week 4]]"
+reading: "[[FTTA/Term 2/Classes/The Spirit/Readings/Week 4]]"
 class: The Spirit
 ---
 *DENNIS HIGASHI IS ON ZOOM, 1ST YEAR AND 2ND YEAR SEPARATED*
@@ -15,7 +15,7 @@ This song, (and I hope we could sing one more song if we have time at the end of
 
 First trainees: What is this anointing we are singing about and Who is this anointing and what are the components of this anointing ointment. You can speak for about 90 seconds.
 
-Khin: The anointing is the working and moving of the compounded spirit within us. As we can see from the song, it teaches us from within. We can see this in 1 John 2:20 and 2:7. As I was reading this, I was like "Lord, what are the practical experiences of the anointing spirit? or the anointing oil". So, this is what I wrote down: when we are about to say something unkind or act in our flesh, there is an inner sense... a checking and knowing within. The sensation is the anointing, and becau7se of this when we turn to the Lord and open to him in prayer, there is a sense of flowing peace. That is the anointing I feel. The anointing doesn't speak in words, it gives the inner sense of life and peace. We are in the Spirit! Romans 8:6 we see the compounded Spirit with all the elements of Christ's death. This is to teach, adjust and saturate ourselves.
+Khin: The anointing is the working and moving of the compounded spirit within us. As we can see from the song, it teaches us from within. We can see this in 1 John 2:20 and 2:7. As I was reading this, I was like "Lord, what are the practical experiences of the anointing spirit? or the anointing oil". So, this is what I wrote down: when we are about to say something unkind or act in our flesh, there is an inner sense... a checking and knowing within. The sensation is the anointing, and because of this when we turn to the Lord and open to him in prayer, there is a sense of flowing peace. That is the anointing I feel. The anointing doesn't speak in words, it gives the inner sense of life and peace. We are in the Spirit! Romans 8:6 we see the compounded Spirit with all the elements of Christ's death. This is to teach, adjust and saturate ourselves.
 
 sister - the anointing is 5 elements. Basis is a hin of olive oil which is the element of God. THe other four spices that were processed, cut and mingled with the oil is myrrh or cinnamon (sweet death of Christ) Calamus and Cassia (resurrection and ascension of CHrist). IN my experience, the anointing oil applpies when I am in a sitaution where I Can sense these is some death happening because I Am restricted, and I am unhappy at the situation... but I can sense the anointing oil within me that is communicating something to me. Inwardly at this point I had the inward presence of God. I was so joyful because I had the presence of the Lord.
 

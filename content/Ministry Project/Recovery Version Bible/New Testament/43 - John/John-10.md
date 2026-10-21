@@ -3,7 +3,7 @@ Author: John
 ---
 ## v1
 
-Truly, truly, I say to you, He who does not enter through the door into the sheepfold, but climbs up from somewhere else, he is a thief and a robber;
+Truly, truly, I say to you, He who does not enter through the [[John-10.fn#Footnote 1.1 — door|door]] into the [[John-10.fn#Footnote 1.2 — sheepfold|sheepfold]], but climbs up from somewhere else, he is a [[John-10.fn#Footnote 1.3 — thief|thief]] and a robber;
 
 ## v2
 
@@ -11,7 +11,7 @@ But he who enters through the door is the shepherd of the sheep.
 
 ## v3
 
-To him the doorkeeper opens, and the sheep hear his voice; and he calls his own sheep by name and leads them out.
+To him the doorkeeper opens, and the [[John-10.fn#Footnote 3.1 — sheep|sheep]] hear his voice; and he calls his own sheep by name and leads them out.
 
 ## v4
 
@@ -35,15 +35,15 @@ All who came before Me are thieves and robbers, but the sheep did not hear them.
 
 ## v9
 
-I am the door; if anyone enters through Me, he shall be saved and shall go in and go out and shall find pasture.
+I am the [[John-10.fn#Footnote 9.1 — door|door]]; if anyone enters through Me, he shall be saved and shall go in and go out and shall find [[John-10.fn#Footnote 9.2 — pasture|pasture]].
 
 ## v10
 
-The thief does not come except to steal and kill and destroy; I have come that they may have life and may have it abundantly.
+The thief does not come except to steal and kill and destroy; I have come that they may have [[John-10.fn#Footnote 10.1 — life|life]] and may have it abundantly.
 
 ## v11
 
-I am the good Shepherd; the good Shepherd lays down His life for the sheep.
+I am the good Shepherd; the good Shepherd lays down His [[John-10.fn#Footnote 11.1 — life|life]] for the sheep.
 
 ## v12
 
@@ -63,7 +63,7 @@ Even as the Father knows Me and I know the Father; and I lay down My life for th
 
 ## v16
 
-And I have other sheep, which are not of this fold; I must lead them also, and they shall hear My voice, and there shall be one flock, one Shepherd.
+And I have [[John-10.fn#Footnote 16.1 — other|other]] sheep, which are not of this fold; I must lead them also, and they shall hear My voice, and there shall be [[John-10.fn#Footnote 16.2 — one|one]] flock, one Shepherd.
 
 ## v17
 
@@ -87,7 +87,7 @@ Others said, These are not the words of one who is demon-possessed. Can a demon 
 
 ## v22
 
-At that time the Feast of the Dedication occurred in Jerusalem, and it was winter.
+At that time the [[John-10.fn#Footnote 22.1 — Feast|Feast]] of the Dedication occurred in Jerusalem, and it was winter.
 
 ## v23
 
@@ -99,7 +99,7 @@ The Jews therefore surrounded Him and said to Him, How long will You hold our so
 
 ## v25
 
-Jesus answered them, I told you, and you do not believe. The works which I do in My Father’s name, these testify concerning Me;
+Jesus answered them, I told you, and you do not believe. The works which I do [[John-10.fn#Footnote 25.1 — in|in]] My Father’s name, these testify concerning Me;
 
 ## v26
 
@@ -111,15 +111,15 @@ My sheep hear My voice, and I know them, and they follow Me;
 
 ## v28
 
-And I give to them eternal life, and they shall by no means perish forever, and no one shall snatch them out of My hand.
+And I give to them [[John-10.fn#Footnote 28.1 — eternal|eternal]] life, and they shall by no means perish forever, and no one shall snatch them out of [[John-10.fn#Footnote 28.1 — eternal|My]] hand.
 
 ## v29
 
-My Father, who has given them to Me, is greater than all, and no one can snatch them out of My Father’s hand.
+My Father, who has given them to Me, is greater than all, and no one can snatch them out of My [[John-10.fn#Footnote 29.1 — Father’s|Father’s]] hand.
 
 ## v30
 
-I and the Father are one.
+[[John-10.fn#Footnote 30.1 — I|I]] and the Father are one.
 
 ## v31
 
@@ -143,7 +143,7 @@ If He said they were gods, to whom the word of God came, and the Scripture canno
 
 ## v36
 
-Do you say of Him whom the Father has sanctified and sent into the world, You are blaspheming, because I said, I am the Son of God?
+Do you say of Him whom the Father has sanctified and [[John-10.fn#Footnote 36.1 — sent|sent]] into the world, You are blaspheming, because I said, I am the Son of God?
 
 ## v37
 
@@ -159,7 +159,7 @@ Then they sought again to seize Him, yet He went forth out of their hand.
 
 ## v40
 
-And He went away again across the Jordan, to the place where John was baptizing at first, and He remained there.
+And [[John-10.fn#Footnote 40.1 — He|He]] went away again across the Jordan, to the place where John was baptizing at first, and He remained there.
 
 ## v41
 

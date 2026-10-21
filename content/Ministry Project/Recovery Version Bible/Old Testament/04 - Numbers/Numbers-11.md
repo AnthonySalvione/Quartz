@@ -8,23 +8,23 @@ And the people cried to Moses; and Moses prayed to Jehovah, and the fire abated.
 
 ## v3
 
-And the name of that place was called Taberah because the fire of Jehovah had burned among them.
+And the name of that place was called [[Numbers-11.fn#Footnote 3.1 — Taberah|Taberah]] because the fire of Jehovah had burned among them.
 
 ## v4
 
-And the mixed multitude that was among them lusted exceedingly; and the children of Israel also wept again and said, Who shall give us meat to eat?
+And the [[Numbers-11.fn#Footnote 4.1 — mixed|mixed]] multitude that was among them lusted exceedingly; and the children of Israel also wept again and said, Who shall give us meat to eat?
 
 ## v5
 
-We remember the fish which we used to eat in Egypt for nothing, the cucumbers and the melons and the leeks and the onions and the garlic;
+We remember the [[Numbers-11.fn#Footnote 5.1 — fish|fish]] which we used to eat in Egypt for nothing, the cucumbers and the melons and the leeks and the onions and the garlic;
 
 ## v6
 
-But now our appetite has gone; there is nothing at all but this manna to look at.
+But now our appetite has gone; there is nothing at all but [[Numbers-11.fn#Footnote 6.1 — this|this]] manna to look at.
 
 ## v7
 
-Now the manna was like coriander seed, and its appearance like the appearance of bdellium.
+Now the manna was like [[Numbers-11.fn#Footnote 7.1 — coriander|coriander]] seed, and its appearance like the appearance of bdellium.
 
 ## v8
 
@@ -60,7 +60,7 @@ And if this is the way You deal with me, please kill me at once — if I have fo
 
 ## v16
 
-So Jehovah said to Moses, Gather to Me seventy, each one from the elders of Israel, whom you know are the elders of the people and their officers, and bring them to the Tent of Meeting, and have them stand there with you.
+So Jehovah said to Moses, Gather to Me [[Numbers-11.fn#Footnote 16.1 — seventy|seventy]], each one from the elders of Israel, whom you know are the elders of the people and their officers, and bring them to the Tent of Meeting, and have them stand there with you.
 
 ## v17
 
@@ -96,7 +96,7 @@ So Moses went out and told the people the words of Jehovah, and he gathered seve
 
 ## v25
 
-And Jehovah came down in the cloud and spoke to him, and He took of the Spirit who was upon him and put Him upon the seventy elders. And when the Spirit rested upon them, they prophesied, but they did not do so again.
+And Jehovah came down in the cloud and spoke to him, and He took of the Spirit who was upon him and put Him upon the seventy elders. And when the Spirit rested upon them, they [[Numbers-11.fn#Footnote 25.1 — prophesied|prophesied]], but they did not do so again.
 
 ## v26
 
@@ -112,7 +112,7 @@ And Joshua the son of Nun, the attendant of Moses, one of his chosen men, answer
 
 ## v29
 
-But Moses said to him, Are you jealous for my sake? Oh that all Jehovah’s people were prophets, that Jehovah would put His Spirit upon them!
+But Moses said to him, Are you jealous for my sake? Oh that [[Numbers-11.fn#Footnote 29.1 — all|all]] Jehovah’s people were prophets, that Jehovah would put His Spirit upon them!
 
 ## v30
 
@@ -132,7 +132,7 @@ While the meat was still between their teeth, before it was chewed, the anger of
 
 ## v34
 
-And the name of that place was called Kibroth-hattaavah because there they buried the people who lusted.
+And the name of that place was called [[Numbers-11.fn#Footnote 34.1 — Kibrothhattaavah|Kibroth-hattaavah]] because there they buried the people who lusted.
 
 ## v35
 

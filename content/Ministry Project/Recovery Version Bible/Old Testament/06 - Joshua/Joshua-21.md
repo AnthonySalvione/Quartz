@@ -140,7 +140,7 @@ Dimnah with its pasture lands, Nahalal with its pasture lands: four cities.
 
 ## v36
 
-And out of the tribe of Reuben: Bezer with its pasture lands and Jahaz with its pasture lands,
+[[Joshua-21.fn#Footnote 36.1 — And|And]] out of the tribe of Reuben: Bezer with its pasture lands and Jahaz with its pasture lands,
 
 ## v37
 

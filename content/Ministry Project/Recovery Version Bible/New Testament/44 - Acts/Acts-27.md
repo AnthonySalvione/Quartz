@@ -3,11 +3,11 @@ Author: Luke
 ---
 ## v1
 
-And when it was decided that we should sail to Italy, they delivered Paul and some other prisoners to a centurion named Julius of the Augustan cohort.
+And when it was decided that [[Acts-27.fn#Footnote 1.1 — we|we]] should sail to Italy, they delivered Paul and some other prisoners to a centurion named Julius of the [[Acts-27.fn#Footnote 1.2 — Augustan|Augustan]] [[Acts-27.fn#Footnote 1.3 — cohort|cohort]].
 
 ## v2
 
-And going on board an Adramyttian ship which was about to sail to places along the coast of Asia, we put out to sea, Aristarchus, a Macedonian of Thessalonica, being with us.
+And going on board an Adramyttian ship which was about to sail to places along the coast of Asia, we [[Acts-27.fn#Footnote 2.1 — put|put]] out to sea, Aristarchus, a Macedonian of Thessalonica, being with us.
 
 ## v3
 
@@ -35,11 +35,11 @@ And coasting along it with difficulty, we came to a certain place called Fair Ha
 
 ## v9
 
-And when considerable time had passed and the voyage was now dangerous, and also because the Fast had already gone by, Paul advised them,
+And when considerable time had passed and the voyage was now dangerous, and also because the [[Acts-27.fn#Footnote 9.1 — Fast|Fast]] had already gone by, Paul advised them,
 
 ## v10
 
-Saying to them, Men, I perceive that the voyage is to be with damage and much loss, not only of the cargo and the ship, but also of our lives.
+Saying to them, [[Acts-27.fn#Footnote 10.1 — Men|Men]], I perceive that the voyage is to be with damage and much loss, not only of the cargo and the ship, but also of our lives.
 
 ## v11
 
@@ -47,7 +47,7 @@ But the centurion was persuaded by the navigator and the ship’s owner rather t
 
 ## v12
 
-And as the harbor was not suitable for wintering, the majority gave counsel to put out to sea from there, if somehow they might be able to reach Phoenix, a harbor of Crete facing northeast and southeast, and spend the winter there.
+And as the harbor was not suitable for wintering, the majority gave counsel to put out to sea from there, if somehow they might be able to reach Phoenix, a harbor of Crete [[Acts-27.fn#Footnote 12.1 — facing|facing]] northeast and southeast, and spend the winter there.
 
 ## v13
 
@@ -55,7 +55,7 @@ And when a south wind blew gently, supposing that they had obtained their purpos
 
 ## v14
 
-But not long afterward there beat down from the island a hurricane wind called Euraquilo.
+But not long afterward there beat down from [[Acts-27.fn#Footnote 14.1 — the|the]] island a hurricane wind called [[Acts-27.fn#Footnote 14.2 — Euraquilo|Euraquilo]].
 
 ## v15
 
@@ -63,11 +63,11 @@ And when the ship was caught by it and was not able to face the wind, we gave wa
 
 ## v16
 
-And running under the shelter of a certain little island called Clauda, we were hardly able to get control of the small boat.
+And running under the shelter of a certain little island called Clauda, we were hardly able to [[Acts-27.fn#Footnote 16.1 — get|get]] control of the small boat.
 
 ## v17
 
-And when they had hoisted it up, they used supports to undergird the ship. And because they feared that they might run aground on Syrtis, they lowered the gear and so were driven along.
+And when they had hoisted it up, they [[Acts-27.fn#Footnote 17.1 — used|used]] supports to undergird the ship. And because they feared that they might run aground on [[Acts-27.fn#Footnote 17.2 — Syrtis|Syrtis]], they [[Acts-27.fn#Footnote 17.3 — lowered|lowered]] the gear and so were driven along.
 
 ## v18
 
@@ -75,7 +75,7 @@ The next day, as we were being violently storm-tossed, they began to jettison th
 
 ## v19
 
-And on the third day they threw the ship’s gear overboard, even with their own hands.
+And on the third day they threw the ship’s [[Acts-27.fn#Footnote 19.1 — gear|gear]] overboard, even with their own hands.
 
 ## v20
 
@@ -83,7 +83,7 @@ And when neither sun nor stars appeared for many days, and while no small storm 
 
 ## v21
 
-And when they had been a long time without food, Paul then stood in their midst and said, O men, you should have listened to me and not set sail from Crete and gained this damage and loss.
+And when they had been a long time without food, Paul then stood in their midst and said, O [[Acts-27.fn#Footnote 21.1 — men|men]], you [[Acts-27.fn#Footnote 21.2 — should|should]] have listened to me and not set sail from Crete and gained this damage and loss.
 
 ## v22
 
@@ -91,15 +91,15 @@ And now I advise you to cheer up, for there will be no loss of life among you, b
 
 ## v23
 
-For this very night an angel of the God whose I am and whom I serve stood by me,
+For this very night an angel of the God whose I am and whom I [[Acts-27.fn#Footnote 23.1 — serve|serve]] stood by me,
 
 ## v24
 
-Saying, Do not fear, Paul; you must stand before Caesar. And behold, God has granted you all those who are sailing with you.
+Saying, Do not fear, Paul; you must [[Acts-27.fn#Footnote 24.1 — stand|stand]] before Caesar. And behold, God has granted you all those who are sailing with you.
 
 ## v25
 
-Therefore, cheer up, men, for I believe God that it shall be so, even in the way in which it has been spoken to me.
+Therefore, cheer up, [[Acts-27.fn#Footnote 25.1 — men|men]], for I believe God that it shall be so, even in the way in which it has been spoken to me.
 
 ## v26
 
@@ -111,11 +111,11 @@ But when the fourteenth night came, as we were being driven about in the Adriati
 
 ## v28
 
-And they took soundings and found it to be twenty fathoms; and when they had gone a little farther, they sounded again and found it to be fifteen fathoms.
+And they [[Acts-27.fn#Footnote 28.1 — took|took]] soundings and found it to be twenty [[Acts-27.fn#Footnote 28.2 — fathoms|fathoms]]; and when they had gone a little farther, they sounded again and found it to be fifteen fathoms.
 
 ## v29
 
-And fearing that we might run aground somewhere on rocky places, they threw four anchors from the stern and wished for day to come.
+And fearing that we might run aground somewhere on [[Acts-27.fn#Footnote 29.1 — rocky|rocky]] places, they threw four anchors from the stern and wished for day to come.
 
 ## v30
 
@@ -171,7 +171,7 @@ And the counsel of the soldiers was that they should kill the prisoners, lest an
 
 ## v43
 
-But the centurion, intending to bring Paul safely through, prevented them from their intention and ordered those who were able to swim to throw themselves overboard first and get to the land,
+But the centurion, [[Acts-27.fn#Footnote 43.1 — intending|intending]] to bring Paul safely through, prevented them from their intention and ordered those who were able to swim to throw themselves overboard first and get to the land,
 
 ## v44
 

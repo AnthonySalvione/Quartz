@@ -1,6 +1,6 @@
 ## v1
 
-And the Philistines fought against Israel, and the men of Israel fled from before the Philistines and fell down slain on Mount Gilboa.
+[[1 Chronicles-10.fn#Footnote 1.1 — And|And]] the Philistines fought against Israel, and the men of Israel fled from before the Philistines and fell down slain on Mount Gilboa.
 
 ## v2
 

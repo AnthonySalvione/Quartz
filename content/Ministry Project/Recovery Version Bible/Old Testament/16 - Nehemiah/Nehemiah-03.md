@@ -16,7 +16,7 @@ And next to them Meremoth the son of Uriah, the son of Hakkoz made repairs. And 
 
 ## v5
 
-And next to them the Tekoites made repairs, but their nobles would not put their necks to the service of their Lord.
+And next to them the Tekoites made repairs, but their nobles would not put their necks to the service of their [[Nehemiah-03.fn#Footnote 5.1 — Lord|Lord]].
 
 ## v6
 

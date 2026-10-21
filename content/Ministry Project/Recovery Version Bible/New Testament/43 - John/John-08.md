@@ -11,7 +11,7 @@ And early in the morning He came again into the temple, and all the people came 
 
 ## v3
 
-And the scribes and Pharisees brought a woman caught in adultery, and having set her in the midst,
+And the scribes and Pharisees brought a [[John-08.fn#Footnote 3.1 — woman|woman]] caught in adultery, and having set her in the midst,
 
 ## v4
 
@@ -19,11 +19,11 @@ They said to Him, Teacher, this woman has been caught committing adultery, in th
 
 ## v5
 
-Now in the law, Moses commanded us to stone such women. What then do You say?
+Now in the law, Moses commanded us to stone such women. [[John-08.fn#Footnote 5.1 — What|What]] then do You say?
 
 ## v6
 
-But they said this to tempt Him, so that they might have reason to accuse Him. But Jesus stooped down and wrote with His finger on the ground.
+But they said this to tempt Him, so that they might have reason to accuse Him. But Jesus [[John-08.fn#Footnote 6.1 — stooped|stooped]] down and wrote with His finger on the ground.
 
 ## v7
 
@@ -43,11 +43,11 @@ And Jesus stood up and said to her, Woman, where are they? Has no one condemned 
 
 ## v11
 
-And she said, No one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no more.
+And she said, No one, [[John-08.fn#Footnote 11.1 — Lord|Lord]]. And Jesus said, [[John-08.fn#Footnote 11.2 — Neither|Neither]] do I condemn you; go, and from now on sin no more.
 
 ## v12
 
-Again therefore Jesus spoke to them, saying, I am the light of the world; he who follows Me shall by no means walk in darkness, but shall have the light of life.
+Again therefore Jesus spoke to them, saying, I am the light of the world; he who follows Me shall by no means walk in darkness, but shall have the [[John-08.fn#Footnote 12.1 — light|light]] of life.
 
 ## v13
 
@@ -59,11 +59,11 @@ Jesus answered and said to them, Even if I testify concerning Myself, My testimo
 
 ## v15
 
-You judge according to the flesh; I judge no one.
+You [[John-08.fn#Footnote 15.1 — judge|judge]] according to the flesh; I [[John-08.fn#Footnote 15.1 — judge|judge]] no one.
 
 ## v16
 
-But even if I do judge, My judgment is true, for I am not alone, but I and the Father who sent Me.
+But even if I do judge, My judgment is true, for I am not alone, but [[John-08.fn#Footnote 16.1 — I|I]] and the Father who sent Me.
 
 ## v17
 
@@ -91,15 +91,15 @@ The Jews then said, He is not going to kill Himself, is He, for He says, Where I
 
 ## v23
 
-And He said to them, You are from below, I am from above; you are of this world, I am not of this world.
+And He said to them, You are [[John-08.fn#Footnote 23.1 — from|from]] below, I am [[John-08.fn#Footnote 23.1 — from|from]] above; you are [[John-08.fn#Footnote 23.1 — from|of]] this world, I am not [[John-08.fn#Footnote 23.1 — from|of]] this world.
 
 ## v24
 
-Therefore I said to you that you will die in your sins; for unless you believe that I am, you will die in your sins.
+Therefore I said to you that you will die in your sins; for unless you believe that [[John-08.fn#Footnote 24.1 — I|I]] am, you will die in your sins.
 
 ## v25
 
-They said then to Him, Who are You? Jesus said to them, Altogether that which I also tell you.
+They said then to Him, Who are You? Jesus said to them, Altogether that which I also [[John-08.fn#Footnote 25.1 — tell|tell]] you.
 
 ## v26
 
@@ -111,7 +111,7 @@ They did not understand that He was speaking to them of the Father.
 
 ## v28
 
-Jesus therefore said to them, When you lift up the Son of Man, then you will know that I am, and that I do nothing from Myself, but as My Father has taught Me, I speak these things.
+Jesus therefore said to them, When you [[John-08.fn#Footnote 28.1 — lift|lift]] up the Son of Man, then you will know that I am, and that I do nothing from Myself, but as My Father has taught Me, I speak these things.
 
 ## v29
 
@@ -127,7 +127,7 @@ Then Jesus said to those Jews who believed Him, If you abide in My word, you are
 
 ## v32
 
-And you shall know the truth, and the truth shall set you free.
+And you shall know the [[John-08.fn#Footnote 32.1 — truth|truth]], and the [[John-08.fn#Footnote 32.1 — truth|truth]] shall set you free.
 
 ## v33
 
@@ -167,7 +167,7 @@ You do the works of your father. They then said to Him, We were not born of forn
 
 ## v42
 
-Jesus said to them, If God were your Father, you would love Me; for I came forth out from God and have come from Him; for I have not come of Myself, but He sent Me.
+Jesus said to them, If God were your Father, you would love Me; for I came forth out from God and have come from Him; for I have not come of Myself, but He [[John-08.fn#Footnote 42.1 — sent|sent]] Me.
 
 ## v43
 
@@ -175,7 +175,7 @@ Why do you not understand My speaking? It is because you cannot hear My word.
 
 ## v44
 
-You are of your father the devil, and you want to do the desires of your father. He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he speaks the lie, he speaks it out of his own possessions; for he is a liar and the father of it.
+You are of your [[John-08.fn#Footnote 44.1 — father|father]] the devil, and you want to do the desires of your father. He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he speaks the lie, he speaks it out of his own [[John-08.fn#Footnote 44.2 — possessions|possessions]]; for he is a liar and the [[John-08.fn#Footnote 44.3 — father|father]] of it.
 
 ## v45
 
@@ -187,7 +187,7 @@ Which of you convicts Me of sin? Since I speak truth, why do you not believe Me?
 
 ## v47
 
-He who is of God hears the words of God; for this reason you do not hear them, because you are not of God.
+He who is of God hears the [[John-08.fn#Footnote 47.1 — words|words]] of God; for this reason you do not hear them, because you are not of God.
 
 ## v48
 
@@ -203,7 +203,7 @@ But I do not seek My glory; there is One who seeks glory for Me and judges.
 
 ## v51
 
-Truly, truly, I say to you, If anyone keeps My word, he shall by no means see death forever.
+Truly, truly, I say to you, If anyone keeps My word, he shall by no means see [[John-08.fn#Footnote 51.1 — death|death]] forever.
 
 ## v52
 
@@ -219,7 +219,7 @@ Jesus answered, If I glorify Myself, My glory is nothing; it is My Father who gl
 
 ## v55
 
-Yet you have not known Him, but I know Him. And if I say that I do not know Him, I will be like you, a liar; but I do know Him and I keep His word.
+Yet you have not [[John-08.fn#Footnote 55.1 — known|known]] Him, but I [[John-08.fn#Footnote 55.1 — known|know]] Him. And if I say that I do not know Him, I will be like you, a liar; but I do know Him and I keep His word.
 
 ## v56
 
@@ -231,7 +231,7 @@ The Jews then said to Him, You are not yet fifty years old, and have You seen Ab
 
 ## v58
 
-Jesus said to them, Truly, truly, I say to you, Before Abraham came into being, I am.
+Jesus said to them, Truly, truly, I say to you, Before Abraham came into being, [[John-08.fn#Footnote 58.1 — I|I]] am.
 
 ## v59
 

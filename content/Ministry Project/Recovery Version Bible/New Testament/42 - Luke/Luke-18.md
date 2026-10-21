@@ -11,7 +11,7 @@ Saying, There was a certain judge in a certain city who did not fear God and did
 
 ## v3
 
-And there was a widow in that city, and she kept coming to him, saying, Avenge me of my opponent.
+And there was a [[Luke-18.fn#Footnote 3.1 — widow|widow]] in that city, and she kept coming to him, saying, [[Luke-18.fn#Footnote 3.2 — Avenge|Avenge]] me of my [[Luke-18.fn#Footnote 3.3 — opponent|opponent]].
 
 ## v4
 
@@ -31,11 +31,11 @@ And will not God by all means carry out the avenging of His chosen ones, who cry
 
 ## v8
 
-I tell you that He will carry out their avenging quickly. Nevertheless, when the Son of Man comes, will He find faith on the earth?
+I tell you that He will carry out their avenging quickly. Nevertheless, when the Son of Man [[Luke-18.fn#Footnote 8.1 — comes|comes]], will He find [[Luke-18.fn#Footnote 8.2 — faith|faith]] on the earth?
 
 ## v9
 
-And He told this parable also to certain ones who trusted in themselves that they were righteous and despised the rest:
+And [[Luke-18.fn#Footnote 9.1 — He|He]] told this parable also to certain ones who trusted in themselves that they were righteous and despised the rest:
 
 ## v10
 
@@ -43,15 +43,15 @@ Two men went up to the temple to pray, the one a Pharisee and the other a tax co
 
 ## v11
 
-The Pharisee stood and prayed these things to himself: God, I thank You that I am not like the rest of men — extortioners, unjust, adulterers, or even like this tax collector.
+The Pharisee stood and prayed these things to himself: God, I thank You that I am [[Luke-18.fn#Footnote 11.1 — not|not]] like the rest of men — extortioners, unjust, adulterers, or even like this tax collector.
 
 ## v12
 
-I fast twice a week; I give a tenth of all that I get.
+I [[Luke-18.fn#Footnote 12.1 — fast|fast]] twice a [[Luke-18.fn#Footnote 12.2 — week|week]]; I give a tenth of all that I get.
 
 ## v13
 
-But the tax collector, standing at a distance, would not even lift up his eyes to heaven, but beat his breast, saying, God, be propitiated to me, the sinner!
+But the tax collector, standing at a distance, would not even lift up his eyes to heaven, but beat his breast, saying, God, be [[Luke-18.fn#Footnote 13.1 — propitiated|propitiated]] to me, the sinner!
 
 ## v14
 
@@ -63,15 +63,15 @@ And they were bringing to Him also their babies that He might touch them. But wh
 
 ## v16
 
-But Jesus called them to Him, saying, Allow the little children to come to Me, and do not forbid them, for of such is the kingdom of God.
+But Jesus called them to Him, saying, Allow the little children to come to Me, and do not [[Luke-18.fn#Footnote 16.1 — forbid|forbid]] them, for of such is the [[Luke-18.fn#Footnote 16.2 — kingdom|kingdom]] of God.
 
 ## v17
 
-Truly I say to you, Whoever does not receive the kingdom of God like a little child shall by no means enter into it.
+Truly I say to you, Whoever does not receive the kingdom of God like a [[Luke-18.fn#Footnote 17.1 — little|little]] child shall by no means enter into it.
 
 ## v18
 
-And a certain ruler questioned Him, saying, Good Teacher, what shall I do to inherit eternal life?
+And a [[Luke-18.fn#Footnote 18.1 — certain|certain]] ruler questioned Him, saying, Good Teacher, [[Luke-18.fn#Footnote 18.2 — what|what]] shall I do to inherit eternal life?
 
 ## v19
 
@@ -99,11 +99,11 @@ And Jesus, seeing that he became very sorrowful, said, How difficult it is for t
 
 ## v25
 
-For it is easier for a camel to enter through the eye of a needle than for a rich man to enter into the kingdom of God.
+For it is easier for a camel to enter through the eye of a [[Luke-18.fn#Footnote 25.1 — needle|needle]] than for a rich man to enter into the kingdom of God.
 
 ## v26
 
-And those who heard said, Then who can be saved?
+And those who heard said, [[Luke-18.fn#Footnote 26.1 — Then|Then]] who can be saved?
 
 ## v27
 
@@ -115,11 +115,11 @@ And Peter said, Behold, we have left our own things and have followed You.
 
 ## v29
 
-And He said to them, Truly I say to you that there is no one who has left house or wife or brothers or parents or children for the sake of the kingdom of God,
+And He said to them, Truly I say to you that there is no one who has left house or wife or brothers or parents or children [[Luke-18.fn#Footnote 29.1 — for|for]] the sake of the kingdom of God,
 
 ## v30
 
-Who shall not by all means receive back many times as much in this time, and in the coming age, eternal life.
+Who shall not by all means receive back many times as much in [[Luke-18.fn#Footnote 30.1 — this|this]] time, and in the coming age, eternal life.
 
 ## v31
 
@@ -127,7 +127,7 @@ And taking the twelve aside, He said to them, Behold we are going up to Jerusale
 
 ## v32
 
-For He will be delivered up to the Gentiles and will be mocked and outrageously treated and spat upon;
+For He will be [[Luke-18.fn#Footnote 32.1 — delivered|delivered]] up to the Gentiles and will be mocked and outrageously treated and spat upon;
 
 ## v33
 
@@ -139,7 +139,7 @@ And they understood none of these things, and this saying was hidden from them, 
 
 ## v35
 
-And as He drew near to Jericho, a certain blind man was sitting by the road, begging.
+And as He [[Luke-18.fn#Footnote 35.1 — drew|drew]] near to Jericho, a certain blind man was sitting by the road, begging.
 
 ## v36
 
@@ -151,7 +151,7 @@ And they told him that Jesus the Nazarene was passing by.
 
 ## v38
 
-And he shouted, saying, Jesus, Son of David, have mercy on me!
+And he shouted, saying, Jesus, [[Luke-18.fn#Footnote 38.1 — Son|Son]] of David, have mercy on me!
 
 ## v39
 
@@ -163,11 +163,11 @@ And Jesus, standing still, commanded that he be led to Him. And when he drew nea
 
 ## v41
 
-What do you want Me to do for you? And he said, Lord, that I may receive my sight!
+[[Luke-18.fn#Footnote 41.1 — What|What]] do you want Me to do for you? And he said, Lord, that I may receive my sight!
 
 ## v42
 
-And Jesus said to him, Receive your sight; your faith has healed you.
+And Jesus said to him, Receive your sight; your faith has [[Luke-18.fn#Footnote 42.1 — healed|healed]] you.
 
 ## v43
 

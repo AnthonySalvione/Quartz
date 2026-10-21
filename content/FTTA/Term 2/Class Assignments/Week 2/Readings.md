@@ -3,9 +3,9 @@
 - [ ] Lessons on the God-ordained Way, Lesson 4 ⏫📅 Wednesday
 
 ## God's Economy Readings
-- [ ] [[Week 2 Readings#Life-study of Galatians, Message 24|Message 24]] ⏫ 📅 Thursday
-- [ ] [[Week 2 Readings#Life-study of Galatians, Message 33 (Section "God's Ultimate Intention")|Message 33: God's Ultimate Intention]] ⏫ 📅 Thursday
-- [ ] [[Week 2 Readings#Life-study of Galatians, Message 35 (Section "The Focal Point of Galatians")|Message 35: The Focal Point of Galatians]] ⏫ 📅 Thursday
+- [ ] [[Reading 2#Life-study of Galatians, Message 24|Message 24]] ⏫ 📅 Thursday
+- [ ] [[Reading 2#Life-study of Galatians, Message 33 (Section "God's Ultimate Intention")|Message 33: God's Ultimate Intention]] ⏫ 📅 Thursday
+- [ ] [[Reading 2#Life-study of Galatians, Message 35 (Section "The Focal Point of Galatians")|Message 35: The Focal Point of Galatians]] ⏫ 📅 Thursday
 
 ## The Spirit Readings
 

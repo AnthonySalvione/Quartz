@@ -52,7 +52,7 @@ But Saul said, No man shall be put to death on this day, for today Jehovah has a
 
 ## v14
 
-Then Samuel said to the people, Come and let us go to Gilgal and there renew the kingdom.
+Then Samuel said to the people, Come and let us go to Gilgal and there renew the [[1 Samuel-11.fn#Footnote 14.1 — kingdom|kingdom]].
 
 ## v15
 

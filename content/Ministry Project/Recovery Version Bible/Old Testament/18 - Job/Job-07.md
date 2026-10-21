@@ -27,7 +27,7 @@ My skin crusts and then oozes again.
 ## v6
 
 My days are swifter than a weaver’s shuttle  
-And are spent without hope.
+And are spent [[Job-07.fn#Footnote 6.1 — without|without]] hope.
 
 ## v7
 
@@ -77,7 +77,7 @@ And death rather than my bones.
 
 ## v16
 
-I loathe life; I would not live forever.  
+I [[Job-07.fn#Footnote 16.1 — loathe|loathe]] life; I would not live forever.  
 Leave me alone, for my days are a mere breath.
 
 ## v17

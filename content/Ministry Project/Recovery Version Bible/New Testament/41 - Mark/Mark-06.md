@@ -7,11 +7,11 @@ And He went out from there and came into His own country, and His disciples foll
 
 ## v2
 
-And when the Sabbath had come, He began to teach in the synagogue; and many hearing were astounded, saying, Where did this man get these things? And what is this wisdom given to this man, and how is it that such works of power take place through His hands?
+And when the Sabbath had come, He began to [[Mark-06.fn#Footnote 2.1 — teach|teach]] in the synagogue; and many hearing were astounded, saying, Where did this man get these things? And what is this wisdom given to this man, and how is it that such works of power take place through His hands?
 
 ## v3
 
-Is not this the carpenter, the son of Mary, and brother of James and Joses and Judas and Simon? And are not His sisters here with us? And they were stumbled because of Him.
+Is not this the [[Mark-06.fn#Footnote 3.1 — carpenter|carpenter]], the son of Mary, and brother of James and Joses and Judas and Simon? And are not His sisters here with us? And they were stumbled because of Him.
 
 ## v4
 
@@ -19,7 +19,7 @@ And Jesus said to them, A prophet is not without honor except in his own country
 
 ## v5
 
-And He could not do any work of power there, except to lay His hands upon a few of the sick and heal them.
+And He could [[Mark-06.fn#Footnote 5.1 — not|not]] do any work of power there, except to lay His hands upon a few of the sick and [[Mark-06.fn#Footnote 5.2 — heal|heal]] them.
 
 ## v6
 
@@ -27,35 +27,35 @@ And He marveled because of their unbelief; and He went around the villages in a 
 
 ## v7
 
-And He called the twelve to Him and began to send them out two by two and gave them authority over the unclean spirits;
+And He called the twelve to Him and began to send them out two by two and gave them [[Mark-06.fn#Footnote 7.1 — authority|authority]] over the unclean spirits;
 
 ## v8
 
-And He charged them not to take anything for the journey except only a staff: no bread, no bag, no money in their belt;
+And He charged them not to take anything for the journey except only a staff: [[Mark-06.fn#Footnote 8.1 — no|no]] bread, no bag, no money in their belt;
 
 ## v9
 
-But to have sandals tied on; and said, Do not put on two tunics.
+But to have sandals tied on; and said, Do not put on two [[Mark-06.fn#Footnote 9.1 — tunics|tunics]].
 
 ## v10
 
-And He said to them, Wherever you enter into a house, there remain until you depart from that place.
+And He said to them, Wherever you enter into a house, there remain until you [[Mark-06.fn#Footnote 10.1 — depart|depart]] from that place.
 
 ## v11
 
-And whatever place does not receive you nor hear you, as you go out from there, shake off the dust under your feet for a testimony against them.
+And whatever place does not receive you nor hear you, as you go out from there, shake off the dust under your feet for a testimony [[Mark-06.fn#Footnote 11.1 — against|against]] them.
 
 ## v12
 
-And they went forth and proclaimed that men should repent,
+And they went forth and [[Mark-06.fn#Footnote 12.1 — proclaimed|proclaimed]] that men should repent,
 
 ## v13
 
-And they cast out many demons and anointed many of the sick with oil and healed them.
+And they [[Mark-06.fn#Footnote 13.1 — cast|cast]] out many demons and anointed many of the sick with oil and healed them.
 
 ## v14
 
-And King Herod heard of it, for His name had become known, and they said, John the baptizer has been raised from the dead, and because of this these works of power are operating through him.
+And King Herod heard of it, for His name had become known, and they said, John the baptizer has been raised from the dead, and because of this these works of power [[Mark-06.fn#Footnote 14.1 — are|are]] operating through him.
 
 ## v15
 
@@ -107,7 +107,7 @@ And the king was very grieved, yet because of the oaths and those reclining at t
 
 ## v27
 
-And immediately the king sent a guard and ordered him to bring his head. And he went out and beheaded him in the prison,
+And immediately the king sent a guard and ordered him to bring his head. And he went out and [[Mark-06.fn#Footnote 27.1 — beheaded|beheaded]] him in the prison,
 
 ## v28
 
@@ -123,11 +123,11 @@ And the apostles gathered together to Jesus and reported to Him all that they di
 
 ## v31
 
-And He said to them, Come by yourselves privately to a deserted place and rest a while. For there were many coming and going, and they did not even have opportunity to eat.
+And He said to them, Come by yourselves privately to a deserted place and rest a while. For there were many coming and going, and they did [[Mark-06.fn#Footnote 31.1 — not|not]] even have opportunity to eat.
 
 ## v32
 
-And they went away in the boat to a deserted place privately.
+[[Mark-06.fn#Footnote 32.1 — And|And]] they went away in the boat to a deserted place privately.
 
 ## v33
 
@@ -135,7 +135,7 @@ And many saw them going away and recognized them, and they ran together there on
 
 ## v34
 
-And getting out, He saw a great crowd, and He was moved with compassion for them because they were like sheep not having a shepherd, and He began to teach them many things.
+And getting out, He saw a great crowd, and He was [[Mark-06.fn#Footnote 34.1 — moved|moved]] with compassion for them because they were like sheep not having a shepherd, and He began to teach them many things.
 
 ## v35
 
@@ -147,7 +147,7 @@ Send them away so that they may go into the surrounding countryside and villages
 
 ## v37
 
-But He answered and said to them, You give them something to eat. And they said to Him, Shall we go away and buy two hundred denarii worth of bread and give it to them to eat?
+But He answered and said to them, You give them something to eat. And they said to Him, Shall we go away and buy two hundred [[Mark-06.fn#Footnote 37.1 — denarii|denarii]] worth of bread and give it to them to eat?
 
 ## v38
 
@@ -155,11 +155,11 @@ And He said to them, How many loaves do you have? Go and see. And when they foun
 
 ## v39
 
-And He ordered them to have all recline by companies on the green grass.
+And He ordered them to have all recline [[Mark-06.fn#Footnote 39.1 — by|by]] companies on the green grass.
 
 ## v40
 
-And they sat down in groups, by hundreds and by fifties.
+And they sat down [[Mark-06.fn#Footnote 40.1 — in|in]] groups, by hundreds and by fifties.
 
 ## v41
 
@@ -171,7 +171,7 @@ And they all ate and were satisfied.
 
 ## v43
 
-And they took up twelve full handbaskets of the broken pieces of bread and of the fish.
+And they took up [[Mark-06.fn#Footnote 43.1 — twelve|twelve]] full handbaskets of the broken pieces of bread and of the fish.
 
 ## v44
 
@@ -179,11 +179,11 @@ And those who had eaten the loaves were five thousand men.
 
 ## v45
 
-And immediately He compelled His disciples to step into the boat and go before to the other side, toward Bethsaida, while He sent the crowd away.
+[[Mark-06.fn#Footnote 45.1 — And|And]] immediately He compelled His disciples to step into the boat and go before to the other side, toward Bethsaida, while He sent the crowd away.
 
 ## v46
 
-And after He said farewell to them, He went away to the mountain to pray.
+And after He said farewell to them, He went away to the mountain to [[Mark-06.fn#Footnote 46.1 — pray|pray]].
 
 ## v47
 
@@ -191,7 +191,7 @@ And when evening fell, the boat was in the midst of the sea and He was alone on 
 
 ## v48
 
-And seeing them distressed as they rowed, for the wind was contrary to them, He came toward them about the fourth watch of the night, walking on the sea, and He intended to pass by them.
+And seeing them distressed as they rowed, for the wind was contrary to them, He came toward them about the fourth watch of the night, [[Mark-06.fn#Footnote 48.1 — walking|walking]] on the sea, and He intended to pass by them.
 
 ## v49
 
@@ -199,7 +199,7 @@ But when they saw Him walking on the sea, they thought that it was a ghost, and 
 
 ## v50
 
-For they all saw Him and were startled. But immediately He spoke with them and said to them, Take courage. It is I. Do not be afraid.
+For they all saw Him and were startled. But immediately He spoke with them and said to them, Take courage. [[Mark-06.fn#Footnote 50.1 — It|It]] is I. Do not be afraid.
 
 ## v51
 
@@ -223,4 +223,4 @@ And they ran about that whole region and began to carry around on mats those who
 
 ## v56
 
-And wherever He entered into villages or into cities or into the countryside, they laid those who were sick in the marketplaces and begged Him that they might touch if even the fringe of His garment; and as many as touched Him were healed.
+And wherever He entered into villages or into cities or into the countryside, they laid those who were sick in the marketplaces and begged Him that they might touch if even the [[Mark-06.fn#Footnote 56.1 — fringe|fringe]] of His garment; and as many as touched Him were [[Mark-06.fn#Footnote 56.2 — healed|healed]].

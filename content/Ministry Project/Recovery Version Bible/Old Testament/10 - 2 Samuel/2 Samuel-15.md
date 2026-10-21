@@ -28,7 +28,7 @@ And at the end of four years Absalom said to the king, Let me go now and repay m
 
 ## v8
 
-For your servant vowed a vow while I was dwelling in Geshur in Syria, saying, If Jehovah will indeed bring me back to Jerusalem, I will worship Jehovah.
+For your servant vowed a vow while I was dwelling in Geshur in Syria, saying, If Jehovah will indeed bring me back to Jerusalem, I will [[2 Samuel-15.fn#Footnote 8.1 — worship|worship]] Jehovah.
 
 ## v9
 

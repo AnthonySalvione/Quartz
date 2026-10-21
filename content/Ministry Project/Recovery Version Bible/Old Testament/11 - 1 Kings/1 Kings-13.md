@@ -40,7 +40,7 @@ So he went by another way and did not return by the way that he came to Bethel.
 
 ## v11
 
-Now there was a certain old prophet dwelling in Bethel. And his sons came and related to him all the things that the man of God had done that day in Bethel; the words that he had spoken to the king, they also related to their father.
+Now there was a certain old prophet dwelling in Bethel. And his [[1 Kings-13.fn#Footnote 11.1 — sons|sons]] came and related to him all the things that the man of God had done that day in Bethel; the words that he had spoken to the king, they also related to their father.
 
 ## v12
 
@@ -128,7 +128,7 @@ For the word that he cried out by the word of Jehovah against the altar that is 
 
 ## v33
 
-After this matter Jeroboam did not turn from his evil way, but he again made priests for the high places from among the people; whoever desired it, he consecrated to be priests of the high places.
+After this matter Jeroboam did not turn from his evil way, but he again made priests for the high places from among the people; whoever desired it, he [[1 Kings-13.fn#Footnote 33.1 — consecrated|consecrated]] to be priests of the high places.
 
 ## v34
 

@@ -1,6 +1,6 @@
 ## v1
 
-Now Jacob heard the words of Laban’s sons, saying, Jacob has taken away all that belonged to our father; and from what belonged to our father he has made all this wealth.
+Now [[Genesis-31.fn#Footnote 1.1 — Jacob|Jacob]] heard the words of Laban’s sons, saying, Jacob has taken away all that belonged to our father; and from what belonged to our father he has made all this [[Genesis-31.fn#Footnote 1.2 — wealth|wealth]].
 
 ## v2
 
@@ -32,7 +32,7 @@ If he spoke in this way, The speckled shall be your wages, then all the flock bo
 
 ## v9
 
-Thus God has taken away your father’s livestock and given them to me.
+Thus God has [[Genesis-31.fn#Footnote 9.1 — taken|taken]] away your father’s livestock and given them to me.
 
 ## v10
 
@@ -40,15 +40,15 @@ And at the time the flock was breeding, I lifted up my eyes and saw in a dream; 
 
 ## v11
 
-And the Angel of God said to me in the dream, Jacob; and I said, Here I am.
+And the [[Genesis-31.fn#Footnote 11.1 — Angel|Angel]] of God said to me in the dream, Jacob; and I said, Here I am.
 
 ## v12
 
-And He said, Lift up your eyes now, and see that all the male goats which leap upon the flock are streaked, speckled, and spotted; for I have seen all that Laban is doing to you.
+And He said, Lift up your eyes now, and see that all the male goats which leap upon the flock are streaked, speckled, and spotted; for [[Genesis-31.fn#Footnote 12.1 — I|I]] have seen all that Laban is doing to you.
 
 ## v13
 
-I am the God of Bethel, where you anointed a pillar, where you vowed a vow to Me. Rise up now; go out from this land, and return to the land of your birth.
+I am the [[Genesis-31.fn#Footnote 13.1 — God|God]] of Bethel, where you anointed a pillar, where you vowed a vow to Me. Rise up now; go out from this land, and return to the land of your birth.
 
 ## v14
 
@@ -72,7 +72,7 @@ And he drove away all his livestock and all his property which he had acquired, 
 
 ## v19
 
-Now Laban had gone to shear his sheep, and Rachel stole the teraphim that were her father’s.
+Now Laban had gone to shear his sheep, and Rachel stole the [[Genesis-31.fn#Footnote 19.1 — teraphim|teraphim]] that were her father’s.
 
 ## v20
 
@@ -80,7 +80,7 @@ And Jacob deceived Laban the Aramaean by not telling him that he was fleeing.
 
 ## v21
 
-So he fled with all that he had, and he rose up and crossed over the River and set his face toward the hill country of Gilead.
+So he fled with all that he had, and he rose up and crossed over the [[Genesis-31.fn#Footnote 21.1 — River|River]] and set his face toward the hill country of Gilead.
 
 ## v22
 
@@ -92,7 +92,7 @@ And he took his brothers with him and pursued after him the distance of a seven 
 
 ## v24
 
-And God came to Laban the Aramaean in a dream of the night and said to him, Be careful that you do not speak to Jacob either good or bad.
+And [[Genesis-31.fn#Footnote 24.1 — God|God]] came to Laban the Aramaean in a dream of the night and said to him, Be careful that you do not speak to Jacob either good or bad.
 
 ## v25
 
@@ -120,7 +120,7 @@ And now, though you had to go because you longed greatly for your father’s hou
 
 ## v31
 
-And Jacob answered and said to Laban, Because I was afraid, for I thought that you might take your daughters from me by force.
+And Jacob answered and said to Laban, Because I was afraid, for I [[Genesis-31.fn#Footnote 31.1 — thought|thought]] that you might take your daughters from me by force.
 
 ## v32
 
@@ -184,7 +184,7 @@ And Jacob said to his brothers, Gather stones. So they took stones and made a he
 
 ## v47
 
-And Laban called it Jegar-sahadutha, but Jacob called it Galeed.
+And Laban called it [[Genesis-31.fn#Footnote 47.1 — Jegar-sahadutha|Jegar-sahadutha]], but Jacob called it [[Genesis-31.fn#Footnote 47.2 — Galeed|Galeed]].
 
 ## v48
 
@@ -192,7 +192,7 @@ And Laban said, This heap is a witness between me and you today. Therefore its n
 
 ## v49
 
-And Mizpah, because he said, Jehovah watch between me and you when we are absent from one another.
+And [[Genesis-31.fn#Footnote 49.1 — Mizpah|Mizpah]], because he said, Jehovah watch between me and you when we are absent from one another.
 
 ## v50
 
@@ -204,7 +204,7 @@ And Laban said to Jacob, Here is this heap, and here is the pillar which I have 
 
 ## v52
 
-This heap is a witness, and the pillar is a witness, that I will not pass beyond this heap to you and that you will not pass beyond this heap and this pillar to me, for harm.
+This heap is a witness, and the pillar is a [[Genesis-31.fn#Footnote 52.1 — witness|witness]], that I will not pass beyond this heap to you and that you will not pass beyond this heap and this pillar to me, for harm.
 
 ## v53
 

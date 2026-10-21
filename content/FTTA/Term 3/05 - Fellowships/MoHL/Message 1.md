@@ -1,0 +1,5 @@
+Everyone can preach the gospel, every branch can bear fruit... prior to that, many saints in the Lords Recovery could not preach the gospel - the Lord's tanle meeting was mostly one person speaking... well, we still have that, but that is way not enough in terms of releasing the organic function of the saints, especially in the matter of preaching the  gospel. What the saints can say in terms of gospel - before this booklets coming out... the saints spoke different things, like how Jesus healed them... or going to heaven rather than Hell... sound familiar?
+
+So, many saints in denominations are like this. So, brother Lee told a brother named Andrew Yu - you have to find out from all the riches in the Lord's Recovery... find the CREME, and bring forth the best content in the Lord's Recovery concerning the gospel - the gospel of God's economy  - okay, so brother Andrew worked on that, and came up with FOUR KEYS.
+
+At that time I remember I was a college student, we didn't have this booklet - we had a folder. Then, each page was this big... so we had some charts and some verses and we showed people these four keys... So, this is the beginning of the MoHL booklets.

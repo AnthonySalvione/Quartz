@@ -8,7 +8,7 @@ Then David said, None should bear the Ark of God except the Levites, for Jehovah
 
 ## v3
 
-So David assembled all Israel at Jerusalem in order to bring up the Ark of Jehovah to its place, which he had prepared for it.
+So David assembled all Israel at Jerusalem in order to bring up the [[1 Chronicles-15.fn#Footnote 3.1 — Ark|Ark]] of Jehovah to its place, which he had prepared for it.
 
 ## v4
 
@@ -68,7 +68,7 @@ So the Levites appointed Heman the son of Joel; and of his brothers, Asaph the s
 
 ## v18
 
-And with them their brothers of the second order: Zechariah, and Jaaziel, and Shemiramoth and Jehiel and Unni, Eliab and Benaiah and Maaseiah and Mattithiah and Eliphelehu and Mikneiah, and Obed-edom and Jeiel, the doorkeepers.
+And with them their brothers of the second order: Zechariah, [[1 Chronicles-15.fn#Footnote 18.1 — and|and]] Jaaziel, and Shemiramoth and Jehiel and Unni, Eliab and Benaiah and Maaseiah and Mattithiah and Eliphelehu and Mikneiah, and Obed-edom and Jeiel, the doorkeepers.
 
 ## v19
 
@@ -76,11 +76,11 @@ So the singers, Heman, Asaph, and Ethan, were appointed to sound aloud with bron
 
 ## v20
 
-And Zechariah and Aziel and Shemiramoth and Jehiel and Unni and Eliab and Maaseiah and Benaiah with harps set to alamoth;
+And Zechariah and Aziel and Shemiramoth and Jehiel and Unni and Eliab and Maaseiah and Benaiah with harps set to [[1 Chronicles-15.fn#Footnote 20.1 — alamoth|alamoth]];
 
 ## v21
 
-And Mattithiah and Eliphelehu and Mikneiah and Obed-edom and Jeiel and Azaziah were appointed to lead with lyres set to sheminith.
+And Mattithiah and Eliphelehu and Mikneiah and Obed-edom and Jeiel and Azaziah were appointed to lead with lyres set to [[1 Chronicles-15.fn#Footnote 21.1 — sheminith|sheminith]].
 
 ## v22
 

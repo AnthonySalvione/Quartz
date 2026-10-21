@@ -40,7 +40,7 @@ And they came to the threshing floor of Atad, which is beyond the Jordan, and th
 
 ## v11
 
-And when the inhabitants of the land, the Canaanites, saw the mourning at the threshing floor of Atad, they said, This is a grievous mourning for the Egyptians. Therefore the name of it was called Abel-mizraim, which is beyond the Jordan.
+And when the inhabitants of the land, the Canaanites, saw the mourning at the threshing floor of Atad, they said, This is a grievous mourning for the Egyptians. Therefore the name of it was called [[Genesis-50.fn#Footnote 11.1 — Abel-mizraim|Abel-mizraim]], which is beyond the Jordan.
 
 ## v12
 
@@ -72,7 +72,7 @@ And his brothers also went and fell down before him and said, We are here as you
 
 ## v19
 
-And Joseph said to them, Do not be afraid, for am I in the place of God?
+And Joseph said to them, [[Genesis-50.fn#Footnote 19.1 — Do|Do]] not be afraid, for am I in the place of God?
 
 ## v20
 
@@ -80,7 +80,7 @@ Even though you intended evil against me, God intended it for good, to do as it 
 
 ## v21
 
-Now therefore do not be afraid; I will sustain you and your little ones. And he comforted them and spoke kindly to them.
+Now therefore do not be afraid; I will sustain you and your little ones. And he comforted them and spoke [[Genesis-50.fn#Footnote 21.1 — kindly|kindly]] to them.
 
 ## v22
 
@@ -96,8 +96,8 @@ And Joseph said to his brothers, I am about to die, but God will surely visit yo
 
 ## v25
 
-And Joseph made the children of Israel swear, saying, God will surely visit you, and you shall bring my bones up from here.
+And Joseph made the children of Israel swear, saying, God will surely visit you, and you shall [[Genesis-50.fn#Footnote 25.1 — bring|bring]] my bones up from here.
 
 ## v26
 
-And Joseph died, being one hundred ten years old; and they embalmed him, and he was put in a coffin in Egypt.
+And Joseph [[Genesis-50.fn#Footnote 26.1 — died|died]], being one hundred ten years old; and they embalmed him, and he was put in a coffin in Egypt.

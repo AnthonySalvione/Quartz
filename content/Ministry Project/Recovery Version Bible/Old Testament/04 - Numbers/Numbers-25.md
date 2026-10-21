@@ -1,6 +1,6 @@
 ## v1
 
-While Israel dwelt in Shittim, the people began to commit fornication with the daughters of Moab.
+While Israel dwelt in Shittim, the people began to commit [[Numbers-25.fn#Footnote 1.1 — fornication|fornication]] with the daughters of Moab.
 
 ## v2
 
@@ -32,7 +32,7 @@ And he went after the man of Israel into the tent and pierced both of them, the 
 
 ## v9
 
-And those who died by the plague were twenty-four thousand.
+And those who died by the [[Numbers-25.fn#Footnote 9.1 — plague|plague]] were twenty-four thousand.
 
 ## v10
 

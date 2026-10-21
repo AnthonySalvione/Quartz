@@ -20,7 +20,7 @@ And Jehoshaphat said to the king of Israel, Ask today, I beg you, for the word o
 
 ## v6
 
-And the king of Israel assembled the prophets, about four hundred men, and said to them, Shall I go against Ramoth-gilead to battle, or shall I refrain? And they said, Go up, and the Lord will give it into the king’s hand.
+And the king of Israel assembled the prophets, about four hundred men, and said to them, Shall I go against Ramoth-gilead to battle, or shall I refrain? And they said, Go up, and the [[1 Kings-22.fn#Footnote 6.1 — Lord|Lord]] will give it into the king’s hand.
 
 ## v7
 
@@ -108,7 +108,7 @@ And you shall say, Thus says the king, Put this man in prison, and feed him with
 
 ## v28
 
-And Micaiah said, If you return in peace at all, Jehovah has not spoken by me. And he said, Listen, O peoples, all of you!
+And Micaiah said, If you return in peace at all, Jehovah has not spoken by me. And he said, Listen, O peoples, all of [[1 Kings-22.fn#Footnote 28.1 — you|you]]!
 
 ## v29
 

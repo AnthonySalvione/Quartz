@@ -24,7 +24,7 @@ And Saul inquired of Jehovah; but Jehovah did not answer him, not by dreams or b
 
 ## v7
 
-Then said Saul to his servants, Seek for me a woman who is a medium that I may go to her and inquire of her. And his servants said to him, There is now a woman who is a medium at En-dor.
+Then said Saul to his servants, Seek for me a woman who is a [[1 Samuel-28.fn#Footnote 7.1 — medium|medium]] that I may go to her and inquire of her. And his servants said to him, There is now a woman who is a medium at En-dor.
 
 ## v8
 
@@ -48,7 +48,7 @@ Now when the woman saw Samuel, she cried out with a loud voice; and the woman sp
 
 ## v13
 
-And the king said to her, Do not be afraid. But what do you see? And the woman said to Saul, I see some divine being coming up out of the earth.
+And the king said to her, Do not be afraid. But what do you see? And the woman said to Saul, I see [[1 Samuel-28.fn#Footnote 13.1 — some|some]] divine being coming up out of the earth.
 
 ## v14
 
@@ -72,7 +72,7 @@ Because you did not listen to the voice of Jehovah and did not execute His burni
 
 ## v19
 
-And Jehovah will also give Israel with you into the hand of the Philistines, and tomorrow you and your sons will be with me; Jehovah will also give the camp of Israel into the hand of the Philistines.
+And Jehovah will also give Israel with you into the hand of the Philistines, and tomorrow [[1 Samuel-28.fn#Footnote 19.1 — you|you]] and your sons will be with me; Jehovah will also give the camp of Israel into the hand of the Philistines.
 
 ## v20
 

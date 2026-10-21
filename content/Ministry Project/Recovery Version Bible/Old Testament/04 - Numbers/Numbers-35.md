@@ -20,15 +20,15 @@ And you shall measure from the outside of the city on the east side two thousand
 
 ## v6
 
-And the cities which you shall give to the Levites shall be the six cities of refuge, which you shall give for the manslayer to flee to; and besides them you shall give forty-two cities.
+And the cities which you shall give to the Levites shall be the six [[Numbers-35.fn#Footnote 6.1 — cities|cities]] of refuge, which you shall give for the manslayer to flee to; and besides them you shall give forty-two cities.
 
 ## v7
 
-All the cities which you shall give to the Levites shall be forty-eight cities, they and their pasture lands.
+All the cities which you shall give to the Levites shall be [[Numbers-35.fn#Footnote 7.1 — forty-eight|forty-eight]] cities, they and their pasture lands.
 
 ## v8
 
-And concerning the cities which you shall give from the possession of the children of Israel, from the larger tribe you shall take a larger number, and from the smaller tribe you shall take a smaller number; each one, according to its inheritance which they will inherit, shall give some of its cities to the Levites.
+And concerning the [[Numbers-35.fn#Footnote 8.1 — cities|cities]] which you shall give from the possession of the children of Israel, from the larger tribe you shall take a larger number, and from the smaller tribe you shall take a smaller number; each one, according to its inheritance which they will inherit, shall give some of its cities to the Levites.
 
 ## v9
 
@@ -56,11 +56,11 @@ You shall give three cities across the Jordan, and you shall give three cities i
 
 ## v15
 
-For the children of Israel and for the stranger and for the sojourner among them, these six cities shall be for refuge, so that anyone who kills a person unintentionally may flee there.
+For the children of Israel and for the [[Numbers-35.fn#Footnote 15.1 — stranger|stranger]] and for the [[Numbers-35.fn#Footnote 15.1 — stranger|sojourner]] among them, these six cities shall be for refuge, so that anyone who kills a person unintentionally may flee there.
 
 ## v16
 
-But if he struck him with an instrument of iron, and he died, he is a murderer; the murderer shall surely be put to death.
+But if he struck him with an instrument of iron, and he died, he is a murderer; the [[Numbers-35.fn#Footnote 16.1 — murderer|murderer]] shall surely be put to death.
 
 ## v17
 
@@ -96,7 +96,7 @@ Then the assembly shall judge between the slayer and the avenger of blood accord
 
 ## v25
 
-And the assembly shall deliver the manslayer out of the hand of the avenger of blood, and the assembly shall return him to his city of refuge to which he had fled; and he shall dwell in it until the death of the high priest, who was anointed with the holy oil.
+And the assembly shall deliver the manslayer out of the hand of the avenger of blood, and the assembly shall return him to his city of refuge to which he had fled; and he shall dwell in it until the death of the [[Numbers-35.fn#Footnote 25.1 — high|high]] priest, who was anointed with the holy oil.
 
 ## v26
 

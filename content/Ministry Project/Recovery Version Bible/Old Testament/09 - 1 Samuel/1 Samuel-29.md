@@ -12,7 +12,7 @@ And the princes of the Philistines said, What are these Hebrews doing here? And 
 
 ## v4
 
-But the princes of the Philistines were angry with him. And the princes of the Philistines said to him, Make the man go back, that he may return to his place that you have assigned him, so that he does not go down with us into the battle and does not become our adversary in the battle. For with what might this man reconcile himself to his master? Will it not be with the heads of these men?
+But the princes of the Philistines were angry with him. And the princes of the Philistines said to him, [[1 Samuel-29.fn#Footnote 4.1 — Make|Make]] the man go back, that he may return to his place that you have assigned him, so that he does not go down with us into the battle and does not become our adversary in the battle. For with what might this man reconcile himself to his master? Will it not be with the heads of these men?
 
 ## v5
 

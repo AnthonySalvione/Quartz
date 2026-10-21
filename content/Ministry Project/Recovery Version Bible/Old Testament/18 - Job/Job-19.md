@@ -24,7 +24,7 @@ And use my reproach in argument against me,
 
 ## v6
 
-Know then that God has subverted my cause  
+Know then that God has [[Job-19.fn#Footnote 6.1 — subverted|subverted]] my cause  
 And compassed me about with His net.
 
 ## v7
@@ -39,18 +39,18 @@ And He has put darkness upon my paths.
 
 ## v9
 
-He has stripped my glory from me  
-And taken away the crown on my head.
+He has stripped my [[Job-19.fn#Footnote 9.1 — glory|glory]] from me  
+And taken away the [[Job-19.fn#Footnote 9.1 — glory|crown]] on my head.
 
 ## v10
 
 He has broken me all around, and I am gone;  
-And He has plucked up my hope like a tree.
+And He has plucked up my [[Job-19.fn#Footnote 10.1 — hope|hope]] like a tree.
 
 ## v11
 
-He has also kindled His anger against me,  
-And in Himself He considers me as His adversary.
+He has also kindled His [[Job-19.fn#Footnote 11.1 — anger|anger]] against me,  
+And in Himself He considers me as His [[Job-19.fn#Footnote 11.1 — anger|adversary]].
 
 ## v12
 
@@ -81,7 +81,7 @@ I entreat him with my mouth.
 ## v17
 
 My breath is strange to my wife;  
-And my supplications, to the children of my mother’s womb.
+And [[Job-19.fn#Footnote 17.1 — my|my]] supplications, to the children of my mother’s womb.
 
 ## v18
 
@@ -120,7 +120,7 @@ They were engraved in rock forever!
 
 ## v25
 
-But I know that my Redeemer lives,  
+But I know that my [[Job-19.fn#Footnote 25.1 — Redeemer|Redeemer]] lives,  
 And at the last He will stand upon the earth;
 
 ## v26

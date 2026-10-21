@@ -1,6 +1,6 @@
 ## v1
 
-And he made the altar of burnt offering, of acacia wood; five cubits was its length, and five cubits, its width, square; and three cubits, its height.
+And he made the [[Exodus-38.fn#Footnote 1.1 — altar|altar]] of burnt offering, of acacia wood; five cubits was its length, and five cubits, its width, square; and three cubits, its height.
 
 ## v2
 
@@ -28,11 +28,11 @@ And he put the poles into the rings on the sides of the altar, with which to car
 
 ## v8
 
-And he made the laver of bronze and its base of bronze from the mirrors of the serving women who served at the entrance of the Tent of Meeting.
+And he made the [[Exodus-38.fn#Footnote 8.1 — laver|laver]] of bronze and its base of bronze from the mirrors of the serving women who served at the entrance of the Tent of Meeting.
 
 ## v9
 
-And he made the court. On the south side southward the hangings of the court were of fine twined linen, one hundred cubits;
+And he made the [[Exodus-38.fn#Footnote 9.1 — court|court]]. On the south side southward the hangings of the court were of fine twined linen, one hundred cubits;
 
 ## v10
 
@@ -80,7 +80,7 @@ And all the pegs of the tabernacle and of the court all around were of bronze.
 
 ## v21
 
-This is the sum of the things for the tabernacle, the Tabernacle of the Testimony, as they were counted according to the commandment of Moses for the service of the Levites by the hand of Ithamar the son of Aaron the priest.
+This is the sum of the things for the tabernacle, the Tabernacle of the Testimony, as they were [[Exodus-38.fn#Footnote 21.1 — counted|counted]] according to the commandment of Moses for the service of the Levites by the hand of Ithamar the son of Aaron the priest.
 
 ## v22
 

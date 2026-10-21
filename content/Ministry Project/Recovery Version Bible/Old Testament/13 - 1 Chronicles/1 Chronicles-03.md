@@ -16,7 +16,7 @@ Six were born to him in Hebron. And he reigned there seven years and six months;
 
 ## v5
 
-And these were born to him in Jerusalem: Shimea and Shobab and Nathan and Solomon: four, by Bath-shua the daughter of Ammiel;
+And these were born to him in Jerusalem: Shimea and Shobab and [[1 Chronicles-03.fn#Footnote 5.1 — Nathan|Nathan]] and [[1 Chronicles-03.fn#Footnote 5.1 — Nathan|Solomon]]: four, by [[1 Chronicles-03.fn#Footnote 5.2 — Bath-shua|Bath-shua]] the daughter of Ammiel;
 
 ## v6
 
@@ -36,7 +36,7 @@ All were sons of David, besides the sons of the concubines; and Tamar was their 
 
 ## v10
 
-And Solomon’s son was Rehoboam; Abijah his son, Asa his son, Jehoshaphat his son,
+And Solomon’s son was [[1 Chronicles-03.fn#Footnote 10.1 — Rehoboam|Rehoboam]]; Abijah his son, Asa his son, Jehoshaphat his son,
 
 ## v11
 
@@ -44,7 +44,7 @@ Joram his son, Ahaziah his son, Joash his son,
 
 ## v12
 
-Amaziah his son, Azariah his son, Jotham his son,
+Amaziah his son, [[1 Chronicles-03.fn#Footnote 12.1 — Azariah|Azariah]] his son, Jotham his son,
 
 ## v13
 
@@ -56,11 +56,11 @@ Amon his son, Josiah his son.
 
 ## v15
 
-And the sons of Josiah: the firstborn Johanan, the second Jehoiakim, the third Zedekiah, the fourth Shallum.
+And the sons of Josiah: the firstborn Johanan, the second [[1 Chronicles-03.fn#Footnote 15.1 — Jehoiakim|Jehoiakim]], the third Zedekiah, the fourth Shallum.
 
 ## v16
 
-And the son of Jehoiakim: Jeconiah his son; Zedekiah his son.
+And the [[1 Chronicles-03.fn#Footnote 16.1 — son|son]] of Jehoiakim: [[1 Chronicles-03.fn#Footnote 16.2 — Jeconiah|Jeconiah]] his son; Zedekiah his son.
 
 ## v17
 
@@ -72,7 +72,7 @@ And Malchiram and Pedaiah, and Shenazzar, Jecamiah, Hoshama, and Neda-biah.
 
 ## v19
 
-And the sons of Pedaiah were Zerubbabel and Shimei. And the sons of Zerubbabel: Meshullam and Hananiah, and Shelomith their sister;
+And the sons of Pedaiah were [[1 Chronicles-03.fn#Footnote 19.1 — Zerubbabel|Zerubbabel]] and Shimei. And the sons of Zerubbabel: Meshullam and Hananiah, and Shelomith their sister;
 
 ## v20
 
@@ -80,7 +80,7 @@ And Hashubah and Ohel and Berechiah and Hasadiah and Jushab-hesed, five.
 
 ## v21
 
-And the sons of Hananiah: Pelatiah and Isaiah, the sons of Rephaiah, the sons of Arnan, the sons of Obadiah, the sons of Shecaniah.
+And the [[1 Chronicles-03.fn#Footnote 21.1 — sons|sons]] of Hananiah: Pelatiah and Isaiah, the sons of Rephaiah, the sons of Arnan, the sons of Obadiah, the sons of Shecaniah.
 
 ## v22
 

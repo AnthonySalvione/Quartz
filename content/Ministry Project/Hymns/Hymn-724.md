@@ -1,0 +1,50 @@
+---
+Category:
+  - Comfort in Trials
+Subcategory:
+  - By Enjoyment in Suffering
+Lyricist:
+  - Madame Jeanne-Marie Bouvier de la Motte-Guyon
+Melody:
+  - Hymns of Worship and Remembrance
+---
+# A little bird I am
+## Stanza 1
+A little bird I am,
+Shut from the fields of air,
+And in my cage I sit and sing
+To Him who placed me there;
+Well pleased a prisoner to be,
+Because, my God, it pleaseth Thee.
+
+## Stanza 2
+Nought have I else to do,
+I sing the whole day long;
+And He whom most I love to please
+Doth listen to my song;
+He caught and bound my wandering wing,
+But still He bends to hear me sing.
+
+## Stanza 3
+Thou hast an ear to hear
+A heart to love and bless;
+And though my notes were e'er so rude,
+Thou wouldst not hear the less;
+Because Thou knowest as they fall,
+That love, sweet love, inspires them all.
+
+## Stanza 4
+My cage confines me round;
+Abroad I cannot fly;
+But though my wing is closely bound,
+My heart's at liberty;
+For prison walls cannot control
+The flight, the freedom of the soul.
+
+## Stanza 5
+O it is good to soar
+These bolts and bars above!
+To Him whose purpose I adore,
+Whose providence I love;
+And in Thy mighty will to find
+The joy, the freedom of the mind.

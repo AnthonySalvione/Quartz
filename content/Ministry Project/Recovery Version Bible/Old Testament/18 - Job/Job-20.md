@@ -50,7 +50,7 @@ And his hands return his wealth.
 ## v11
 
 His bones are full of youthful vigor,  
-Yet it lies down with him in the dust.
+Yet [[Job-20.fn#Footnote 11.1 — it|it]] lies down with him in the dust.
 
 ## v12
 
@@ -110,7 +110,7 @@ The hand of everyone in trouble will come against him.
 ## v23
 
 In order to fill his belly,  
-God will send the burning fierceness of His wrath on him  
+[[Job-20.fn#Footnote 23.1 — God|God]] will send the burning fierceness of His wrath on him  
 And will rain it upon him as his food.
 
 ## v24

@@ -3,15 +3,15 @@ Author: John
 ---
 ## v1
 
-But there was a man of the Pharisees named Nicodemus, a ruler of the Jews.
+[[John-03.fn#Footnote 1.1 — But|But]] there was a man of the Pharisees named Nicodemus, a ruler of the Jews.
 
 ## v2
 
-This one came to Him by night and said to Him, Rabbi, we know that You have come from God as a teacher, for no one can do these signs that You do unless God is with him.
+This one came to Him by night and said to Him, Rabbi, we know that You have come from God as a [[John-03.fn#Footnote 2.1 — teacher|teacher]], for no one can do these signs that You do unless God is with him.
 
 ## v3
 
-Jesus answered and said to him, Truly, truly, I say to you, Unless one is born anew, he cannot see the kingdom of God.
+Jesus answered and said to him, Truly, truly, I say to you, Unless one is [[John-03.fn#Footnote 3.1 — born|born]] anew, he cannot [[John-03.fn#Footnote 3.2 — see|see]] the [[John-03.fn#Footnote 3.3 — kingdom|kingdom]] of God.
 
 ## v4
 
@@ -19,19 +19,19 @@ Nicodemus said to Him, How can a man be born when he is old? He cannot enter a s
 
 ## v5
 
-Jesus answered, Truly, truly, I say to you, Unless one is born of water and the Spirit, he cannot enter into the kingdom of God.
+Jesus answered, Truly, truly, I say to you, Unless one is born [[John-03.fn#Footnote 5.1 — of|of]] [[John-03.fn#Footnote 5.2 — water|water]] and the Spirit, he cannot enter into the kingdom of God.
 
 ## v6
 
-That which is born of the flesh is flesh, and that which is born of the Spirit is spirit.
+That which is born [[John-03.fn#Footnote 6.1 — of|of]] the flesh is flesh, and that which is born [[John-03.fn#Footnote 6.1 — of|of]] the [[John-03.fn#Footnote 6.2 — Spirit|Spirit]] is [[John-03.fn#Footnote 6.2 — Spirit|spirit]].
 
 ## v7
 
-Do not marvel that I said to you, You must be born anew.
+Do not marvel that I said to you, [[John-03.fn#Footnote 7.1 — You|You]] must be born anew.
 
 ## v8
 
-The wind blows where it wills, and you hear the sound of it, but you do not know where it comes from and where it goes; so is everyone who is born of the Spirit.
+The [[John-03.fn#Footnote 8.1 — wind|wind]] blows where it wills, and you hear the sound of it, but you do not know where it comes from and where it goes; so is everyone who is born [[John-03.fn#Footnote 8.2 — of|of]] the Spirit.
 
 ## v9
 
@@ -47,43 +47,43 @@ Truly, truly, I say to you, We speak that which we know and testify of that whic
 
 ## v12
 
-If I told you of the things on earth and you do not believe, how will you believe if I tell you of the things in heaven?
+If I told you of the [[John-03.fn#Footnote 12.1 — things|things]] on earth and you do not believe, how will you believe if I tell you of the [[John-03.fn#Footnote 12.1 — things|things]] in heaven?
 
 ## v13
 
-And no one has ascended into heaven, but He who descended out of heaven, the Son of Man, who is in heaven.
+And no one has ascended into heaven, but He who descended out of heaven, the Son of Man, [[John-03.fn#Footnote 13.1 — who|who]] is in heaven.
 
 ## v14
 
-And as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up,
+And as Moses lifted up the [[John-03.fn#Footnote 14.1 — serpent|serpent]] in the wilderness, so must the Son of Man be lifted up,
 
 ## v15
 
-That everyone who believes into Him may have eternal life.
+That everyone who believes into Him may have [[John-03.fn#Footnote 15.1 — eternal|eternal]] life.
 
 ## v16
 
-For God so loved the world that He gave His only begotten Son, that everyone who believes into Him would not perish, but would have eternal life.
+For God so loved the [[John-03.fn#Footnote 16.1 — world|world]] that He gave His only begotten Son, that everyone who [[John-03.fn#Footnote 16.2 — believes|believes]] into Him would not perish, but would have eternal life.
 
 ## v17
 
-For God did not send the Son into the world to condemn the world, but that the world might be saved through Him.
+For God did not send the Son into the world to [[John-03.fn#Footnote 17.1 — condemn|condemn]] the world, but that the world might be saved through Him.
 
 ## v18
 
-He who believes into Him is not condemned; but he who does not believe has been condemned already, because he has not believed into the name of the only begotten Son of God.
+He who believes into Him is not [[John-03.fn#Footnote 18.1 — condemned|condemned]]; but he who does not believe has been [[John-03.fn#Footnote 18.1 — condemned|condemned]] already, because he has not believed into the name of the only begotten Son of God.
 
 ## v19
 
-And this is the condemnation, that the light has come into the world, and men loved the darkness rather than the light, for their works were evil.
+And this is the [[John-03.fn#Footnote 19.1 — condemnation|condemnation]], that the light has come into the world, and men loved the darkness rather than the light, for their works were evil.
 
 ## v20
 
-For everyone who practices evil hates the light, and does not come to the light, lest his works be reproved.
+For everyone who [[John-03.fn#Footnote 20.1 — practices|practices]] evil hates the light, and does not come to the light, lest his works be [[John-03.fn#Footnote 20.2 — reproved|reproved]].
 
 ## v21
 
-But he who does the truth comes to the light, that his works may be manifested that they are wrought in God.
+But he who does the [[John-03.fn#Footnote 21.1 — truth|truth]] comes to the light, that his works may be manifested that they are wrought in God.
 
 ## v22
 
@@ -119,11 +119,11 @@ He who has the bride is the bridegroom; but the friend of the bridegroom, who st
 
 ## v30
 
-He must increase, but I must decrease.
+He must [[John-03.fn#Footnote 30.1 — increase|increase]], but I must decrease.
 
 ## v31
 
-He who comes from above is above all; he who is from the earth is of the earth and speaks out of the earth. He who comes from heaven is above all.
+[[John-03.fn#Footnote 31.1 — He|He]] who comes from above is above all; he who is [[John-03.fn#Footnote 31.2 — from|from]] the earth is [[John-03.fn#Footnote 31.2 — from|of]] the earth and speaks [[John-03.fn#Footnote 31.2 — from|out]] of the earth. He who comes [[John-03.fn#Footnote 31.2 — from|from]] heaven is above all.
 
 ## v32
 
@@ -135,7 +135,7 @@ He who receives His testimony has sealed that God is true.
 
 ## v34
 
-For He whom God has sent speaks the words of God, for He gives the Spirit not by measure.
+For He whom God has sent speaks the [[John-03.fn#Footnote 34.1 — words|words]] of God, for He gives the Spirit not by measure.
 
 ## v35
 

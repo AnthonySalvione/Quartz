@@ -1,0 +1,22 @@
+
+# Reading
+
+c. The seven lamps signifying the Spirit as the expression
+
+  Exodus 25:37 says, “Thou shalt make its lamps, seven.” These seven lamps signify God the Spirit being the seven Spirits of God for His expression (Rev. 4:5; 5:6). The shining of the lamps denotes expression. Thus, the seven lamps are the expression of God the Son as the embodiment of God the Father. The gold signifies the Father as the substance, the stand signifies the Son as the embodiment of the Father, and the lamps signify the Spirit as the expression of the Father in the Son. Thus, the significance of the Triune God is implied in the lampstand.
+
+  Substantially the lampstand is one, but expressively it is seven, because it is one lampstand with seven lamps. In substance the lampstand is one piece of gold, but it holds seven lamps. This indicates that, mysteriously, in substance the Triune God is one but in expression He is the seven Spirits. The Father as the substance is embodied in the Son as the form, and the Son is expressed as the seven Spirits.
+
+  We can prove from the Scriptures that the seven lamps of the golden lampstand signify the Spirit expressing Christ. If we had only the record in Exodus, it would be difficult to realize that these seven lamps are the Spirit. But as we proceed from Exodus to Zechariah, we see that the seven lamps are the seven eyes of Christ, the seven eyes of Jehovah (Zech. 3:9; 4:10). As we continue to Revelation, we see that the seven eyes of the Lamb are the seven eyes which are the intensified Spirit of God (Rev. 5:6). Hence, we have a strong basis for saying that the seven lamps are the seven Spirits, that is, the sevenfold intensified Spirit, as the expression of Christ.
+
+(1) As the seven Spirits of God to express the Triune God
+
+  The seven lamps of the lampstand signify the seven Spirits of God to express the Triune God. Revelation 4:5b says, “Seven lamps of fire are burning before the throne, which are the seven Spirits of God.” If we consider Revelation 1:4 and 5, we shall realize that the seven Spirits are undoubtedly the Spirit of God, because they are ranked among the Triune God. As seven is the number for completion in God’s operation, so the seven Spirits must be for God’s move on earth. In substance and existence God’s Spirit is one; in the intensified function and work of God’s operation God’s Spirit is sevenfold.
+
+  Essentially the Spirit is one, but economically He is seven. In God’s economy and in His function, He becomes the sevenfold intensified Spirit. In Revelation it is not a matter of essence but a matter of function, of economy. Economically speaking, the Spirit is intensified sevenfold. In substance and existence God’s Spirit is one, but in the intensified function and work of God’s operation, God’s Spirit is sevenfold.
+
+  In Revelation 4:5 the seven lamps of fire, which are the seven Spirits of God, signify the enlightening and searching of the sevenfold intensified Spirit of God. God will touch the earth by the seven lamps, by His seven Spirits, which are for burning, shining, observing, searching, and judging. The seven lamps here refer to the seven lamps of the lampstand in Exodus 25:37 and Zechariah 4:2. In Exodus 25 and Zechariah 4 the seven lamps, signifying the enlightening of the Spirit of God in God’s move, are for God’s building. In Revelation 4:5 the seven lamps are for God’s judgment, which will issue in the building of the New Jerusalem. While God executes His judgment, His sevenfold intensified Spirit will carry out His eternal building by searching, enlightening, and judging.
+
+  The enlightening, searching, exposing, judging, and burning of the seven lamps of fire are for the carrying out of God’s administration. Today God is administrating His government by means of this enlightening, searching, exposing, judging, and burning. Anything that does not correspond to God’s nature will be burned by His fire. This burning is the carrying out of God’s administration.
+
+  Although the seven enlightening, searching, exposing, judging, and burning lamps will burn all that does not correspond to God, they will refine those things that are truly according to His nature. The dross will go to the lake of fire, but the refined gold will go to the New Jerusalem. Even now the seven Spirits as the seven lamps of fire burning before the throne of God are burning, refining, and purifying for the carrying out of God’s universal governmental administration.

@@ -32,7 +32,7 @@ If a case is too complicated for you to judge between one kind of homicide and a
 
 ## v9
 
-And you shall come to the Levitical priests and to the judge who is presiding in those days and investigate the matter; and they shall declare to you the sentence of judgment.
+And you shall come to [[Deuteronomy-17.fn#Footnote 9.1 — the|the]] Levitical priests and to the judge who is presiding in those days and investigate the matter; and they shall declare to you the sentence of judgment.
 
 ## v10
 
@@ -52,7 +52,7 @@ And all the people will hear and will fear, and they will not act presumptuously
 
 ## v14
 
-When you enter the land which Jehovah your God is giving you, and you possess it and dwell in it, and you say, I will set a king over me like all the nations which surround me;
+When you enter the land which Jehovah your God is giving you, and you possess it and dwell in it, and you say, I will set a [[Deuteronomy-17.fn#Footnote 14.1 — king|king]] over me like all the nations which surround me;
 
 ## v15
 
@@ -60,7 +60,7 @@ You must set a king over you whom Jehovah your God will choose; from among your 
 
 ## v16
 
-However, he shall not amass horses to himself, and he shall not turn the people back to Egypt so that he may amass horses, since Jehovah has said to you, You shall never again return that way.
+However, he shall not amass [[Deuteronomy-17.fn#Footnote 16.1 — horses|horses]] to himself, and he shall not turn the people back to [[Deuteronomy-17.fn#Footnote 16.1 — horses|Egypt]] so that he may amass horses, since Jehovah has said to you, You shall never again return that way.
 
 ## v17
 
@@ -68,7 +68,7 @@ And he shall not amass wives to himself, so that his heart does not turn aside; 
 
 ## v18
 
-And when he sits on the throne of his kingdom, he shall write out for himself a copy of this law in a book, out of that which is before the Levitical priests.
+And when he sits on the throne of his kingdom, he shall write out for himself a copy of this [[Deuteronomy-17.fn#Footnote 18.1 — law|law]] in a book, out of that which is before the Levitical priests.
 
 ## v19
 

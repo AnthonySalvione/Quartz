@@ -1,6 +1,6 @@
 ## v1
 
-Now when King David was old and advanced in years, they covered him with clothing, but he could not get warm.
+[[1 Kings-01.fn#Footnote 1.1 — Now|Now]] when King [[1 Kings-01.fn#Footnote 1.2 — David|David]] was old and advanced in [[1 Kings-01.fn#Footnote 1.3 — years|years]], they covered him with clothing, but he could not get warm.
 
 ## v2
 
@@ -24,7 +24,7 @@ And his father had never displeased him by saying, Why have you done thus and th
 
 ## v7
 
-And he conferred with Joab the son of Zeruiah and with Abiathar the priest; and following Adonijah, they helped him.
+And he conferred with [[1 Kings-01.fn#Footnote 7.1 — Joab|Joab]] the son of Zeruiah and with Abiathar the priest; and following Adonijah, they helped him.
 
 ## v8
 
@@ -68,7 +68,7 @@ And she said to him, My lord, you swore by Jehovah your God to your female serva
 
 ## v18
 
-But now, at this moment Adonijah reigns, and you, my lord the king, know nothing of it.
+But now, at this moment Adonijah reigns, and [[1 Kings-01.fn#Footnote 18.1 — you|you]], my lord the king, know nothing of it.
 
 ## v19
 

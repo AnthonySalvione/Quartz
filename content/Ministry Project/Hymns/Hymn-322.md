@@ -1,0 +1,46 @@
+---
+Category:
+  - Assurance of Salvation
+  - Joy of Salvation
+Subcategory:
+  - Satisfied with Christ
+Lyricist:
+  - Haldor Lillenas
+Melody:
+  - Haldor Lillenas
+---
+# Many weary years I vainly sought a spring
+## Stanza 1
+Many weary years I vainly sought a spring,
+One that never would run dry;
+Unavailing all that earth to me could bring,
+Nothing seemedto satisfy.
+
+## Chorus
+	Drinking at the Fountain that
+	never runs dry,
+	Drinking at the Fountain of life am I;
+	Finding joy and pleasure
+	In abounding measure,
+	I am drinking at the Fountain of life.
+
+## Stanza 2
+Through the desert land of sin
+I roam no more,
+For I find a living Spring,
+And my cup of gladness now
+is running o'er,
+Jesus is my Lord and King.
+
+## Stanza 3
+Here is sweet contentment as
+the days go by,
+Here is holy peace and rest;
+Here is consolation as the moments fly,
+Here my heart is always blest.
+
+## Stanza 4
+Here I find a never ending, sure supply,
+While the endless ages roll;
+To this healing Fountain I would ever fly,
+There to bathe my weary soul.

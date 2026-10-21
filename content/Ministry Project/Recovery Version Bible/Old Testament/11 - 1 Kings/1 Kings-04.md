@@ -60,7 +60,7 @@ Ahimaaz, in Naphtali (he also took Basemath the daughter of Solomon as his wife)
 
 ## v16
 
-Baana the son of Hushai, in Asher and Bealoth;
+Baana the son of Hushai, in Asher and [[1 Kings-04.fn#Footnote 16.1 — Bealoth|Bealoth]];
 
 ## v17
 
@@ -80,11 +80,11 @@ Judah and Israel were as numerous as the sand that is by the sea in multitude, e
 
 ## v21
 
-And Solomon ruled over all the kingdoms from the River to the land of the Philistines and unto the border of Egypt; they brought tribute and served Solomon all the days of his life.
+And Solomon ruled over all the kingdoms from the [[1 Kings-04.fn#Footnote 21.1 — River|River]] to the land of the Philistines and unto the border of Egypt; they brought tribute and served Solomon all the days of his life.
 
 ## v22
 
-And Solomon’s provisions for one day were thirty cors of fine flour and sixty cors of meal,
+And Solomon’s provisions for one day were thirty [[1 Kings-04.fn#Footnote 22.1 — cors|cors]] of fine flour and sixty cors of meal,
 
 ## v23
 
@@ -116,7 +116,7 @@ And God gave Solomon wisdom and very much understanding and largeness of heart, 
 
 ## v30
 
-And Solomon’s wisdom was greater than the wisdom of all the children of the east and all the wisdom of Egypt.
+And Solomon’s [[1 Kings-04.fn#Footnote 30.1 — wisdom|wisdom]] was greater than the wisdom of all the children of the east and all the wisdom of Egypt.
 
 ## v31
 
@@ -132,4 +132,4 @@ And he discoursed about trees, from the cedar that is in Lebanon to the hyssop t
 
 ## v34
 
-And they came from all the peoples to hear the wisdom of Solomon, from all the kings of the earth who had heard of his wisdom.
+And they [[1 Kings-04.fn#Footnote 34.1 — came|came]] from all the peoples to hear the wisdom of Solomon, from all the kings of the earth who had heard of his wisdom.

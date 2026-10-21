@@ -65,7 +65,7 @@ And let come on me what may.
 
 ## v14
 
-I will take my flesh in my teeth  
+[[Job-13.fn#Footnote 14.1 — I|I]] will take my flesh in my teeth  
 And put my life in my hand.
 
 ## v15

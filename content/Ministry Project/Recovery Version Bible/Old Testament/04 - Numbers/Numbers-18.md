@@ -1,10 +1,10 @@
 ## v1
 
-Then Jehovah said to Aaron, You and your sons and your father’s household with you shall bear the iniquity of the sanctuary; and you and your sons with you shall bear the iniquity of your priesthood.
+Then Jehovah [[Numbers-18.fn#Footnote 1.1 — said|said]] to Aaron, You and your sons and your father’s household with you shall bear the [[Numbers-18.fn#Footnote 1.2 — iniquity|iniquity]] of the sanctuary; and you and your sons with you shall bear the iniquity of your priesthood.
 
 ## v2
 
-And your brothers also, the tribe of Levi, the tribe of your father, bring near with you, so that they may be joined to you and minister to you, while you and your sons with you are before the Tent of the Testimony.
+And your brothers also, the tribe of [[Numbers-18.fn#Footnote 2.1 — Levi|Levi]], the tribe of your father, bring near with you, so that they may be joined to you and minister to you, while you and your sons with you are before the Tent of the Testimony.
 
 ## v3
 
@@ -16,15 +16,15 @@ And they shall be joined to you and keep the charge of the Tent of Meeting for a
 
 ## v5
 
-And you shall keep the charge of the sanctuary and the charge of the altar, so that there may be no more wrath upon the children of Israel.
+And you shall keep the charge of the [[Numbers-18.fn#Footnote 5.1 — sanctuary|sanctuary]] and the charge of the [[Numbers-18.fn#Footnote 5.1 — sanctuary|altar]], so that there may be no more wrath upon the children of Israel.
 
 ## v6
 
-And I Myself have taken your brothers the Levites from among the children of Israel. They are a gift to you, given to Jehovah, to do the service of the Tent of Meeting.
+And I Myself have taken your brothers the Levites from among the children of Israel. They are a [[Numbers-18.fn#Footnote 6.1 — gift|gift]] to you, given to Jehovah, to do the service of the Tent of Meeting.
 
 ## v7
 
-But you and your sons with you shall attend to your priesthood for everything concerning the altar and within the veil, and you shall carry out your service. I give you the priesthood as a service of gift, but the stranger who comes near shall be put to death.
+But you and your sons with you shall attend to your priesthood for everything concerning the altar and within the veil, and you shall carry out your service. I give you the priesthood as a service of [[Numbers-18.fn#Footnote 7.1 — gift|gift]], but the stranger who comes near shall be put to death.
 
 ## v8
 
@@ -32,19 +32,19 @@ Then Jehovah spoke to Aaron, And I Myself have given you charge of My heave offe
 
 ## v9
 
-This shall be yours of the most holy things, kept from the fire. Every offering of theirs, even every meal offering of theirs and every sin offering of theirs and every trespass offering of theirs, which they shall render to Me, shall be most holy for you and for your sons.
+This shall be yours of the most holy things, [[Numbers-18.fn#Footnote 9.1 — kept|kept]] from the fire. Every [[Numbers-18.fn#Footnote 9.2 — offering|offering]] of theirs, even every meal offering of theirs and every sin offering of theirs and every trespass offering of theirs, which they shall render to Me, shall be [[Numbers-18.fn#Footnote 9.3 — most|most]] holy for you and for your sons.
 
 ## v10
 
-As the most holy things you shall eat it; every male shall eat it; it shall be holy to you.
+As the most holy things you shall eat it; every [[Numbers-18.fn#Footnote 10.1 — male|male]] shall eat it; it shall be holy to you.
 
 ## v11
 
-This also is yours, the heave offering of their gift, even all the wave offerings of the children of Israel. I have given them to you and to your sons and to your daughters with you, as a perpetual statute; everyone who is clean in your house may eat it.
+This also is yours, the heave offering of their gift, even all the wave offerings of the children of Israel. I have given them to you and to your [[Numbers-18.fn#Footnote 11.1 — sons|sons]] and to your [[Numbers-18.fn#Footnote 11.1 — sons|daughters]] with you, as a perpetual statute; everyone who is clean in your house may eat it.
 
 ## v12
 
-All the best of the oil, and all the best of the new wine and of the grain, their firstfruits that they give to Jehovah, I have given to you.
+All the [[Numbers-18.fn#Footnote 12.1 — best|best]] of the oil, and all the [[Numbers-18.fn#Footnote 12.1 — best|best]] of the new wine and of the grain, their firstfruits that they give to Jehovah, I have given to you.
 
 ## v13
 
@@ -56,7 +56,7 @@ Everything devoted in Israel shall be yours.
 
 ## v15
 
-Everything that opens the womb of all flesh, which they present to Jehovah, whether human or animal, shall be yours; nevertheless the firstborn of human beings you shall surely redeem, and the firstborn of unclean animals you shall redeem.
+Everything that opens the womb of all flesh, which they present to Jehovah, whether human or animal, shall be yours; nevertheless the firstborn of human beings you shall surely [[Numbers-18.fn#Footnote 15.1 — redeem|redeem]], and the firstborn of unclean animals you shall redeem.
 
 ## v16
 
@@ -72,15 +72,15 @@ But their flesh shall be yours; like the breast of the wave offering and like th
 
 ## v19
 
-All the heave offerings of the holy things, which the children of Israel offer to Jehovah, I have given to you and to your sons and your daughters with you, as a perpetual statute. It is a covenant of salt forever before Jehovah for you and for your descendants with you.
+All the heave offerings of the holy things, which the children of Israel offer to Jehovah, I have given to you and to your sons and your daughters with you, as a perpetual statute. It is a [[Numbers-18.fn#Footnote 19.1 — covenant|covenant]] of salt forever before Jehovah for you and for your descendants with you.
 
 ## v20
 
-And Jehovah said to Aaron, You shall have no inheritance in their land, nor shall you have any portion among them; I am your portion and your inheritance among the children of Israel.
+And Jehovah said to Aaron, You shall have [[Numbers-18.fn#Footnote 20.1 — no|no]] inheritance in their land, nor shall you have any portion among them; I am your portion and your inheritance among the children of Israel.
 
 ## v21
 
-And to the children of Levi I have now given every tithe in Israel for an inheritance in return for their service which they carry out, the service of the Tent of Meeting.
+And to the children of Levi I have now given every [[Numbers-18.fn#Footnote 21.1 — tithe|tithe]] in Israel for an inheritance in return for their service which they carry out, the service of the Tent of Meeting.
 
 ## v22
 
@@ -100,7 +100,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v26
 
-Moreover you shall speak to the Levites and say to them, When you take from the children of Israel the tithe which I have given you from them as your inheritance, then you shall offer up a heave offering from it for Jehovah, a tithe of the tithe.
+Moreover you shall speak to the Levites and say to them, When you take from the children of Israel the tithe which I have given you from them as your inheritance, then you shall offer up a [[Numbers-18.fn#Footnote 26.1 — heave|heave]] offering from it for Jehovah, a tithe of the tithe.
 
 ## v27
 
@@ -108,7 +108,7 @@ And your heave offering shall be reckoned to you as though it were the grain of 
 
 ## v28
 
-Thus you shall also offer a heave offering to Jehovah from all your tithes, which you receive from the children of Israel; and from it you shall give Jehovah’s heave offering to Aaron the priest.
+Thus you shall also offer a heave offering to Jehovah from all your tithes, which you receive from the children of Israel; and from it you shall give Jehovah’s heave offering to [[Numbers-18.fn#Footnote 28.1 — Aaron|Aaron]] the priest.
 
 ## v29
 
@@ -120,7 +120,7 @@ Therefore you shall say to them, When you heave from it the best of it, then it 
 
 ## v31
 
-And you may eat it in every place, you and your households, for it is your reward in return for your service in the Tent of Meeting.
+And you may eat it in every place, you and your households, for it is your [[Numbers-18.fn#Footnote 31.1 — reward|reward]] in return for your service in the Tent of Meeting.
 
 ## v32
 

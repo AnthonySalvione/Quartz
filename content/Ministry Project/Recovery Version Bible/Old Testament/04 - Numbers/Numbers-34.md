@@ -8,7 +8,7 @@ Command the children of Israel and say to them, When you come into the land of C
 
 ## v3
 
-And your southern section shall be from the wilderness of Zin along the side of Edom, and your southern border shall begin from the end of the Salt Sea on the east.
+And your southern section shall be from the wilderness of Zin along the side of Edom, and your southern border shall begin from the end of the [[Numbers-34.fn#Footnote 3.1 — Salt|Salt]] Sea on the east.
 
 ## v4
 
@@ -20,7 +20,7 @@ Then the border shall turn from Azmon to the brook of Egypt, and it shall go out
 
 ## v6
 
-And for the western border you shall have the Great Sea and its coast; this shall be your western border.
+And for the western border you shall have the [[Numbers-34.fn#Footnote 6.1 — Great|Great]] Sea and its coast; this shall be your western border.
 
 ## v7
 
@@ -28,7 +28,7 @@ And this shall be your northern border: From the Great Sea you shall mark out a 
 
 ## v8
 
-From Mount Hor you shall mark out a line to the entrance of Hamath; and the border shall go out to Zedad;
+From Mount Hor you shall mark out a line to the [[Numbers-34.fn#Footnote 8.1 — entrance|entrance]] of Hamath; and the border shall go out to Zedad;
 
 ## v9
 
@@ -40,11 +40,11 @@ And you shall mark out your eastern border from Hazar-enan to Shepham;
 
 ## v11
 
-And the border shall go down from Shepham to Riblah on the east side of Ain; and the border shall go down and reach the slope on the east of the Sea of Chinnereth;
+And the border shall go down from Shepham to Riblah on the east side of Ain; and the border shall go down and reach the [[Numbers-34.fn#Footnote 11.1 — slope|slope]] on the east of the [[Numbers-34.fn#Footnote 11.2 — Sea|Sea]] of Chinnereth;
 
 ## v12
 
-And the border shall go down to the Jordan, and it shall go out to the Salt Sea. This shall be your land according to its borders all around.
+And the border shall go down to the [[Numbers-34.fn#Footnote 12.1 — Jordan|Jordan]], and it shall go out to the Salt Sea. This shall be your land according to its borders all around.
 
 ## v13
 
@@ -56,7 +56,7 @@ For the tribe of the children of Reuben according to their fathers’ households
 
 ## v15
 
-The two tribes and the half-tribe have received their inheritance beyond the Jordan at Jericho eastward, toward the sunrise.
+The two tribes and the half-tribe have received their inheritance [[Numbers-34.fn#Footnote 15.1 — beyond|beyond]] the Jordan at Jericho eastward, toward the sunrise.
 
 ## v16
 
@@ -64,7 +64,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v17
 
-These are the names of the men who shall divide the land to you for inheritance: Eleazar the priest and Joshua the son of Nun.
+These are the names of the men who shall divide the land to you for inheritance: [[Numbers-34.fn#Footnote 17.1 — Eleazar|Eleazar]] the priest and [[Numbers-34.fn#Footnote 17.1 — Eleazar|Joshua]] the son of Nun.
 
 ## v18
 

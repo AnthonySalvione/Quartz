@@ -56,7 +56,7 @@ And David inquired again of God, and God said to him, You shall not go up after 
 
 ## v15
 
-And when you hear the sound of marching in the tops of the balsam trees, then you shall go out to battle; for God will have gone forth before you to strike the army of the Philistines.
+And when you hear the sound of marching in the tops of the balsam trees, then you shall go out to battle; for God will have gone forth before you to strike the [[1 Chronicles-14.fn#Footnote 15.1 — army|army]] of the Philistines.
 
 ## v16
 

@@ -4,7 +4,7 @@ Now when Athaliah the mother of Ahaziah saw that her son was dead, she rose up a
 
 ## v2
 
-But Jehosheba, the daughter of King Joram and sister of Ahaziah, took Joash the son of Ahaziah and stole him away from among the sons of the king who were about to be killed; she put him and his nurse into the bedchamber. So they hid him from Athaliah, and he was not killed.
+But Jehosheba, the daughter of King Joram and sister of Ahaziah, took Joash the son of Ahaziah and stole him away from among the sons of the king who were about to be killed; [[2 Kings-11.fn#Footnote 2.1 — she|she]] put him and his nurse into the bedchamber. So they hid him from Athaliah, and he was not killed.
 
 ## v3
 
@@ -72,7 +72,7 @@ And all the people of the land went to the house of Baal and broke it down: The 
 
 ## v19
 
-And Jehoiada gathered the captains of the hundreds and the Carites and the guards and all the people of the land. And they brought the king down from the house of Jehovah and came by way of the guard gate to the house of the king, and he sat upon the throne of the kings.
+And [[2 Kings-11.fn#Footnote 19.1 — Jehoiada|Jehoiada]] gathered the captains of the hundreds and the Carites and the guards and all the people of the land. And they brought the king down from the house of Jehovah and came by way of the guard gate to the house of the king, and he sat upon the throne of the kings.
 
 ## v20
 
@@ -80,4 +80,4 @@ And all the people of the land rejoiced, and the city was quiet; for they had sl
 
 ## v21
 
-Jehoash was seven years old when he began to reign.
+[[2 Kings-11.fn#Footnote 21.1 — Jehoash|Jehoash]] was seven years old when he began to reign.

@@ -4,7 +4,7 @@ And Saul told Jonathan his son and all his servants to kill David. But Jonathan,
 
 ## v2
 
-And Jonathan told David, saying, Saul my father is seeking to kill you. Now therefore be on guard in the morning, and stay in some secret place, and hide yourself.
+And [[1 Samuel-19.fn#Footnote 2.1 — Jonathan|Jonathan]] told David, saying, Saul my father is seeking to kill you. Now therefore be on guard in the morning, and stay in some secret place, and hide yourself.
 
 ## v3
 
@@ -36,7 +36,7 @@ Then there came an evil spirit from Jehovah upon Saul, and he sat in his house w
 
 ## v10
 
-And Saul sought to strike David even to the wall with the spear, but he slipped away from Saul’s presence. And Saul struck the wall with his spear, but David fled and escaped that night.
+And Saul sought to strike David even to the wall with the spear, but he slipped away from Saul's presence. And [[1 Samuel-19.fn#Footnote 10.1 — Saul|Saul]] struck the wall with his spear, but David fled and escaped that night.
 
 ## v11
 

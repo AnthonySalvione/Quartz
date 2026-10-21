@@ -9,7 +9,7 @@ The Spirit of Jehovah spoke through me, / And His word was on my tongue.
 
 ## v3
 
-The God of Israel spoke, / The Rock of Israel spoke to me, / Who rules among men righteously, / Who rules with the fear of God,
+The God of Israel spoke, / The Rock of Israel spoke to me, / [[2 Samuel-23.fn#Footnote 3.1 — Who|Who]] rules among men righteously, / Who rules with the fear of God,
 
 ## v4
 
@@ -29,11 +29,11 @@ But the man who touches them / Must arm himself with an iron rod or with the sha
 
 ## v8
 
-These are the names of the mighty men whom David had: Josheb-basshebeth a Tahchemonite; he was the chief of the captains; the same is Adino the Eznite, who fought against eight hundred, who were slain at one time.
+These are the names of the mighty men whom David had: Josheb-basshebeth a Tahchemonite; he was the [[2 Samuel-23.fn#Footnote 8.1 — chief|chief]] of the captains; the same is Adino the Eznite, who fought against eight hundred, who were slain at one time.
 
 ## v9
 
-After him was Eleazar the son of Dodo, the son of an Ahohite, one among the three mighty men with David, when they defied the Philistines who were gathered there for battle, and the men of Israel went away.
+After him was Eleazar the son of Dodo, the son of an Ahohite, one among the three mighty men with David, when they defied the Philistines who were gathered [[2 Samuel-23.fn#Footnote 9.1 — there|there]] for battle, and the men of Israel went away.
 
 ## v10
 
@@ -73,7 +73,7 @@ And Abishai the brother of Joab, the son of Zeruiah, was chief of the three. And
 
 ## v19
 
-He was indeed the most honored among the thirty, and he became their leader, but he did not attain to the three.
+He was indeed the most honored among the [[2 Samuel-23.fn#Footnote 19.1 — thirty|thirty]], and he became their leader, but he did not attain to the three.
 
 ## v20
 
@@ -145,7 +145,7 @@ Igal the son of Nathan of Zobah; Bani the Gadite;
 
 ## v37
 
-Zelek the Ammonite; Naharai the Beerothite, the armor bearer to Joab the son of Zeruiah;
+Zelek the Ammonite; Naharai the Beerothite, the armor [[2 Samuel-23.fn#Footnote 37.1 — bearer|bearer]] to Joab the son of Zeruiah;
 
 ## v38
 

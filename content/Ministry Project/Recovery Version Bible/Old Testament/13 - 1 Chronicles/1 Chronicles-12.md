@@ -68,7 +68,7 @@ And David went out to meet them; and he responded and said to them, If you have 
 
 ## v18
 
-Then the Spirit came upon Amasai, the head of the thirty, and he said,  
+Then the Spirit [[1 Chronicles-12.fn#Footnote 18.1 — came|came]] upon Amasai, the head of the thirty, and he said,  
 We are yours, O David,  
 And are with you, O son of Jesse.  
 Peace, peace be with you,  

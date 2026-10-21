@@ -1,10 +1,10 @@
 ## v1
 
-Now Sarai, Abram’s wife, bore him no children; and she had an Egyptian female servant, whose name was Hagar.
+Now [[Genesis-16.fn#Footnote 1.1 — Sarai|Sarai]], Abram’s wife, bore him no children; and she had an Egyptian female servant, whose name was [[Genesis-16.fn#Footnote 1.1 — Sarai|Hagar]].
 
 ## v2
 
-And Sarai said to Abram, Because Jehovah has prevented me from bearing, please go in to my female servant; perhaps I will have children through her. And Abram listened to the voice of Sarai.
+And Sarai said to Abram, Because Jehovah has prevented me from bearing, please go in to my female servant; perhaps I will [[Genesis-16.fn#Footnote 2.1 — have|have]] children through her. And Abram listened to the voice of Sarai.
 
 ## v3
 
@@ -24,7 +24,7 @@ And Abram said to Sarai, Your female servant is now in your hand; do to her what
 
 ## v7
 
-And the Angel of Jehovah found her by a spring of water in the wilderness, by the spring on the way to Shur.
+And the [[Genesis-16.fn#Footnote 7.1 — Angel|Angel]] of Jehovah found her by a spring of water in the wilderness, by the spring on the way to Shur.
 
 ## v8
 
@@ -43,7 +43,7 @@ And the Angel of Jehovah said to her, I will greatly multiply your seed, so that
 And the Angel of Jehovah said to her,  
 You have now conceived /  
 And will bear a son, /  
-And you shall call his name Ishmael, /  
+And you shall call his name [[Genesis-16.fn#Footnote 11.1 — Ishmael|Ishmael]], /  
 Because Jehovah has heard of your affliction.
 
 ## v12
@@ -55,15 +55,15 @@ And he will settle down opposite all his brothers.
 
 ## v13
 
-And she called the name of Jehovah who spoke to her, You are a God who reveals Himself, for she said, Do I even remain here after He has revealed Himself to me?
+And she called the name of Jehovah who spoke to her, [[Genesis-16.fn#Footnote 13.1 — You|You]] are a [[Genesis-16.fn#Footnote 13.2 — God|God]] who reveals Himself, for she said, [[Genesis-16.fn#Footnote 13.3 — Do|Do]] I even remain here after He has revealed Himself to me?
 
 ## v14
 
-Therefore the well was called Beer-lahai-roi; there it is, between Kadesh and Bered.
+Therefore the well was called [[Genesis-16.fn#Footnote 14.1 — Beer-lahai-roi|Beer-lahai-roi]]; there it is, between Kadesh and Bered.
 
 ## v15
 
-And Hagar bore Abram a son, and Abram called the name of his son, whom Hagar bore, Ishmael.
+And Hagar bore Abram a son, and Abram called the name of his son, whom Hagar bore, [[Genesis-16.fn#Footnote 15.1 — Ishmael|Ishmael]].
 
 ## v16
 

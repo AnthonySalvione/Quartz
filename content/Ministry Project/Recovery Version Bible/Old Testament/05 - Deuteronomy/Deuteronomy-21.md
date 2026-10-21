@@ -84,8 +84,8 @@ Then all the men of his city shall stone him with stones so that he dies. Thus y
 
 ## v22
 
-And if in a man there is a sin, a cause worthy of death, and he is put to death, and you hang him on a tree;
+And if in a man there is a sin, a cause worthy of death, and he is put to death, and you [[Deuteronomy-21.fn#Footnote 22.1 — hang|hang]] him on a tree;
 
 ## v23
 
-His corpse shall not remain overnight on the tree, but you must bury him on that day. For he who is hanged is accursed of God, and you shall not defile your land, which Jehovah your God gives you as an inheritance.
+His corpse shall not remain overnight on the tree, but you must bury him on that day. For he who is hanged is [[Deuteronomy-21.fn#Footnote 23.1 — accursed|accursed]] of God, and you shall not defile your land, which Jehovah your God gives you as an inheritance.

@@ -1,6 +1,6 @@
 ## v1
 
-And this is the blessing with which Moses, the man of God, blessed the children of Israel before his death.
+And this is the [[Deuteronomy-33.fn#Footnote 1.1 — blessing|blessing]] with which Moses, the man of God, blessed the children of Israel before his death.
 
 ## v2
 
@@ -31,28 +31,28 @@ The tribes of Israel together.
 
 ## v6
 
-May Reuben live and not die,  
+May [[Deuteronomy-33.fn#Footnote 6.1 — Reuben|Reuben]] live and not die,  
 Nor his men be few.
 
 ## v7
 
 And this is the blessing concerning Judah; and he said,  
 Hear, O Jehovah, the voice of Judah,  
-And bring him to his people.  
+And [[Deuteronomy-33.fn#Footnote 7.1 — bring|bring]] him to his people.  
 With his hands he contended for them;  
-And may You be a help against his adversaries.
+And may You be a help against his [[Deuteronomy-33.fn#Footnote 7.2 — adversaries|adversaries]].
 
 ## v8
 
 And concerning Levi he said,  
-May Your Thummim and Urim be with Your faithful man,  
+May [[Deuteronomy-33.fn#Footnote 8.1 — Your|Your]] Thummim and Urim be with Your faithful man,  
 Whom You tested at Massah,  
 With whom You contended at the waters of Meribah —
 
 ## v9
 
 He who said of his father and mother,  
-I do not regard him;  
+I do not [[Deuteronomy-33.fn#Footnote 9.1 — regard|regard]] him;  
 And his brothers he did not acknowledge,  
 And his children he did not recognize;  
 For they have kept Your speaking  
@@ -67,7 +67,7 @@ And whole burnt offerings upon Your altar.
 
 ## v11
 
-Bless, O Jehovah, his might,  
+Bless, O Jehovah, his [[Deuteronomy-33.fn#Footnote 11.1 — might|might]],  
 And the work of his hands accept;  
 Wound thoroughly the loins of those who rise up against him  
 And of those who hate him, that they may not rise up again.
@@ -89,7 +89,7 @@ And with the deep waters that couch beneath;
 ## v14
 
 With the choicest of the crops of the sun,  
-And with the choicest of the yield of the moons;
+And with the choicest of the yield of the [[Deuteronomy-33.fn#Footnote 14.1 — moons|moons]];
 
 ## v15
 
@@ -109,13 +109,13 @@ Like his firstborn ox, he has majesty;
 And his horns are the horns of the wild ox;  
 With them he shall drive peoples  
 To the ends of the earth together.  
-Those are the ten thousands of Ephraim;  
-And those the thousands of Manasseh.
+Those are the ten thousands of [[Deuteronomy-33.fn#Footnote 17.1 — Ephraim|Ephraim]];  
+And those the thousands of [[Deuteronomy-33.fn#Footnote 17.1 — Ephraim|Manasseh]].
 
 ## v18
 
 And concerning Zebulun he said,  
-Rejoice, Zebulun, for your going forth,  
+Rejoice, Zebulun, for your [[Deuteronomy-33.fn#Footnote 18.1 — going|going]] forth,  
 And Issachar, for your tents!
 
 ## v19
@@ -135,7 +135,7 @@ And tears off the arm, yea, even the top of the head.
 ## v21
 
 And he provided the first part for himself,  
-For there the portion of a lawgiver is reserved;  
+For there the portion of a [[Deuteronomy-33.fn#Footnote 21.1 — lawgiver|lawgiver]] is reserved;  
 And he came with the heads of the people;  
 He executed the righteousness of Jehovah  
 And His judgments with Israel.
@@ -158,7 +158,7 @@ Possess the sea and the south.
 And concerning Asher he said,  
 Blessed be Asher above the sons.  
 May he be the one favored of his brothers,  
-And the one dipping his foot in oil.
+And the one dipping his foot in [[Deuteronomy-33.fn#Footnote 24.1 — oil|oil]].
 
 ## v25
 
@@ -173,7 +173,7 @@ And in His majesty through the skies.
 
 ## v27
 
-The God of old is your habitation,  
+The God of old is your [[Deuteronomy-33.fn#Footnote 27.1 — habitation|habitation]],  
 And underneath are eternal arms.  
 And He drove out the enemy before you  
 And said, Destroy!

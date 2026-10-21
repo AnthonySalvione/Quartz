@@ -3,15 +3,15 @@ Author: Luke
 ---
 ## v1
 
-And the entire multitude of them rose up and led Him before Pilate.
+And the entire multitude of them rose up and led Him before [[Luke-23.fn#Footnote 1.1 — Pilate|Pilate]].
 
 ## v2
 
-And they began to accuse Him, saying, We found this man perverting our nation and forbidding people to pay taxes to Caesar, and saying that He Himself is Christ, a King.
+And they began to accuse Him, saying, We found this man [[Luke-23.fn#Footnote 2.1 — perverting|perverting]] our nation and forbidding people to pay taxes to Caesar, and saying that He Himself is Christ, a King.
 
 ## v3
 
-And Pilate asked Him, saying, Are You the King of the Jews? And answering him, He said, It is as you say.
+And Pilate asked Him, saying, Are You the King of the Jews? And answering him, He said, [[Luke-23.fn#Footnote 3.1 — It|It]] is as you say.
 
 ## v4
 
@@ -19,7 +19,7 @@ And Pilate said to the chief priests and the crowds, I find no fault in this man
 
 ## v5
 
-But they were vehement, saying, He stirs up the people, teaching throughout the whole of Judea, beginning from Galilee even to this place.
+But they were vehement, saying, He stirs up the people, teaching throughout the whole of Judea, beginning from [[Luke-23.fn#Footnote 5.1 — Galilee|Galilee]] even to this place.
 
 ## v6
 
@@ -35,7 +35,7 @@ And when Herod saw Jesus, he rejoiced greatly, for he had wanted to see Him for 
 
 ## v9
 
-And he questioned Him with many words, but He answered him nothing.
+And he questioned Him with [[Luke-23.fn#Footnote 9.1 — many|many]] words, but He answered him [[Luke-23.fn#Footnote 9.2 — nothing|nothing]].
 
 ## v10
 
@@ -55,7 +55,7 @@ And Pilate, calling together the chief priests and the rulers and the people,
 
 ## v14
 
-Said to them, You have brought this man to me as one who turns the people away, and behold, I have examined Him before you and found no fault in this man regarding the accusations you bring against Him.
+Said to them, You have brought this man to me as one who [[Luke-23.fn#Footnote 14.1 — turns|turns]] the people away, and behold, I have examined Him before you and found no fault in this man regarding the accusations you bring against Him.
 
 ## v15
 
@@ -67,7 +67,7 @@ I will therefore discipline Him and release Him.
 
 ## v17
 
-Now he was obliged to release to them one prisoner at the feast.
+[[Luke-23.fn#Footnote 17.1 — Now|Now]] he was obliged to release to them one prisoner at the feast.
 
 ## v18
 
@@ -91,11 +91,11 @@ But he said to them a third time, Why, what evil has this man done? I have found
 
 ## v23
 
-But they pressed him with loud voices, asking that He be crucified, and their voices prevailed.
+But they pressed him with loud voices, asking that He be [[Luke-23.fn#Footnote 23.1 — crucified|crucified]], and their voices prevailed.
 
 ## v24
 
-And Pilate gave sentence that their request be carried out,
+And Pilate [[Luke-23.fn#Footnote 24.1 — gave|gave]] sentence that their request be carried out,
 
 ## v25
 
@@ -103,7 +103,7 @@ And he released him who had been thrown into prison for insurrection and murder,
 
 ## v26
 
-And as they led Him away, they laid hold of Simon, a certain Cyrenian, coming from the country, and they placed the cross upon him to carry it behind Jesus.
+And as they led Him away, they laid hold of [[Luke-23.fn#Footnote 26.1 — Simon|Simon]], a certain Cyrenian, coming from the country, and they placed the cross upon him to carry it behind Jesus.
 
 ## v27
 
@@ -111,7 +111,7 @@ And a great multitude of the people and of women who were mourning and lamenting
 
 ## v28
 
-But Jesus turned to them and said, Daughters of Jerusalem, do not weep over Me, but weep over yourselves and over your children.
+But Jesus turned to them and said, [[Luke-23.fn#Footnote 28.1 — Daughters|Daughters]] of Jerusalem, do not weep over Me, but weep over yourselves and over your children.
 
 ## v29
 
@@ -123,7 +123,7 @@ Then they will begin to say to the mountains, Fall on us! and to the hills, Cove
 
 ## v31
 
-For if they do these things with the tree full of sap, what will happen with the one that is dry?
+For if they do these things with the [[Luke-23.fn#Footnote 31.1 — tree|tree]] full of sap, what will happen with the one that is dry?
 
 ## v32
 
@@ -131,7 +131,7 @@ And two others also, who were criminals, were led with Him to be executed.
 
 ## v33
 
-And when they came to the place called The Skull, there they crucified Him and the criminals, one on the right and one on the left.
+And when they came to the place called The [[Luke-23.fn#Footnote 33.1 — Skull|Skull]], there they crucified Him and the criminals, one on the right and one on the left.
 
 ## v34
 
@@ -143,7 +143,7 @@ And the people stood by, looking on. And the rulers also sneered, saying, He sav
 
 ## v36
 
-And the soldiers also mocked Him, coming to Him and offering Him vinegar,
+And the soldiers also mocked Him, coming to Him and offering Him [[Luke-23.fn#Footnote 36.1 — vinegar|vinegar]],
 
 ## v37
 
@@ -151,7 +151,7 @@ And saying, If You are the King of the Jews, save Yourself!
 
 ## v38
 
-And there was also an inscription over Him: THIS IS THE KING OF THE JEWS.
+And there was also an inscription over [[Luke-23.fn#Footnote 38.1 — Him|Him]]: THIS IS THE KING OF THE JEWS.
 
 ## v39
 
@@ -159,31 +159,31 @@ And one of the criminals who were hanged there blasphemed Him, saying, Are You n
 
 ## v40
 
-But the other, answering, rebuked him and said, Do you not even fear God, since you are in the same judgment?
+But the other, answering, rebuked him and said, Do you not even fear God, since you are in the same [[Luke-23.fn#Footnote 40.1 — judgment|judgment]]?
 
 ## v41
 
-And we justly, for we are receiving what we deserve for what we did, but this man has done nothing amiss.
+And we justly, for we are receiving what we deserve for what we did, but this man has done nothing [[Luke-23.fn#Footnote 41.1 — amiss|amiss]].
 
 ## v42
 
-And he said, Jesus, remember me when You come into Your kingdom.
+[[Luke-23.fn#Footnote 42.1 — And|And]] he said, Jesus, remember me when You come into Your kingdom.
 
 ## v43
 
-And He said to him, Truly I say to you, Today you shall be with Me in Paradise.
+And He said to him, [[Luke-23.fn#Footnote 43.1 — Truly|Truly]] I say to you, Today you shall be with Me in [[Luke-23.fn#Footnote 43.2 — Paradise|Paradise]].
 
 ## v44
 
-And it was now about the sixth hour, and darkness fell over the whole land until the ninth hour,
+And it was now about the [[Luke-23.fn#Footnote 44.1 — sixth|sixth]] hour, and darkness fell over the whole land until the ninth hour,
 
 ## v45
 
-The sun’s light failing; and the veil of the temple was split down the middle.
+[[Luke-23.fn#Footnote 45.1 — The|The]] sun’s light failing; and the [[Luke-23.fn#Footnote 45.2 — veil|veil]] of the temple was split down the middle.
 
 ## v46
 
-And crying with a loud voice, Jesus said, Father, into Your hands I commit My spirit. And saying this, He expired.
+And crying with a loud voice, Jesus said, Father, into Your hands [[Luke-23.fn#Footnote 46.1 — I|I]] commit My spirit. And saying this, He expired.
 
 ## v47
 
@@ -199,7 +199,7 @@ And all those who knew Him, and the women who accompanied Him from Galilee, stoo
 
 ## v50
 
-And behold, there was a man named Joseph, who was a member of the Council, and a good and righteous man
+And behold, there was a man named [[Luke-23.fn#Footnote 50.1 — Joseph|Joseph]], who was a member of the Council, and a good and righteous man
 
 ## v51
 
@@ -211,11 +211,11 @@ This man came to Pilate and asked for the body of Jesus.
 
 ## v53
 
-And he took it down and wrapped it in a fine linen cloth, and laid Him in a tomb hewn in the rock, where no one had ever lain.
+And he took it down and wrapped it in a fine linen cloth, and [[Luke-23.fn#Footnote 53.1 — laid|laid]] Him in a tomb hewn in the rock, where no one had ever lain.
 
 ## v54
 
-And it was the day of preparation, and the Sabbath was coming on.
+And it was the day of [[Luke-23.fn#Footnote 54.1 — preparation|preparation]], and the Sabbath was [[Luke-23.fn#Footnote 54.2 — coming|coming]] on.
 
 ## v55
 
@@ -223,4 +223,4 @@ And the women who had come together with Him out of Galilee followed after and b
 
 ## v56
 
-And they returned and prepared spices and ointment. And on the Sabbath they rested according to the commandment.
+And they returned and prepared spices and ointment. And on the Sabbath they [[Luke-23.fn#Footnote 56.1 — rested|rested]] according to the commandment.

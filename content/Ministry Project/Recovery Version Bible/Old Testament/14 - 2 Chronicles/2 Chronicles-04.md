@@ -8,7 +8,7 @@ And he made the molten sea, ten cubits from brim to brim, fully round; and it wa
 
 ## v3
 
-And under it there were figures of oxen all around, encircling it, for ten cubits, surrounding the sea all around; the oxen were cast in two rows when they were cast.
+And under it there were [[2 Chronicles-04.fn#Footnote 3.1 — figures|figures]] of oxen all around, encircling it, [[2 Chronicles-04.fn#Footnote 3.2 — for|for]] ten cubits, surrounding the sea all around; the oxen were cast in two rows when they were cast.
 
 ## v4
 

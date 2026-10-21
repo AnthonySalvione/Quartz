@@ -96,7 +96,7 @@ Then I set apart twelve of the leading men of the priests, even Sherebiah, Hasha
 
 ## v25
 
-And weighed out to them the silver and the gold and the vessels, the heave offering for the house of our God, which the king and his counselors and his princes, and all Israel there present had offered.
+And weighed out to them the silver and the gold and the vessels, the [[Ezra-08.fn#Footnote 25.1 — heave|heave]] offering for the house of our God, which the king and his counselors and his princes, and all Israel there present had offered.
 
 ## v26
 

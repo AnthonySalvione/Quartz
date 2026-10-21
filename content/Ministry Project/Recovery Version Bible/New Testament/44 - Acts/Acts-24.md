@@ -3,11 +3,11 @@ Author: Luke
 ---
 ## v1
 
-And after five days the high priest Ananias came down with some elders and a certain orator, Tertullus; and they gave their information against Paul to the governor.
+And after five days the high priest Ananias came down with some elders and a certain [[Acts-24.fn#Footnote 1.1 — orator|orator]], Tertullus; and they gave their information against Paul to the governor.
 
 ## v2
 
-And when Paul was called, Tertullus began to accuse him, saying, Since we have obtained much peace through you, and since reforms are being carried out for this nation through your forethought
+And when Paul was called, Tertullus began to accuse him, saying, [[Acts-24.fn#Footnote 2.1 — Since|Since]] we have obtained much peace through you, and since reforms are being carried out for this nation through your forethought
 
 ## v3
 
@@ -23,7 +23,7 @@ For we have found this man a pest and an agitator of insurrections among all the
 
 ## v6
 
-Who has also tried to profane the temple. Him also we laid hold of and wanted to judge according to our law,
+Who has also tried to profane the temple. Him also we laid hold of [[Acts-24.fn#Footnote 6.1 — and|and]] wanted to judge according to our law,
 
 ## v7
 
@@ -39,7 +39,7 @@ And the Jews also joined in the attack, affirming that these things were so.
 
 ## v10
 
-And when the governor nodded for him to speak, Paul answered: Knowing that for many years you have been a judge to this nation, I gladly make my defense for the things concerning myself,
+And when the governor nodded for him to speak, Paul answered: Knowing that for many years you have been a judge to this nation, I gladly make my [[Acts-24.fn#Footnote 10.1 — defense|defense]] for the things concerning myself,
 
 ## v11
 
@@ -55,15 +55,15 @@ Neither are they able to prove to you the things which they now accuse me of.
 
 ## v14
 
-But I confess this to you, that according to the Way, which they call a sect, so I serve the God of our fathers, believing all the things that are written in the Law and in the Prophets;
+But I confess this to you, that according to the [[Acts-24.fn#Footnote 14.1 — Way|Way]], which they call a sect, so I [[Acts-24.fn#Footnote 14.2 — serve|serve]] the God of our fathers, believing all the things that are written in the Law and in the Prophets;
 
 ## v15
 
-Having hope toward God, which these themselves also look for, that there is to be a resurrection of both the righteous and the unrighteous.
+Having hope toward God, which these themselves also look for, that there is to be a [[Acts-24.fn#Footnote 15.1 — resurrection|resurrection]] of both the righteous and the unrighteous.
 
 ## v16
 
-Because of this I also exercise myself to always have a conscience without offense toward God and men.
+Because of this I also exercise myself to always have a [[Acts-24.fn#Footnote 16.1 — conscience|conscience]] without offense toward God and men.
 
 ## v17
 
@@ -71,7 +71,7 @@ Now after many years I came bringing alms to my nation and offerings;
 
 ## v18
 
-In which they found me purified in the temple, with no crowd or uproar. But certain Jews from Asia,
+In which they found me [[Acts-24.fn#Footnote 18.1 — purified|purified]] in the temple, with no crowd or uproar. But certain Jews from Asia,
 
 ## v19
 
@@ -95,16 +95,16 @@ And he directed the centurion to keep him in custody, and that he should have so
 
 ## v24
 
-But after some days, Felix appeared with Drusilla his wife, who was a Jewess, and he sent for Paul and heard him concerning the faith in Christ Jesus.
+But after some days, Felix appeared with [[Acts-24.fn#Footnote 24.1 — Drusilla|Drusilla]] his wife, who was a Jewess, and he sent for Paul and heard him concerning the faith in Christ Jesus.
 
 ## v25
 
-And as he was reasoning concerning righteousness and self-control and the judgment to come, Felix became afraid and answered, Go for the present, and when I have an opportunity, I will call for you;
+And as he was [[Acts-24.fn#Footnote 25.1 — reasoning|reasoning]] concerning [[Acts-24.fn#Footnote 25.2 — righteousness|righteousness]] and self-control and the judgment to come, Felix became afraid and answered, Go for the present, and when I have an opportunity, I will call for you;
 
 ## v26
 
-Hoping at the same time also that money would be given to him by Paul. Therefore he also sent for him more frequently and conversed with him.
+Hoping at the same time also that [[Acts-24.fn#Footnote 26.1 — money|money]] would be given to him by Paul. Therefore he also sent for him more frequently and conversed with him.
 
 ## v27
 
-And when two years were completed, Felix was succeeded by Porcius Festus; and wanting to gain favor with the Jews, Felix left Paul bound.
+And when [[Acts-24.fn#Footnote 27.1 — two|two]] years were completed, Felix was succeeded by Porcius [[Acts-24.fn#Footnote 27.2 — Festus|Festus]]; and wanting to [[Acts-24.fn#Footnote 27.3 — gain|gain]] favor with the Jews, Felix left Paul bound.

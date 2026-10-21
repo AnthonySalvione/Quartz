@@ -3,7 +3,7 @@ Author: Mark
 ---
 ## v1
 
-And He entered again into Capernaum after a few days, and it was heard that He was at home.
+And [[Mark-02.fn#Footnote 1.1 — He|He]] entered again into Capernaum after a few days, and it was heard that He was [[Mark-02.fn#Footnote 1.2 — at|at]] home.
 
 ## v2
 
@@ -11,51 +11,51 @@ And many were gathered together, so that there was no longer room, not even at t
 
 ## v3
 
-And they came, bringing to Him a paralytic carried by four men.
+And they came, bringing to Him a [[Mark-02.fn#Footnote 3.1 — paralytic|paralytic]] carried by four men.
 
 ## v4
 
-And being unable to bring him to Him because of the crowd, they removed the roof where He was. And when they had dug through, they lowered the mat on which the paralytic was lying.
+And being unable to bring him to Him because of the crowd, they [[Mark-02.fn#Footnote 4.1 — removed|removed]] the roof where He was. And when they had dug through, they lowered the [[Mark-02.fn#Footnote 4.2 — mat|mat]] on which the paralytic was lying.
 
 ## v5
 
-And Jesus, seeing their faith, said to the paralytic, Child, your sins are forgiven.
+And Jesus, seeing their [[Mark-02.fn#Footnote 5.1 — faith|faith]], said to the paralytic, [[Mark-02.fn#Footnote 5.2 — Child|Child]], your [[Mark-02.fn#Footnote 5.3 — sins|sins]] are forgiven.
 
 ## v6
 
-But some of the scribes were sitting there and reasoning in their hearts,
+But some of the [[Mark-02.fn#Footnote 6.1 — scribes|scribes]] were sitting there and reasoning in their hearts,
 
 ## v7
 
-Why is this man speaking this way? He is blaspheming! Who can forgive sins except One, God?
+Why is this man speaking this way? He is blaspheming! Who can forgive sins except One, [[Mark-02.fn#Footnote 7.1 — God|God]]?
 
 ## v8
 
-And immediately Jesus, knowing fully in His spirit that they were reasoning this way within themselves, said to them, Why are you reasoning about these things in your hearts?
+And immediately Jesus, [[Mark-02.fn#Footnote 8.1 — knowing|knowing]] fully in His spirit that they were reasoning this way within themselves, said to them, Why are you reasoning about these things in your hearts?
 
 ## v9
 
-Which is easier: to say to the paralytic, Your sins are forgiven, or to say, Rise and take up your mat and walk?
+Which is [[Mark-02.fn#Footnote 9.1 — easier|easier]]: to say to the paralytic, Your sins are forgiven, or to say, Rise and take up your mat and walk?
 
 ## v10
 
-But that you may know that the Son of Man has authority to forgive sins on earth — He said to the paralytic,
+But that you may know that the Son of [[Mark-02.fn#Footnote 10.1 — Man|Man]] has authority to forgive sins on earth — He said to the paralytic,
 
 ## v11
 
-To you I say, Rise, take up your mat and go to your house.
+To you I say, [[Mark-02.fn#Footnote 11.1 — Rise|Rise]], take up your mat and go to your house.
 
 ## v12
 
-And he rose and immediately took up the mat and went out before them all, so that they were all amazed and glorified God, saying, We have never seen anything like this!
+And he [[Mark-02.fn#Footnote 12.1 — rose|rose]] and immediately [[Mark-02.fn#Footnote 12.2 — took|took]] up the mat and [[Mark-02.fn#Footnote 12.3 — went|went]] out before them all, so that they were all amazed and glorified God, saying, We have never seen anything like this!
 
 ## v13
 
-And He went out again beside the sea. And all the crowd came to Him, and He taught them.
+And He went out again beside the sea. And all the crowd came to Him, and He [[Mark-02.fn#Footnote 13.1 — taught|taught]] them.
 
 ## v14
 
-And as He passed by, He saw Levi the son of Alphaeus sitting at the tax office, and He said to him, Follow Me. And he rose and followed Him.
+[[Mark-02.fn#Footnote 14.1 — And|And]] as He passed by, He saw Levi the son of Alphaeus sitting at the [[Mark-02.fn#Footnote 14.2 — tax|tax]] office, and He said to him, Follow Me. And he rose and [[Mark-02.fn#Footnote 14.3 — followed|followed]] Him.
 
 ## v15
 
@@ -63,15 +63,15 @@ And as He reclined at table in his house, many tax collectors and sinners were r
 
 ## v16
 
-And the scribes of the Pharisees, seeing that He ate with sinners and tax collectors, said to His disciples, Why does He eat with tax collectors and sinners?
+And the [[Mark-02.fn#Footnote 16.1 — scribes|scribes]] of the Pharisees, seeing that He ate with sinners and tax collectors, said to His disciples, Why does He eat with tax collectors and sinners?
 
 ## v17
 
-And when Jesus heard this, He said to them, Those who are strong have no need of a physician, but those who are ill; I did not come to call the righteous, but sinners.
+And when Jesus heard this, He said to them, Those who are strong have no need of a [[Mark-02.fn#Footnote 17.1 — physician|physician]], but those who are ill; I did not come to call the righteous, but [[Mark-02.fn#Footnote 17.2 — sinners|sinners]].
 
 ## v18
 
-And the disciples of John and the Pharisees were fasting. And they came and said to Him, Why do the disciples of John and the disciples of the Pharisees fast, but Your disciples do not fast?
+[[Mark-02.fn#Footnote 18.1 — And|And]] the disciples of John and the Pharisees were fasting. And they came and said to Him, Why do the disciples of John and the disciples of the Pharisees fast, but Your disciples do not fast?
 
 ## v19
 
@@ -91,15 +91,15 @@ And no one puts new wine into old wineskins; otherwise, the wine will burst the 
 
 ## v23
 
-And He passed through the grainfields on the Sabbath, and His disciples began to go along, picking the ears of grain.
+[[Mark-02.fn#Footnote 23.1 — And|And]] He passed through the grainfields on the Sabbath, and His disciples began to go along, picking the ears of grain.
 
 ## v24
 
-And the Pharisees said to Him, Look! Why are they doing on the Sabbath what is not lawful?
+And the [[Mark-02.fn#Footnote 24.1 — Pharisees|Pharisees]] said to Him, Look! Why are they doing on the Sabbath what is not lawful?
 
 ## v25
 
-And He said to them, Have you never read what David did when he had need and became hungry, he and those with him;
+And He said to them, Have you never read what [[Mark-02.fn#Footnote 25.1 — David|David]] did when he had need and became hungry, he and those with him;
 
 ## v26
 
@@ -107,8 +107,8 @@ How he entered into the house of God during the time of Abiathar the high priest
 
 ## v27
 
-And He said to them, The Sabbath came into being for man, and not man for the Sabbath.
+And He said to them, The Sabbath came into being for man, and [[Mark-02.fn#Footnote 27.1 — not|not]] man for the Sabbath.
 
 ## v28
 
-So then the Son of Man is Lord even of the Sabbath.
+So then the Son of Man is [[Mark-02.fn#Footnote 28.1 — Lord|Lord]] even of the Sabbath.

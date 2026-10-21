@@ -4,7 +4,7 @@ Then Joshua gathered all the tribes of Israel together at Shechem; and he called
 
 ## v2
 
-And Joshua said to all the people, Thus says Jehovah the God of Israel, Your fathers dwelt across the River long ago, Terah the father of Abraham and the father of Nahor; and they served other gods.
+And Joshua said to all the people, Thus says Jehovah the God of Israel, Your fathers dwelt across the [[Joshua-24.fn#Footnote 2.1 — River|River]] long ago, Terah the father of Abraham and the father of Nahor; and they served other gods.
 
 ## v3
 
@@ -124,8 +124,8 @@ And Israel served Jehovah throughout all the days of Joshua and throughout all t
 
 ## v32
 
-And Joseph’s bones, which the children of Israel had brought up from Egypt, were buried in Shechem, in the portion of the field that Jacob had bought from the children of Hamor the father of Shechem for a hundred pieces of money; and it became the inheritance of the children of Joseph.
+And Joseph’s bones, which the children of Israel had brought up from Egypt, were buried in Shechem, in the portion of the field that Jacob had bought from the children of Hamor the father of Shechem for a hundred pieces of money; and [[Joshua-24.fn#Footnote 32.1 — it|it]] became the inheritance of the children of Joseph.
 
 ## v33
 
-And Eleazar the son of Aaron died; and they buried him in the hill of Phinehas his son, which had been given to him in the hill country of Ephraim.
+And Eleazar the son of Aaron died; and they buried him in [[Joshua-24.fn#Footnote 33.1 — the|the]] hill of Phinehas his son, which had been given to him in the hill country of Ephraim.

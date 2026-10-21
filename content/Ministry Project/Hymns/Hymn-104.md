@@ -1,0 +1,40 @@
+---
+Category:
+  - Praise of the Lord
+Subcategory:
+  - His Redemption
+Lyricist:
+  - Isaac Watts
+Melody:
+  - Hugh Wilson
+---
+# Alas! And did my Savior bleed
+## Stanza 1
+Alas! And did my Savior bleed?
+And did my Sov'reign die,
+Would He devote that sacred head
+For such a worm as I?
+
+## Stanza 2
+Was it for sins that I had done
+He groaned upon the tree?
+Amazing pity! Grace unknown!
+And love beyond degree!
+
+## Stanza 3
+Well might the sun in darkness hide,
+And shut his glories in,
+When the incarnate Maker died
+For man, His creature's sin.
+
+## Stanza 4
+Thus might I hide my blushing face
+While His dear cross appears
+Dissolve my heart in thankfulness,
+And melt mine eyes to tears.
+
+## Stanza 5
+But drops of grief can ne'er repay
+The debt of love I owe;
+Here, Lord, I give myself away:
+'Tis all that I can do.

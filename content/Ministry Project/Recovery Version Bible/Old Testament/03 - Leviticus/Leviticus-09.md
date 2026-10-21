@@ -1,10 +1,10 @@
 ## v1
 
-Now on the eighth day Moses called Aaron and his sons and the elders of Israel;
+Now on the [[Leviticus-09.fn#Footnote 1.1 — eighth|eighth]] day Moses called Aaron and his sons and the elders of Israel;
 
 ## v2
 
-And he said to Aaron, Take for yourself a calf of the herd for a sin offering and a ram for a burnt offering, without blemish, and present them before Jehovah.
+And he said to Aaron, Take for [[Leviticus-09.fn#Footnote 2.1 — yourself|yourself]] a calf of the herd for a sin offering and a ram for a burnt offering, without blemish, and present them before Jehovah.
 
 ## v3
 
@@ -56,7 +56,7 @@ And he washed the inward parts and the legs and burned them upon the burnt offer
 
 ## v15
 
-Then he presented the people’s offering, and took the goat of the sin offering which was for the people and slaughtered it and offered it for sin, like the first.
+Then he presented the [[Leviticus-09.fn#Footnote 15.1 — people’s|people’s]] offering, and took the goat of the sin offering which was for the people and slaughtered it and offered it for sin, like the first.
 
 ## v16
 
@@ -68,7 +68,7 @@ Then he presented the meal offering and filled his hand with some of it and burn
 
 ## v18
 
-Then he slaughtered the ox and the ram, the sacrifice of peace offerings which was for the people; and Aaron’s sons handed the blood to him, which he sprinkled on and around the altar.
+Then he slaughtered the ox and the ram, the sacrifice of [[Leviticus-09.fn#Footnote 18.1 — peace|peace]] offerings which was for the people; and Aaron’s sons handed the blood to him, which he sprinkled on and around the altar.
 
 ## v19
 
@@ -84,12 +84,12 @@ And the breasts and the right thigh Aaron waved for a wave offering before Jehov
 
 ## v22
 
-And Aaron lifted up his hands toward the people and blessed them, and he came down from offering the sin offering and the burnt offering and the peace offerings.
+And Aaron lifted up his hands toward the people and [[Leviticus-09.fn#Footnote 22.1 — blessed|blessed]] them, and he came down from offering the sin offering and the burnt offering and the peace offerings.
 
 ## v23
 
-And Moses and Aaron went into the Tent of Meeting. And they came out and blessed the people; and the glory of Jehovah appeared to all the people.
+And Moses and Aaron went into the Tent of Meeting. And they came out and [[Leviticus-09.fn#Footnote 23.1 — blessed|blessed]] the people; and the glory of Jehovah [[Leviticus-09.fn#Footnote 23.2 — appeared|appeared]] to all the people.
 
 ## v24
 
-Then fire came forth from before Jehovah and consumed the burnt offering and the fat portions on the altar. And when all the people saw it, they gave a ringing shout and fell on their faces.
+Then [[Leviticus-09.fn#Footnote 24.1 — fire|fire]] came forth from before Jehovah and consumed the burnt offering and the fat portions on the altar. And when all the people saw it, they gave a ringing shout and fell on their faces.

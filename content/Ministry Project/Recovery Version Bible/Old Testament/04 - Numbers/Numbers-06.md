@@ -4,11 +4,11 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Speak to the children of Israel and say to them, When a man or a woman makes a special vow, the vow of a Nazarite, to separate himself to Jehovah,
+Speak to the children of Israel and say to them, When a man or a woman [[Numbers-06.fn#Footnote 2.1 — makes|makes]] a special vow, the vow of a [[Numbers-06.fn#Footnote 2.2 — Nazarite|Nazarite]], to [[Numbers-06.fn#Footnote 2.3 — separate|separate]] himself to Jehovah,
 
 ## v3
 
-He shall separate himself from wine and strong drink; he shall drink no vinegar of wine or vinegar of strong drink, nor shall he drink any juice of grapes, nor eat fresh or dried grapes.
+He shall separate himself from [[Numbers-06.fn#Footnote 3.1 — wine|wine]] and strong drink; he shall drink no vinegar of wine or vinegar of strong drink, nor shall he drink any juice of grapes, nor eat fresh or dried grapes.
 
 ## v4
 
@@ -16,15 +16,15 @@ All the days of his separation he shall eat nothing that is produced by the grap
 
 ## v5
 
-All the days of his vow of separation no razor shall pass over his head. He shall be holy until the days are fulfilled for which he separated himself to Jehovah; he shall let the locks of the hair of his head grow long.
+All the days of his vow of separation no [[Numbers-06.fn#Footnote 5.1 — razor|razor]] shall pass over his head. He shall be holy until the days are fulfilled for which he separated himself to Jehovah; he shall let the locks of the hair of his head grow long.
 
 ## v6
 
-All the days that he separates himself to Jehovah he shall not come near a dead person.
+All the days that he separates himself to Jehovah he shall not come near a [[Numbers-06.fn#Footnote 6.1 — dead|dead]] person.
 
 ## v7
 
-He shall not make himself unclean for his father or for his mother, for his brother or for his sister, when they die, because his separation to God is upon his head.
+He shall not make himself unclean for his father or for his mother, for his brother or for his sister, when they die, because [[Numbers-06.fn#Footnote 7.1 — his|his]] separation to God is upon his head.
 
 ## v8
 
@@ -32,31 +32,31 @@ All the days of his separation he is holy to Jehovah.
 
 ## v9
 
-And if anyone dies very suddenly beside him so that he defiles the head of his separation, then he shall shave his head on the day he becomes clean; on the seventh day shall he shave it.
+And if anyone dies very [[Numbers-06.fn#Footnote 9.1 — suddenly|suddenly]] beside him so that he defiles the head of his separation, then he shall shave his head on the day he becomes clean; on the seventh day shall he shave it.
 
 ## v10
 
-And on the eighth day he shall bring two turtledoves or two young pigeons to the priest at the entrance of the Tent of Meeting,
+And on the [[Numbers-06.fn#Footnote 10.1 — eighth|eighth]] day he shall bring two turtledoves or two young pigeons to the priest at the entrance of the Tent of Meeting,
 
 ## v11
 
-And the priest shall offer one for a sin offering and the other for a burnt offering, and make expiation for him because he sinned by reason of the dead person. And he shall sanctify his head that same day.
+And the priest shall offer one for a sin offering and the other for a burnt offering, and make expiation for him because he sinned by reason of the dead person. And he shall [[Numbers-06.fn#Footnote 11.1 — sanctify|sanctify]] his head that same day.
 
 ## v12
 
-And he shall separate to Jehovah the days of his separation and shall bring a male lamb a year old for a trespass offering, but the former days shall be void because his separation was defiled.
+And he shall [[Numbers-06.fn#Footnote 12.1 — separate|separate]] to Jehovah the days of his separation and shall bring a male lamb a year old for a trespass offering, but the former days shall be void because his separation was defiled.
 
 ## v13
 
-Now this is the law of the Nazarite when the days of his separation are fulfilled: He shall be brought to the entrance of the Tent of Meeting.
+Now this is the law of the Nazarite when the [[Numbers-06.fn#Footnote 13.1 — days|days]] of his separation are fulfilled: He shall be brought to the entrance of the Tent of Meeting.
 
 ## v14
 
-And he shall present his offering to Jehovah: one male lamb a year old without blemish for a burnt offering, and one female lamb a year old without blemish for a sin offering, and one ram without blemish for a peace offering,
+And he shall present his offering to Jehovah: one [[Numbers-06.fn#Footnote 14.1 — male|male]] lamb a year old without blemish for a burnt offering, and one [[Numbers-06.fn#Footnote 14.2 — female|female]] lamb a year old without blemish for a sin offering, and one [[Numbers-06.fn#Footnote 14.3 — ram|ram]] without blemish for a peace offering,
 
 ## v15
 
-And a basket of unleavened bread, cakes of fine flour mingled with oil, and unleavened wafers anointed with oil, and their meal offering and their drink offerings.
+And a [[Numbers-06.fn#Footnote 15.1 — basket|basket]] of unleavened bread, cakes of fine flour mingled with oil, and unleavened wafers anointed with oil, and their meal offering and their [[Numbers-06.fn#Footnote 15.2 — drink|drink]] offerings.
 
 ## v16
 
@@ -68,11 +68,11 @@ And he shall offer the ram for a sacrifice of peace offerings to Jehovah, with t
 
 ## v18
 
-And the Nazarite shall shave the head of his separation at the entrance of the Tent of Meeting, and take the hair of the head of his separation and put it on the fire that is under the sacrifice of peace offerings.
+And the Nazarite shall [[Numbers-06.fn#Footnote 18.1 — shave|shave]] the head of his separation at the entrance of the Tent of Meeting, and take the hair of the head of his separation and put it on the fire that is under the sacrifice of peace offerings.
 
 ## v19
 
-And the priest shall take the boiled shoulder of the ram and one unleavened cake out of the basket and one unleavened wafer, and shall put them into the hands of the Nazarite after he has shaved the head of his separation;
+And the priest shall take the boiled [[Numbers-06.fn#Footnote 19.1 — shoulder|shoulder]] of the ram and one unleavened cake out of the basket and one unleavened wafer, and shall put them into the hands of the Nazarite after he has shaved the head of his separation;
 
 ## v20
 
@@ -88,19 +88,19 @@ Then Jehovah spoke to Moses, saying,
 
 ## v23
 
-Speak to Aaron and to his sons, saying, Thus you shall bless the children of Israel; you shall say to them,
+Speak to Aaron and to his sons, saying, Thus you shall [[Numbers-06.fn#Footnote 23.1 — bless|bless]] the children of Israel; you shall say to them,
 
 ## v24
 
-Jehovah bless you and keep you;
+Jehovah [[Numbers-06.fn#Footnote 24.1 — bless|bless]] you and keep you;
 
 ## v25
 
-Jehovah make His face shine upon you and be gracious to you;
+Jehovah make His [[Numbers-06.fn#Footnote 25.1 — face|face]] [[Numbers-06.fn#Footnote 25.2 — shine|shine]] upon you and be gracious to you;
 
 ## v26
 
-Jehovah lift up His countenance upon you and give you peace.
+Jehovah lift up His [[Numbers-06.fn#Footnote 26.1 — countenance|countenance]] upon you and give you peace.
 
 ## v27
 

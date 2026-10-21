@@ -1,11 +1,11 @@
 ## v1
 
-Then Moses and the children of Israel sang this song to Jehovah and spoke, saying,  
-I will sing to Jehovah, for He has triumphed gloriously; / The horse and its rider He has cast into the sea.
+Then Moses and the children of Israel sang this [[Exodus-15.fn#Footnote 1.1 — song|song]] to Jehovah and spoke, saying,  
+I will sing to Jehovah, for [[Exodus-15.fn#Footnote 1.2 — He|He]] has triumphed gloriously; / The horse and its rider He has cast into the sea.
 
 ## v2
 
-Jah is my strength and song, / And He has become my salvation; / This is my God, and I will praise Him; / My father’s God, and I will exalt Him.
+[[Exodus-15.fn#Footnote 2.1 — Jah|Jah]] is my strength and song, / And He has become my [[Exodus-15.fn#Footnote 2.2 — salvation|salvation]]; / This is my God, and I will praise Him; / My father’s God, and I will exalt Him.
 
 ## v3
 
@@ -49,11 +49,11 @@ You stretched out Your right hand; / The earth swallowed them.
 
 ## v13
 
-In Your lovingkindness You have led the people whom You have redeemed; / You have guided them in Your strength to Your holy habitation.
+In Your lovingkindness You have led the people whom You have redeemed; / You have guided them in Your strength to Your [[Exodus-15.fn#Footnote 13.1 — holy|holy]] habitation.
 
 ## v14
 
-The peoples heard; they trembled; / Pangs have seized the inhabitants of Philistia.
+The [[Exodus-15.fn#Footnote 14.1 — peoples|peoples]] heard; they trembled; / Pangs have seized the inhabitants of Philistia.
 
 ## v15
 
@@ -69,7 +69,7 @@ You will bring them in and plant them in the mountain of Your inheritance, / The
 
 ## v18
 
-Jehovah shall reign forever and ever.
+Jehovah shall [[Exodus-15.fn#Footnote 18.1 — reign|reign]] forever and ever.
 
 ## v19
 
@@ -81,16 +81,16 @@ And Miriam the prophetess, the sister of Aaron, took a tambourine in her hand; a
 
 ## v21
 
-And Miriam responded to them,  
+And Miriam [[Exodus-15.fn#Footnote 21.1 — responded|responded]] to them,  
 Sing to Jehovah, for He has triumphed gloriously; / The horse and its rider He has cast into the sea.
 
 ## v22
 
-Then Moses moved Israel onward from the Red Sea, and they went out into the wilderness of Shur. And they went three days in the wilderness and found no water.
+Then Moses moved Israel onward from the Red Sea, and they went out into the wilderness of Shur. And they went [[Exodus-15.fn#Footnote 22.1 — three|three]] days in the wilderness and found [[Exodus-15.fn#Footnote 22.2 — no|no]] water.
 
 ## v23
 
-And when they came to Marah, they could not drink of the waters of Marah, for they were bitter; therefore its name was called Marah.
+And when they came to Marah, they could not drink of the waters of Marah, for they were bitter; therefore its name was called [[Exodus-15.fn#Footnote 23.1 — Marah|Marah]].
 
 ## v24
 
@@ -98,12 +98,12 @@ And the people murmured against Moses, saying, What shall we drink?
 
 ## v25
 
-And he cried out to Jehovah, and Jehovah showed him a tree; and he cast it into the waters, and the waters became sweet. There He made for them a statute and an ordinance, and there He tested them.
+And he cried out to Jehovah, and Jehovah showed him a [[Exodus-15.fn#Footnote 25.1 — tree|tree]]; and he cast it into the waters, and the waters became sweet. There He made for them a statute and an ordinance, and there He [[Exodus-15.fn#Footnote 25.2 — tested|tested]] them.
 
 ## v26
 
-And He said, If you will listen carefully to the voice of Jehovah your God and do what is right in His eyes and give ear to His commandments and keep all His statutes, I will put none of the diseases on you which I have put on the Egyptians; for I am Jehovah who heals you.
+And He said, If you will listen carefully to the voice of Jehovah your God and do what is right in His eyes and give ear to His commandments and keep all His statutes, I will put none of the diseases on you which I have put on the Egyptians; for I am [[Exodus-15.fn#Footnote 26.1 — Jehovah|Jehovah]] who heals you.
 
 ## v27
 
-And they came to Elim, where there were twelve springs of water and seventy palm trees; and they encamped there by the waters.
+And they came to [[Exodus-15.fn#Footnote 27.1 — Elim|Elim]], where there were [[Exodus-15.fn#Footnote 27.2 — twelve|twelve]] springs of water and [[Exodus-15.fn#Footnote 27.2 — twelve|seventy]] palm trees; and they encamped there by the waters.

@@ -3,7 +3,7 @@ Author: Mark
 ---
 ## v1
 
-And immediately in the morning the chief priests held a consultation with the elders and scribes and the whole Sanhedrin, and having bound Jesus, they led Him away and delivered Him to Pilate.
+And immediately in the morning the chief priests held a consultation with the elders and scribes and the whole [[Mark-15.fn#Footnote 1.1 — Sanhedrin|Sanhedrin]], and having bound Jesus, they led Him away and delivered Him to [[Mark-15.fn#Footnote 1.2 — Pilate|Pilate]].
 
 ## v2
 
@@ -19,7 +19,7 @@ And Pilate again questioned Him, saying, Do You answer nothing? See how many thi
 
 ## v5
 
-But Jesus made no further answer, so that Pilate marveled.
+But Jesus made [[Mark-15.fn#Footnote 5.1 — no|no]] further answer, so that Pilate marveled.
 
 ## v6
 
@@ -31,7 +31,7 @@ And there was one named Barabbas, bound with the insurrectionists who had commit
 
 ## v8
 
-And the crowd came up and began to ask him to do even as he had been accustomed to do for them.
+And the crowd [[Mark-15.fn#Footnote 8.1 — came|came]] up and began to ask him to do even as he had been accustomed to do for them.
 
 ## v9
 
@@ -51,7 +51,7 @@ And Pilate again answered and said to them, What then do you want me to do with 
 
 ## v13
 
-And again they cried out, Crucify Him!
+And again they cried out, [[Mark-15.fn#Footnote 13.1 — Crucify|Crucify]] Him!
 
 ## v14
 
@@ -59,19 +59,19 @@ But Pilate said to them, Why, what evil has He done? But they cried out the more
 
 ## v15
 
-And Pilate, wishing to satisfy the crowd, released to them Barabbas and scourged Jesus and delivered Him up to be crucified.
+And Pilate, wishing to satisfy the crowd, released to them Barabbas and [[Mark-15.fn#Footnote 15.1 — scourged|scourged]] Jesus and delivered Him up to be [[Mark-15.fn#Footnote 15.2 — crucified|crucified]].
 
 ## v16
 
-And the soldiers led Him away within the courtyard, that is, the praetorium, and called together the whole cohort.
+[[Mark-15.fn#Footnote 16.1 — And|And]] the soldiers led Him away within the courtyard, that is, the [[Mark-15.fn#Footnote 16.2 — praetorium|praetorium]], and called together the whole cohort.
 
 ## v17
 
-And they clothed Him in purple and wove a thorny crown and put it around His head.
+And they clothed Him in [[Mark-15.fn#Footnote 17.1 — purple|purple]] and wove a thorny crown and put it [[Mark-15.fn#Footnote 17.2 — around|around]] His head.
 
 ## v18
 
-And they began to salute Him: Rejoice, King of the Jews!
+And they began to salute Him: [[Mark-15.fn#Footnote 18.1 — Rejoice|Rejoice]], King of the Jews!
 
 ## v19
 
@@ -83,7 +83,7 @@ And when they had mocked Him, they stripped Him of the purple and put His garmen
 
 ## v21
 
-And they compelled a certain passerby coming from the country, Simon a Cyrenian, the father of Alexander and Rufus, to take up His cross.
+[[Mark-15.fn#Footnote 21.1 — And|And]] they compelled a certain passerby coming from the country, Simon a Cyrenian, the father of Alexander and Rufus, to take up His cross.
 
 ## v22
 
@@ -91,7 +91,7 @@ And they brought Him to the place Golgotha, which is interpreted, the Place of a
 
 ## v23
 
-And they tried to give Him wine mixed with myrrh, but He did not take it.
+And they [[Mark-15.fn#Footnote 23.1 — tried|tried]] to give Him wine mixed with myrrh, but He did not take it.
 
 ## v24
 
@@ -99,7 +99,7 @@ And they crucified Him and divided His garments, casting lots for them to see wh
 
 ## v25
 
-Now it was the third hour and they crucified Him.
+Now it was the [[Mark-15.fn#Footnote 25.1 — third|third]] hour and they crucified Him.
 
 ## v26
 
@@ -111,15 +111,15 @@ And with Him they crucified two robbers, one on His right and one on His left.
 
 ## v28
 
-And the Scripture was fulfilled which says, “And He was counted with the lawless.”
+[[Mark-15.fn#Footnote 28.1 — And|And]] the Scripture was fulfilled which says, “And He was counted with the lawless.”
 
 ## v29
 
-And those who were passing by blasphemed Him, wagging their heads and saying, Aha! You who destroy the temple and build it in three days,
+And those who were passing by blasphemed Him, wagging their heads and saying, Aha! [[Mark-15.fn#Footnote 29.1 — You|You]] who destroy the temple and build it in three days,
 
 ## v30
 
-Save Yourself and come down from the cross!
+[[Mark-15.fn#Footnote 30.1 — Save|Save]] Yourself and come down from the cross!
 
 ## v31
 
@@ -131,11 +131,11 @@ Let the Christ, the King of Israel, come down now from the cross that we may see
 
 ## v33
 
-And when the sixth hour came, darkness fell over the whole land until the ninth hour.
+And when the [[Mark-15.fn#Footnote 33.1 — sixth|sixth]] hour came, darkness fell over the whole land until the [[Mark-15.fn#Footnote 33.2 — ninth|ninth]] hour.
 
 ## v34
 
-And at the ninth hour Jesus cried with a loud voice, Eloi, Eloi, lama sabachthani? which is interpreted, My God, My God, why have You forsaken Me?
+And at the ninth hour Jesus cried with a loud voice, [[Mark-15.fn#Footnote 34.1 — Eloi|Eloi]], Eloi, lama sabachthani? which is interpreted, My God, My God, why have You forsaken Me?
 
 ## v35
 
@@ -159,7 +159,7 @@ And the centurion standing by opposite Him, seeing that He expired in this way, 
 
 ## v40
 
-And there were also some women looking on from a distance, among whom were Mary the Magdalene, and Mary the mother of the younger James and of Joses, and Salome,
+And there were also some women looking on from a distance, among whom were Mary the Magdalene, and [[Mark-15.fn#Footnote 40.1 — Mary|Mary]] the mother of the [[Mark-15.fn#Footnote 40.2 — younger|younger]] James and of Joses, and [[Mark-15.fn#Footnote 40.3 — Salome|Salome]],
 
 ## v41
 
@@ -167,11 +167,11 @@ Who, when He was in Galilee, followed Him and ministered to Him, as well as many
 
 ## v42
 
-And when evening had fallen, since it was the day of preparation, that is, the day before the Sabbath,
+And when [[Mark-15.fn#Footnote 42.1 — evening|evening]] had fallen, since it was the day of preparation, that is, the day before the Sabbath,
 
 ## v43
 
-Joseph, the honorable member of the Council, from Arimathea, who was also himself awaiting the kingdom of God, came; and gathering courage, he went in to Pilate and asked for the body of Jesus.
+Joseph, [[Mark-15.fn#Footnote 43.1 — the|the]] honorable member of the Council, from Arimathea, who was also himself awaiting the kingdom of God, came; and gathering courage, he went in to Pilate and asked for the body of Jesus.
 
 ## v44
 
@@ -183,7 +183,7 @@ And when he found out from the centurion, he granted the corpse to Joseph.
 
 ## v46
 
-And Joseph purchased a piece of fine linen, took Him down, and wrapped Him in the fine linen. And he laid Him in a tomb which was hewn out of rock and rolled a stone against the door of the tomb.
+And Joseph purchased a piece of fine linen, took Him down, and wrapped Him in the fine linen. And he [[Mark-15.fn#Footnote 46.1 — laid|laid]] Him in a tomb which was hewn out of rock and rolled a stone against the door of the tomb.
 
 ## v47
 

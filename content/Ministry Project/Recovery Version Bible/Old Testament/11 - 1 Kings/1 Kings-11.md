@@ -1,6 +1,6 @@
 ## v1
 
-But King Solomon loved many foreign women in addition to Pharaoh’s daughter — Moabite, Ammonite, Edomite, Sidonian, and Hittite women,
+But King Solomon [[1 Kings-11.fn#Footnote 1.1 — loved|loved]] many foreign women in addition to Pharaoh’s daughter — Moabite, Ammonite, Edomite, Sidonian, and Hittite women,
 
 ## v2
 
@@ -24,7 +24,7 @@ And Solomon did what was evil in the sight of Jehovah and did not fully follow J
 
 ## v7
 
-Then Solomon built a high place to Chemosh the detestable thing of Moab in the mountain that is before Jerusalem and to Molech the detestable thing of the children of Ammon.
+Then Solomon built a [[1 Kings-11.fn#Footnote 7.1 — high|high]] place to Chemosh the detestable thing of Moab in the mountain that is before Jerusalem and to Molech the detestable thing of the children of Ammon.
 
 ## v8
 
@@ -32,7 +32,7 @@ And so he did for all his foreign wives, who burned incense and offered sacrific
 
 ## v9
 
-So Jehovah became angry with Solomon because his heart turned away from Jehovah the God of Israel, who had appeared to him twice,
+[[1 Kings-11.fn#Footnote 9.1 — So|So]] Jehovah became angry with Solomon because his heart turned away from Jehovah the God of Israel, who had appeared to him twice,
 
 ## v10
 
@@ -48,7 +48,7 @@ However I will not do it in your days, because of David your father; I will tear
 
 ## v13
 
-But I will not tear the whole kingdom away from you; I will give one tribe to your son because of David My servant and because of Jerusalem, which I have chosen.
+But I will not tear the whole kingdom away from you; I will give [[1 Kings-11.fn#Footnote 13.1 — one|one]] tribe to your son because of David My servant and because of Jerusalem, which I have chosen.
 
 ## v14
 
@@ -104,7 +104,7 @@ And Jeroboam the son of Nebat, an Ephraimite of Zeredah, a servant of Solomon, w
 
 ## v27
 
-And this was the reason he lifted up his hand against the king: Solomon was building the Millo, closing up the breach of the city of David his father.
+And this was the reason he lifted up his hand against the king: Solomon was building the [[1 Kings-11.fn#Footnote 27.1 — Millo|Millo]], closing up the breach of the city of David his father.
 
 ## v28
 
@@ -112,7 +112,7 @@ And the man Jeroboam was an able man; and Solomon saw that the young man was ind
 
 ## v29
 
-And at that time Jeroboam went forth from Jerusalem, and the prophet Ahijah the Shilonite found him on the way. And Ahijah was wearing a new garment, and the two of them were alone in the field.
+And at that time Jeroboam went forth from Jerusalem, and the prophet Aphiah the Shilonite found him on the way. And [[1 Kings-11.fn#Footnote 29.1 — Ahijah|Ahijah]] was wearing a new garment, and the two of them were alone in the field.
 
 ## v30
 
@@ -168,4 +168,4 @@ And the time that Solomon reigned in Jerusalem over all Israel was forty years.
 
 ## v43
 
-And Solomon slept with his fathers and was buried in the city of David his father. And Rehoboam his son reigned in his place.
+And Solomon [[1 Kings-11.fn#Footnote 43.1 — slept|slept]] with his fathers and was buried in the city of David his father. And Rehoboam his son reigned in his place.

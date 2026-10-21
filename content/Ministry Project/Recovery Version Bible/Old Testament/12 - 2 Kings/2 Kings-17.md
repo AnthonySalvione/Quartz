@@ -20,7 +20,7 @@ And the king of Assyria invaded the whole land, and he went up against Samaria a
 
 ## v6
 
-In the ninth year of Hoshea, the king of Assyria took Samaria and carried Israel away into Assyria; and he placed them in Halah and by the Habor, the river of Gozan, and in the cities of the Medes.
+In the ninth year of Hoshea, the king of Assyria [[2 Kings-17.fn#Footnote 6.1 — took|took]] Samaria and carried Israel away into Assyria; and he placed them in Halah and by the Habor, the river of Gozan, and in the cities of the Medes.
 
 ## v7
 
@@ -48,7 +48,7 @@ And they served idols, concerning which Jehovah had said to them, You shall not 
 
 ## v13
 
-And Jehovah testified against Israel and against Judah through all the prophets and all the seers, saying, Turn from your evil ways; and keep My commandments and My statutes, according to all the law which I commanded your fathers and which I sent to you through My servants the prophets.
+And Jehovah testified against Israel and against Judah through all the [[2 Kings-17.fn#Footnote 13.1 — prophets|prophets]] and all the seers, saying, Turn from your evil ways; and keep My commandments and My statutes, according to all the law which I commanded your fathers and which I sent to you through My servants the prophets.
 
 ## v14
 
@@ -80,7 +80,7 @@ And Jehovah rejected all the seed of Israel; and He afflicted them and delivered
 
 ## v21
 
-For He tore Israel from the house of David. Now they had made Jeroboam the son of Nebat king, and Jeroboam drove Israel away from following Jehovah and made them commit a great sin.
+For He tore Israel from the house of David. Now they had made Jeroboam the son of Nebat king, and Jeroboam drove Israel away from following Jehovah and made them commit a great [[2 Kings-17.fn#Footnote 21.1 — sin|sin]].
 
 ## v22
 
@@ -92,7 +92,7 @@ Until Jehovah removed Israel from His sight, as He had said through all His serv
 
 ## v24
 
-And the king of Assyria brought people from Babylon and from Cuthah and from Avva and from Hamath and from Sepharvaim, and made them dwell in the cities of Samaria in place of the children of Israel; and they took possession of Samaria and dwelt in its cities.
+And the king of Assyria brought people from Babylon and from Cuthah and from Avva and from Hamath and from Sepharvaim, and made them dwell in the cities of [[2 Kings-17.fn#Footnote 24.1 — Samaria|Samaria]] in place of the children of Israel; and they took possession of Samaria and dwelt in its cities.
 
 ## v25
 
@@ -104,7 +104,7 @@ And they spoke to the king of Assyria, saying, The nations that you have carried
 
 ## v27
 
-And the king of Assyria gave a command, saying, Take there one of the priests whom you have carried away from there; and let him go and dwell there, and let him teach them the custom of the God of the land.
+And the king of Assyria gave a command, saying, Take there one of the priests whom you have carried away from there; and let [[2 Kings-17.fn#Footnote 27.1 — him|him]] go and dwell there, and let him teach them the custom of the God of the land.
 
 ## v28
 

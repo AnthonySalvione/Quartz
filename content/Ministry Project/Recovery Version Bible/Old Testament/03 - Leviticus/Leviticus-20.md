@@ -24,7 +24,7 @@ And the person who turns to mediums and to spiritists to prostitute himself afte
 
 ## v7
 
-Sanctify yourselves therefore, and be holy; for I am Jehovah your God.
+Sanctify yourselves therefore, and be [[Leviticus-20.fn#Footnote 7.1 — holy|holy]]; for I am Jehovah your God.
 
 ## v8
 
@@ -84,7 +84,7 @@ If there is a man who takes his brother’s wife, it is impurity. He has uncover
 
 ## v22
 
-You shall therefore keep all My statutes and all My ordinances, and do them, so that the land into which I am bringing you to dwell in does not vomit you out.
+You shall therefore keep all My statutes and all My ordinances, and do them, so that the land into which I am bringing you to dwell in does not [[Leviticus-20.fn#Footnote 22.1 — vomit|vomit]] you out.
 
 ## v23
 
@@ -92,11 +92,11 @@ And you shall not walk in the customs of the nation, which I am about to send aw
 
 ## v24
 
-But I have said to you, You shall inherit their land, and I will give it to you to possess it, a land flowing with milk and honey. I am Jehovah your God, who has separated you from the peoples.
+But I have said to you, You shall inherit their land, and I will give it to you to possess it, a [[Leviticus-20.fn#Footnote 24.1 — land|land]] flowing with milk and honey. I am Jehovah your God, who has separated you from the peoples.
 
 ## v25
 
-You shall therefore make a distinction between the clean beast and the unclean, and between the unclean bird and the clean, and you shall not make your souls abominable by any beast or by any bird or by anything that creeps on the ground, which I have separated for you as unclean.
+You shall therefore make a distinction between the [[Leviticus-20.fn#Footnote 25.1 — clean|clean]] beast and the [[Leviticus-20.fn#Footnote 25.1 — clean|unclean]], and between the unclean bird and the clean, and you shall not make your souls abominable by any beast or by any bird or by anything that creeps on the ground, which I have separated for you as unclean.
 
 ## v26
 

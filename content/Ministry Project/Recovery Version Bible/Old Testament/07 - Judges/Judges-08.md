@@ -60,7 +60,7 @@ Then he came to the men of Succoth and said, Here are Zebah and Zalmunna, concer
 
 ## v16
 
-And he took the elders of the city and the thorns of the wilderness and the briers, and with them he trampled the men of Succoth.
+And he took the elders of the city and the thorns of the wilderness and the briers, and with them he [[Judges-08.fn#Footnote 16.1 — trampled|trampled]] the men of Succoth.
 
 ## v17
 
@@ -92,7 +92,7 @@ But Gideon said to them, I will not rule over you, nor will my son rule over you
 
 ## v24
 
-And Gideon said to them, Let me make a request of you, that each of you give me an earring from his spoil. (The Midianites had golden earrings, for they were Ishmaelites.)
+And Gideon said to them, Let me make a request of you, that each of you give me an earring from his spoil. ([[Judges-08.fn#Footnote 24.1 — The|The]] Midianites had golden earrings, for they were Ishmaelites.)
 
 ## v25
 
@@ -128,7 +128,7 @@ And Gideon the son of Joash died at a good old age, and he was buried in the tom
 
 ## v33
 
-And as soon as Gideon died, the children of Israel turned again and went as harlots after the Baals. And they made Baal-berith their god.
+And as soon as Gideon died, the children of Israel turned again and went as [[Judges-08.fn#Footnote 33.1 — harlots|harlots]] after the Baals. And they made Baal-berith their god.
 
 ## v34
 

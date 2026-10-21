@@ -8,7 +8,7 @@ And Abram was very rich in livestock, in silver and in gold.
 
 ## v3
 
-And he continued on his journey from the Negev as far as Bethel, to the place where his tent had been at the beginning, between Bethel and Ai,
+And he continued on his journey from the Negev as far as [[Genesis-13.fn#Footnote 3.1 — Bethel|Bethel]], to the place where his tent had been at the beginning, between Bethel and Ai,
 
 ## v4
 
@@ -24,7 +24,7 @@ And the land could not support them that they might dwell together, for their po
 
 ## v7
 
-And there was strife between the herdsmen of Abram’s livestock and the herdsmen of Lot’s livestock. And at that time the Canaanites and the Perizzites dwelt in the land.
+And there was [[Genesis-13.fn#Footnote 7.1 — strife|strife]] between the herdsmen of Abram’s livestock and the herdsmen of Lot’s livestock. And at that time the Canaanites and the Perizzites dwelt in the land.
 
 ## v8
 
@@ -52,7 +52,7 @@ Now the men of Sodom were very wicked and sinful toward Jehovah.
 
 ## v14
 
-And Jehovah said to Abram after Lot had separated from him, Now lift up your eyes, and look from the place where you are, northward and southward and eastward and westward;
+And [[Genesis-13.fn#Footnote 14.1 — Jehovah|Jehovah]] said to Abram after Lot had separated from him, Now lift up your eyes, and look from the place where you are, northward and southward and eastward and westward;
 
 ## v15
 
@@ -60,7 +60,7 @@ For all the land that you see I will give to you and to your seed forever.
 
 ## v16
 
-And I will make your seed as the dust of the earth, so that if a man can number the dust of the earth, then your seed can also be numbered.
+And I will make your seed as the [[Genesis-13.fn#Footnote 16.1 — dust|dust]] of the earth, so that if a man can number the dust of the earth, then your seed can also be numbered.
 
 ## v17
 
@@ -68,4 +68,4 @@ Rise up; walk through the land according to its length and its breadth, for I wi
 
 ## v18
 
-And Abram moved his tent and came and dwelt by the oaks of Mamre, which are in Hebron, and there he built an altar to Jehovah.
+And Abram moved his [[Genesis-13.fn#Footnote 18.1 — tent|tent]] and came and dwelt by the oaks of [[Genesis-13.fn#Footnote 18.2 — Mamre|Mamre]], which are in [[Genesis-13.fn#Footnote 18.3 — Hebron|Hebron]], and there he built an altar to Jehovah.

@@ -17,7 +17,7 @@ Then the king said to Amasa, Call the men of Judah to me in three days, and you 
 
 ## v5
 
-And Amasa went to call Judah, but he delayed beyond the time that David appointed to him.
+And Amasa went to call Judah, but he delayed beyond the time that [[2 Samuel-20.fn#Footnote 5.1 — David|David]] appointed to him.
 
 ## v6
 
@@ -37,7 +37,7 @@ And Joab said to Amasa, Is it well with you, my brother? And Joab took hold of A
 
 ## v10
 
-But Amasa did not notice the sword which was in Joab’s hand. And Joab struck him in the stomach with it and poured out his bowels onto the ground, and he did not strike him a second time; and he died. And Joab and Abishai his brother pursued after Sheba the son of Bichri.
+But Amasa did not notice the sword which was in [[2 Samuel-20.fn#Footnote 10.1 — Joab’s|Joab’s]] hand. And Joab struck him in the stomach with it and poured out his bowels onto the ground, and he did not strike him a second time; and he died. And Joab and Abishai his brother pursued after Sheba the son of Bichri.
 
 ## v11
 
@@ -53,7 +53,7 @@ As soon as he was removed from the road, all the men went on after Joab to pursu
 
 ## v14
 
-And Sheba went on throughout all the tribes of Israel to Abel and to Beth-maacah and unto all the Berites; and they gathered together and also went after him.
+And [[2 Samuel-20.fn#Footnote 14.1 — Sheba|Sheba]] went on throughout all the tribes of Israel to Abel and to Beth-maacah and unto all the Berites; and they gathered together and also went after him.
 
 ## v15
 
@@ -101,4 +101,4 @@ And Sheva was scribe, and Zadok and Abiathar were priests,
 
 ## v26
 
-And Ira the Jairite was also a chief minister to David.
+And Ira the Jairite was also a [[2 Samuel-20.fn#Footnote 26.1 — chief|chief]] minister to David.

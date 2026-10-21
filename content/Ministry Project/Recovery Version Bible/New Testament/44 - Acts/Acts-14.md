@@ -3,15 +3,15 @@ Author: Luke
 ---
 ## v1
 
-And in Iconium they entered together into the synagogue of the Jews and spoke in such a way that a great multitude of both Jews and Greeks believed.
+And in Iconium they entered together [[Acts-14.fn#Footnote 1.1 — into|into]] the [[Acts-14.fn#Footnote 1.2 — synagogue|synagogue]] of the Jews and spoke in such a way that a great multitude of both Jews and Greeks believed.
 
 ## v2
 
-But the Jews who were disobedient stirred up and ill-affected the minds of the Gentiles against the brothers.
+But the Jews who were disobedient stirred up and ill-affected the [[Acts-14.fn#Footnote 2.1 — minds|minds]] of the Gentiles against the brothers.
 
 ## v3
 
-Therefore they spent a considerable amount of time speaking with boldness in the Lord, who testified to the word of His grace by granting signs and wonders to be done through their hands.
+Therefore they spent a considerable amount of time speaking with boldness in the Lord, who testified to the word of His [[Acts-14.fn#Footnote 3.1 — grace|grace]] by granting [[Acts-14.fn#Footnote 3.2 — signs|signs]] and wonders to be done through their hands.
 
 ## v4
 
@@ -35,7 +35,7 @@ And in Lystra a certain man was sitting, without strength in his feet, lame from
 
 ## v9
 
-This man heard Paul speaking, who, looking intently at him and seeing that he had faith to be healed,
+This man heard Paul speaking, who, looking intently at him and seeing that he had faith to be [[Acts-14.fn#Footnote 9.1 — healed|healed]],
 
 ## v10
 
@@ -47,7 +47,7 @@ And when the crowds saw what Paul had done, they lifted up their voice, saying i
 
 ## v12
 
-And they called Barnabas, Zeus, and Paul, Hermes, since he was the one who took the lead in the discourse.
+And they called Barnabas, [[Acts-14.fn#Footnote 12.1 — Zeus|Zeus]], and Paul, [[Acts-14.fn#Footnote 12.2 — Hermes|Hermes]], since he was the one who took the lead in the discourse.
 
 ## v13
 
@@ -59,7 +59,7 @@ But when the apostles, Barnabas and Paul, heard this, they tore their garments a
 
 ## v15
 
-And saying, Men, why are you doing these things? We also are men of like feeling as you, and announce the gospel to you that you should turn from these vain things to the living God, who made heaven and earth and the sea and all things in them;
+And saying, [[Acts-14.fn#Footnote 15.1 — Men|Men]], why are you doing these things? We also are men of like feeling as you, and announce the gospel to you that you should turn from these [[Acts-14.fn#Footnote 15.2 — vain|vain]] things to the living God, who made heaven and earth and the sea and all things in them;
 
 ## v16
 
@@ -87,11 +87,11 @@ And when they had announced the gospel to that city and had made a considerable 
 
 ## v22
 
-Establishing the souls of the disciples, exhorting them to continue in the faith and saying that through many tribulations we must enter into the kingdom of God.
+Establishing the [[Acts-14.fn#Footnote 22.1 — souls|souls]] of the disciples, exhorting them to [[Acts-14.fn#Footnote 22.2 — continue|continue]] in the [[Acts-14.fn#Footnote 22.3 — faith|faith]] and saying that through many tribulations we must enter into the [[Acts-14.fn#Footnote 22.4 — kingdom|kingdom]] of God.
 
 ## v23
 
-And when they had appointed elders for them in every church and had prayed with fastings, they committed them to the Lord into whom they had believed.
+And when they had appointed [[Acts-14.fn#Footnote 23.1 — elders|elders]] for them [[Acts-14.fn#Footnote 23.2 — in|in]] every church and had prayed with fastings, they committed them to the Lord into whom they had believed.
 
 ## v24
 
@@ -99,15 +99,15 @@ And they passed through Pisidia and came to Pamphylia.
 
 ## v25
 
-And when they had spoken the word in Perga, they came down to Attalia.
+And when they had spoken the [[Acts-14.fn#Footnote 25.1 — word|word]] in Perga, they came down to Attalia.
 
 ## v26
 
-And from there they sailed away to Antioch, where they had been commended to the grace of God for the work which they fulfilled.
+And from there they sailed away to Antioch, where they had been commended to the [[Acts-14.fn#Footnote 26.1 — grace|grace]] of God for the work which they fulfilled.
 
 ## v27
 
-And when they arrived and gathered the church together, they declared the things that God had done with them and that He had opened a door of faith to the Gentiles.
+And when they [[Acts-14.fn#Footnote 27.1 — arrived|arrived]] and [[Acts-14.fn#Footnote 27.2 — gathered|gathered]] the church together, they declared the things that God had done with them and that He had opened a door of faith to the Gentiles.
 
 ## v28
 

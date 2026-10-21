@@ -3,7 +3,7 @@ Author: John
 ---
 ## v1
 
-When Jesus had said these things, He went forth with His disciples across the brook Kedron, where there was a garden, into which He entered as well as His disciples.
+When Jesus had said these things, He [[John-18.fn#Footnote 1.1 — went|went]] forth with His disciples across the brook Kedron, where there was a garden, into which He entered as well as His disciples.
 
 ## v2
 
@@ -15,11 +15,11 @@ Then Judas, having gotten the cohort and some attendants from the chief priests 
 
 ## v4
 
-Jesus therefore, knowing all the things that were coming upon Him, went forth and said to them, Whom do you seek?
+Jesus therefore, knowing all the things that were coming upon Him, [[John-18.fn#Footnote 4.1 — went|went]] forth and said to them, Whom do you seek?
 
 ## v5
 
-They answered Him, Jesus the Nazarene. He said to them, I am. And Judas also, who was betraying Him, was standing with them.
+They answered Him, Jesus the Nazarene. He said to them, [[John-18.fn#Footnote 5.1 — I|I]] am. And Judas also, who was betraying Him, was standing with them.
 
 ## v6
 
@@ -31,7 +31,7 @@ Then again He asked them, Whom do you seek? And they said, Jesus the Nazarene.
 
 ## v8
 
-Jesus answered, I told you that I am; if therefore you seek Me, let these go away,
+Jesus answered, I told you that I am; if therefore you seek Me, let [[John-18.fn#Footnote 8.1 — these|these]] go away,
 
 ## v9
 
@@ -43,7 +43,7 @@ Then Simon Peter, having a sword, drew it and struck the slave of the high pries
 
 ## v11
 
-Jesus therefore said to Peter, Put the sword into its sheath. The cup which the Father has given Me, shall I not drink it?
+Jesus therefore said to Peter, Put the sword into its sheath. The [[John-18.fn#Footnote 11.1 — cup|cup]] which the Father has given Me, shall I not drink it?
 
 ## v12
 
@@ -51,7 +51,7 @@ Then the cohort and the commander and the attendants of the Jews seized Jesus an
 
 ## v13
 
-And led Him away to Annas first; for he was the father-in-law of Caiaphas, who was high priest that year.
+And [[John-18.fn#Footnote 13.1 — led|led]] Him away to Annas first; for he was the father-in-law of Caiaphas, who was high priest that year.
 
 ## v14
 
@@ -83,7 +83,7 @@ Jesus answered him, I have spoken openly to the world; I always taught in the sy
 
 ## v21
 
-Why do you question Me? Question those who have heard Me, concerning what I spoke to them; behold, these know what I said.
+[[John-18.fn#Footnote 21.1 — Why|Why]] do you question Me? Question those who have heard Me, concerning what I spoke to them; behold, these know what I said.
 
 ## v22
 
@@ -111,7 +111,7 @@ Then Peter denied again, and immediately a rooster crowed.
 
 ## v28
 
-Then they led Jesus from Caiaphas to the praetorium, and it was early morning. And they themselves did not enter into the praetorium, so that they would not be defiled, but might eat the passover.
+Then they led Jesus from Caiaphas to the [[John-18.fn#Footnote 28.1 — praetorium|praetorium]], and it was [[John-18.fn#Footnote 28.2 — early|early]] morning. And they themselves did not enter into the praetorium, so that they would not be defiled, but might eat the passover.
 
 ## v29
 
@@ -127,7 +127,7 @@ Pilate said then to them, You take Him and judge Him according to your law. The 
 
 ## v32
 
-That the word of Jesus might be fulfilled which He spoke, signifying by what kind of death He was to die.
+That the word of Jesus might be fulfilled which He spoke, signifying by what [[John-18.fn#Footnote 32.1 — kind|kind]] of death He was to die.
 
 ## v33
 
@@ -135,7 +135,7 @@ Pilate therefore entered again into the praetorium and called for Jesus. And he 
 
 ## v34
 
-Jesus answered, Are you saying this of yourself, or did others tell you about Me?
+Jesus answered, [[John-18.fn#Footnote 34.1 — Are|Are]] you saying this of yourself, or did others tell you about Me?
 
 ## v35
 
@@ -143,11 +143,11 @@ Pilate answered, Am I a Jew? Your nation and its chief priests have delivered Yo
 
 ## v36
 
-Jesus answered, My kingdom is not of this world. If My kingdom were of this world, My attendants would be struggling so that I would not be delivered to the Jews; but as it is, My kingdom is not from here.
+Jesus answered, My kingdom is not [[John-18.fn#Footnote 36.1 — of|of]] this world. If My kingdom were [[John-18.fn#Footnote 36.1 — of|of]] this world, My attendants would be struggling so that I would not be delivered to the Jews; but as it is, My kingdom is not from [[John-18.fn#Footnote 36.2 — here|here]].
 
 ## v37
 
-Pilate said therefore to Him, So then You are a king? Jesus answered, You say that I am a king. For this I have been born, and for this I have come into the world, that I would testify to the truth. Everyone who is of the truth hears My voice.
+Pilate said therefore to Him, So then You are a king? Jesus answered, You say that I am a king. For this I have been born, and for this I have come into the world, that I would testify to the [[John-18.fn#Footnote 37.1 — truth|truth]]. Everyone who is of the [[John-18.fn#Footnote 37.1 — truth|truth]] hears My voice.
 
 ## v38
 

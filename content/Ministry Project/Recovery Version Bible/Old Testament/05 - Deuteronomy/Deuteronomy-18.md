@@ -1,14 +1,14 @@
 ## v1
 
-The Levitical priests and the whole tribe of Levi shall have no portion or inheritance with Israel; they shall eat Jehovah’s offerings by fire and His inheritance.
+The [[Deuteronomy-18.fn#Footnote 1.1 — Levitical|Levitical]] priests and the whole [[Deuteronomy-18.fn#Footnote 1.1 — Levitical|tribe]] of Levi shall have no portion or inheritance with Israel; they shall eat Jehovah’s offerings by fire and His [[Deuteronomy-18.fn#Footnote 1.2 — inheritance|inheritance]].
 
 ## v2
 
-Thus they shall have no inheritance in the midst of their brothers; Jehovah is their inheritance, as He has promised them.
+Thus they shall have no inheritance in the midst of their brothers; [[Deuteronomy-18.fn#Footnote 2.1 — Jehovah|Jehovah]] is their inheritance, as He has promised them.
 
 ## v3
 
-And this shall be the priests’ rightful due from the people, from those who offer a sacrifice, whether an ox or a sheep: They shall give the priest the shoulder, the two cheeks, and the stomach.
+And this shall be the [[Deuteronomy-18.fn#Footnote 3.1 — priests’|priests’]] rightful due from the people, from those who offer a sacrifice, whether an ox or a sheep: They shall give the priest the shoulder, the two cheeks, and the stomach.
 
 ## v4
 
@@ -20,7 +20,7 @@ For Jehovah your God has chosen him and his sons out of all your tribes to stand
 
 ## v6
 
-And if a Levite comes from any of your gates out of all Israel, where he sojourns, and comes according to all his soul’s desire to the place which Jehovah will choose,
+And if a [[Deuteronomy-18.fn#Footnote 6.1 — Levite|Levite]] comes from any of your gates out of all Israel, where he sojourns, and comes according to all his soul’s desire to the place which Jehovah will choose,
 
 ## v7
 
@@ -28,7 +28,7 @@ He shall minister in the name of Jehovah his God, like all his brothers, the Lev
 
 ## v8
 
-They shall eat equal portions, besides the proceeds from the sale of his father’s estate.
+They shall eat equal portions, besides the [[Deuteronomy-18.fn#Footnote 8.1 — proceeds|proceeds]] from the sale of his father’s estate.
 
 ## v9
 
@@ -56,7 +56,7 @@ For these nations whom you are dispossessing listen to those who practice sooths
 
 ## v15
 
-A Prophet will Jehovah your God raise up for you from your midst, from among your brothers, like me; you shall listen to Him.
+A [[Deuteronomy-18.fn#Footnote 15.1 — Prophet|Prophet]] will Jehovah your God raise up for you from your midst, from among your brothers, like me; you shall listen to Him.
 
 ## v16
 
@@ -68,7 +68,7 @@ And Jehovah said to me, They have done well in what they have spoken.
 
 ## v18
 
-A Prophet will I raise up for them from the midst of their brothers like you; and I will put My words in His mouth, and He will speak to them all that I command Him.
+A Prophet will I [[Deuteronomy-18.fn#Footnote 18.1 — raise|raise]] up for them from the midst of their brothers like you; and I will put My words in His mouth, and He will speak to them all that I command Him.
 
 ## v19
 

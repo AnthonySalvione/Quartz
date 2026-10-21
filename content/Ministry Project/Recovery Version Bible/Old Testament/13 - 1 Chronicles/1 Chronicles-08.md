@@ -120,7 +120,7 @@ And his firstborn son was Abdon, then Zur and Kish and Baal and Nadab
 
 ## v31
 
-And Gedor and Ahio and Zecher and Mikloth.
+And Gedor and Ahio an Zecher [[1 Chronicles-08.fn#Footnote 31.1 — and|and]] Mikloth.
 
 ## v32
 

@@ -8,7 +8,7 @@ And Jehovah appeared to him and said, Do not go down to Egypt; dwell in the land
 
 ## v3
 
-Sojourn in this land, and I will be with you and will bless you; for to you and to your seed I will give all these lands, and I will establish the oath which I swore to Abraham your father.
+Sojourn in this land, and I will be with you and will [[Genesis-26.fn#Footnote 3.1 — bless|bless]] you; for to you and to your seed I will give all these lands, and I will establish the oath which I swore to Abraham your father.
 
 ## v4
 
@@ -24,7 +24,7 @@ So Isaac dwelt in Gerar.
 
 ## v7
 
-And the men of the place asked about his wife. And he said, She is my sister, for he was afraid to say, My wife, thinking, The men of this place might slay me on account of Rebekah, because she is beautiful in appearance.
+And the men of the place asked about his wife. And he said, [[Genesis-26.fn#Footnote 7.1 — She|She]] is my sister, for he was afraid to say, My wife, thinking, The men of this place might slay me on account of Rebekah, because she is beautiful in appearance.
 
 ## v8
 
@@ -48,11 +48,11 @@ And Isaac sowed in that land and gained in the same year a hundredfold. And Jeho
 
 ## v13
 
-And the man became rich and continued to grow richer until he became very rich.
+And the man became [[Genesis-26.fn#Footnote 13.1 — rich|rich]] and continued to grow [[Genesis-26.fn#Footnote 13.1 — rich|richer]] until he became very [[Genesis-26.fn#Footnote 13.1 — rich|rich]].
 
 ## v14
 
-And he had possessions of flocks and possessions of herds and a great household, so that the Philistines envied him.
+And he had possessions of flocks and possessions of herds and a great [[Genesis-26.fn#Footnote 14.1 — household|household]], so that the Philistines envied him.
 
 ## v15
 
@@ -72,19 +72,19 @@ And Isaac dug again the wells of water which had been dug in the days of Abraham
 
 ## v19
 
-And Isaac’s servants dug in the valley and found there a well of springing water.
+And Isaac’s servants dug in the valley and found there a well of [[Genesis-26.fn#Footnote 19.1 — springing|springing]] water.
 
 ## v20
 
-And the shepherds of Gerar strove with Isaac’s shepherds, saying, The water is ours. So he called the name of the well Esek, because they contended with him.
+And the shepherds of Gerar strove with Isaac’s shepherds, saying, The water is ours. So he called the name of the well [[Genesis-26.fn#Footnote 20.1 — Esek|Esek]], because they contended with him.
 
 ## v21
 
-And they dug another well; and they strove over that also, so he called the name of it Sitnah.
+And they dug another well; and they strove over that also, so he called the name of it [[Genesis-26.fn#Footnote 21.1 — Sitnah|Sitnah]].
 
 ## v22
 
-And he moved away from there and dug another well, but they did not strive over it, so he called the name of it Rehoboth; and he said, Now Jehovah has made room for us, and we will be fruitful in the land.
+And he moved away from there and dug another well, but they did not strive over it, so he called the name of it [[Genesis-26.fn#Footnote 22.1 — Rehoboth|Rehoboth]]; and he said, Now Jehovah has made room for us, and we will be fruitful in the land.
 
 ## v23
 
@@ -92,7 +92,7 @@ And he went up from there to Beer-sheba.
 
 ## v24
 
-And Jehovah appeared to him the same night and said, I am the God of Abraham your father. Do not be afraid, for I am with you, and I will bless you and multiply your seed for My servant Abraham’s sake.
+And Jehovah [[Genesis-26.fn#Footnote 24.1 — appeared|appeared]] to him the same night and said, I am the God of Abraham your father. Do not be afraid, for I am with you, and I will bless you and multiply your seed for My servant Abraham’s sake.
 
 ## v25
 
@@ -100,7 +100,7 @@ And he built an altar there and called upon the name of Jehovah and pitched his 
 
 ## v26
 
-And Abimelech came to him from Gerar with Ahuzzath his adviser and Phicol the captain of his army.
+And Abimelech came to him from Gerar with Ahuzzath his [[Genesis-26.fn#Footnote 26.1 — adviser|adviser]] and Phicol the captain of his army.
 
 ## v27
 
@@ -128,7 +128,7 @@ And the same day Isaac’s servants came and told him about the well which they 
 
 ## v33
 
-And he called it Shibah. Therefore the name of the city is Beer-sheba to this day.
+And he called it [[Genesis-26.fn#Footnote 33.1 — Shibah|Shibah]]. Therefore the name of the city is [[Genesis-26.fn#Footnote 33.2 — Beer-sheba|Beer-sheba]] to this day.
 
 ## v34
 

@@ -100,7 +100,7 @@ His majestic snorting is terrible.
 
 ## v21
 
-He paws in the valley,  
+[[Job-39.fn#Footnote 21.1 — He|He]] paws in the valley,  
 And he rejoices in his strength;  
 He goes forth to meet weapons.
 

@@ -24,7 +24,7 @@ Besides the burnt offering of the new moon and its meal offering, and the contin
 
 ## v7
 
-And on the tenth day of this seventh month you shall have a holy convocation, and you shall afflict your souls; you shall not do any work.
+And on the [[Numbers-29.fn#Footnote 7.1 — tenth|tenth]] day of this seventh month you shall have a holy convocation, and you shall afflict your souls; you shall not do any work.
 
 ## v8
 
@@ -152,7 +152,7 @@ And one male goat for a sin offering; besides the continual burnt offering and i
 
 ## v39
 
-These you shall offer to Jehovah in your appointed feasts, besides your vows and your freewill offerings, for your burnt offerings and for your meal offerings and for your drink offerings and for your peace offerings.
+These you shall offer to Jehovah in your appointed [[Numbers-29.fn#Footnote 39.1 — feasts|feasts]], besides your vows and your freewill offerings, for your burnt offerings and for your meal offerings and for your drink offerings and for your peace offerings.
 
 ## v40
 

@@ -1,0 +1,42 @@
+---
+Category:
+  - Praise of the Lord
+Subcategory:
+  - His Beauty
+Lyricist:
+  - German
+Melody:
+  - Schleisische Volkslieder
+---
+# Fairest Lord Jesus
+## Stanza 1
+Fairest Lord Jesus!
+Ruler of all nature!
+O Thou of God and man the Son!
+Thee will I cherish,
+Thee will I honor,
+Thou, my soul's glory, joy, and crown!
+
+## Stanza 2
+Fair are the meadows,
+Fairer still the woodlands,
+Robed in the blooming garb of spring;
+Jesus is fairer,
+Jesus is purer,
+Who makes the woeful heart to sing!
+
+## Stanza 3
+Fair is the sunshine,
+Fairer still the moonlight,
+And all the twinkling starry host;
+Jesus shines brighter,
+Jesus shines purer,
+Than all the angels heav'n can boast!
+
+## Stanza 4
+All fairest beauty,
+Heavenly and earthly,
+Wondrously, Jesus, is found in Thee;
+None can be nearer,
+Fairer, or dearer,
+Than Thou my Savior art to me.

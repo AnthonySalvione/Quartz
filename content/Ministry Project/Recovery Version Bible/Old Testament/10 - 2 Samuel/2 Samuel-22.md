@@ -1,6 +1,6 @@
 ## v1
 
-And David spoke the words of this song to Jehovah on the day when Jehovah delivered him from the hand of all his enemies and from the hand of Saul.
+And David spoke the words of this [[2 Samuel-22.fn#Footnote 1.1 — song|song]] to Jehovah on the day when Jehovah delivered him from the hand of all his enemies and from the hand of Saul.
 
 ## v2
 
@@ -8,7 +8,7 @@ And he said: Jehovah is my crag and my fortress and my Deliverer;
 
 ## v3
 
-My God, my rock, in whom I take refuge; / My shield and the horn of my salvation, my high retreat and my refuge; / My Savior, You save me from violence.
+[[2 Samuel-22.fn#Footnote 3.1 — My|My]] God, my rock, in whom I take refuge; / My shield and the horn of my salvation, my high retreat and my refuge; / My Savior, You save me from violence.
 
 ## v4
 
@@ -56,7 +56,7 @@ Jehovah thundered from heaven, / And the Most High uttered His voice.
 
 ## v15
 
-And He sent forth arrows and scattered my enemies; / Lightning bolts, and discomfited them.
+And He sent forth arrows and scattered [[2 Samuel-22.fn#Footnote 15.1 — my|my]] enemies; / Lightning bolts, and discomfited them.
 
 ## v16
 
@@ -128,11 +128,11 @@ For who is God other than Jehovah, / And who is a rock except our God?
 
 ## v33
 
-God is my strong fortress, / And He makes my way perfect;
+God is my strong fortress, / And He [[2 Samuel-22.fn#Footnote 33.1 — makes|makes]] my way perfect;
 
 ## v34
 
-He makes my feet like hinds’ feet / And sets me on my high places;
+He makes [[2 Samuel-22.fn#Footnote 34.1 — my|my]] feet like hinds’ feet / And sets me on my high places;
 
 ## v35
 
@@ -180,7 +180,7 @@ Foreigners come cringing to me; / At the mere hearing of a report, they obey me;
 
 ## v46
 
-Foreigners are discouraged / And come quaking out of their fortresses.
+Foreigners are discouraged / And [[2 Samuel-22.fn#Footnote 46.1 — come|come]] quaking out of their fortresses.
 
 ## v47
 

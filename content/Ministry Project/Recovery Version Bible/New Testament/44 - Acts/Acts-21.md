@@ -15,7 +15,7 @@ And when we sighted Cyprus and left it on the left, we sailed to Syria and came 
 
 ## v4
 
-And when we had sought out the disciples, we remained there seven days. These told Paul through the Spirit not to set foot in Jerusalem.
+And when we had sought out the disciples, we remained there seven days. These [[Acts-21.fn#Footnote 4.1 — told|told]] Paul through the Spirit not to set foot in Jerusalem.
 
 ## v5
 
@@ -31,7 +31,7 @@ And when we finished the voyage from Tyre, we arrived at Ptolemais; and we greet
 
 ## v8
 
-And on the next day we went forth and came to Caesarea; and entering into the house of Philip the evangelist, who was one of the seven, we remained with him.
+And on the next day we went forth and came to Caesarea; and entering into the [[Acts-21.fn#Footnote 8.1 — house|house]] of Philip the evangelist, who was one of the seven, we remained with him.
 
 ## v9
 
@@ -43,11 +43,11 @@ And while we remained there many days, a certain prophet named Agabus came down 
 
 ## v11
 
-And he came to us and took Paul’s belt; and having bound his own feet and hands, he said, Thus says the Holy Spirit, In this way will the Jews in Jerusalem bind the man whose belt this is and deliver him into the hands of the Gentiles.
+And he came to us and took Paul’s belt; and having bound his own feet and hands, he said, Thus [[Acts-21.fn#Footnote 11.1 — says|says]] the Holy Spirit, In this way will the Jews in Jerusalem bind the man whose belt this is and deliver him into the hands of the Gentiles.
 
 ## v12
 
-And when we heard these things, both we and those in that place entreated him not to go up to Jerusalem.
+And when we heard these things, both [[Acts-21.fn#Footnote 12.1 — we|we]] and those in that place entreated him not to go up to Jerusalem.
 
 ## v13
 
@@ -63,15 +63,15 @@ And after these days we gathered our baggage and went up to Jerusalem.
 
 ## v16
 
-And some of the disciples from Caesarea also went with us, bringing us to a certain Mnason of Cyprus, an early disciple, with whom we were to lodge.
+And some of the disciples from Caesarea also went with us, bringing us to a certain Mnason of Cyprus, an early disciple, with whom we were to [[Acts-21.fn#Footnote 16.1 — lodge|lodge]].
 
 ## v17
 
-And when we had come to Jerusalem, the brothers welcomed us gladly.
+And when we had [[Acts-21.fn#Footnote 17.1 — come|come]] to Jerusalem, the brothers welcomed us gladly.
 
 ## v18
 
-And on the following day Paul went in with us to James, and all the elders were present.
+And on the following day Paul went in with us to [[Acts-21.fn#Footnote 18.1 — James|James]], and all the elders were present.
 
 ## v19
 
@@ -79,23 +79,23 @@ And having greeted them, he related one by one the things which God did among th
 
 ## v20
 
-And when they heard it, they glorified God and said to him, You observe, brother, how many thousands there are among the Jews who have believed; and all are zealous for the law.
+And when they heard it, they glorified God and said to him, You observe, brother, how many [[Acts-21.fn#Footnote 20.1 — thousands|thousands]] there are among the Jews who have believed; and all are [[Acts-21.fn#Footnote 20.2 — zealous|zealous]] for the law.
 
 ## v21
 
-And they have been informed concerning you that you are teaching all the Jews throughout the nations apostasy from Moses, telling them not to circumcise their children, nor to walk according to the customs.
+And they have been informed concerning you that you are teaching all the Jews throughout the nations [[Acts-21.fn#Footnote 21.1 — apostasy|apostasy]] from Moses, telling them not to circumcise their children, nor to walk according to the customs.
 
 ## v22
 
-What then is to be done? They will certainly hear that you have come.
+What then is to be done? [[Acts-21.fn#Footnote 22.1 — They|They]] will certainly hear that you have come.
 
 ## v23
 
-Therefore do this that we tell you: We have four men who have a vow on themselves;
+Therefore do this that we tell you: We have four men who have a [[Acts-21.fn#Footnote 23.1 — vow|vow]] on themselves;
 
 ## v24
 
-Take these and be purified with them, and pay their expenses that they may shave their heads. And all will know that there is nothing to the things that they have been informed of concerning you, but that you yourself also walk orderly, keeping the law.
+Take these and be [[Acts-21.fn#Footnote 24.1 — purified|purified]] with them, and pay their [[Acts-21.fn#Footnote 24.2 — expenses|expenses]] that they may [[Acts-21.fn#Footnote 24.3 — shave|shave]] their heads. And all will know that there is nothing to the things that they have been informed of concerning you, but that you yourself also walk orderly, keeping the law.
 
 ## v25
 
@@ -103,7 +103,7 @@ But concerning the Gentiles who have believed, we have already written, having d
 
 ## v26
 
-Then Paul took the men and on the following day, being purified with them, entered into the temple, giving notice of the completion of the days of the purification, until the offering was offered for each one of them.
+Then Paul took the men and on the following day, [[Acts-21.fn#Footnote 26.1 — being|being]] purified with them, entered into the temple, giving notice of the [[Acts-21.fn#Footnote 26.2 — completion|completion]] of the days of the purification, until the offering was offered for each one of them.
 
 ## v27
 
@@ -111,7 +111,7 @@ And when the seven days were about to be concluded, the Jews from Asia saw him i
 
 ## v28
 
-Crying out, Men of Israel, help! This is the man who teaches all men everywhere against the people and the law and this place; and further, he has even brought Greeks into the temple and has profaned this holy place.
+Crying out, [[Acts-21.fn#Footnote 28.1 — Men|Men]] of Israel, help! This is the man who teaches all men everywhere against the [[Acts-21.fn#Footnote 28.2 — people|people]] and the law and [[Acts-21.fn#Footnote 28.3 — this|this]] place; and further, he has even brought Greeks into the temple and has [[Acts-21.fn#Footnote 28.4 — profaned|profaned]] this [[Acts-21.fn#Footnote 28.5 — holy|holy]] place.
 
 ## v29
 
@@ -123,7 +123,7 @@ And the whole city was stirred, and the people ran together; and they laid hold 
 
 ## v31
 
-And as they were seeking to kill him, a report came up to the commander of the cohort that all Jerusalem was in confusion.
+And as they were seeking to kill him, a report came up to the [[Acts-21.fn#Footnote 31.1 — commander|commander]] of the [[Acts-21.fn#Footnote 31.2 — cohort|cohort]] that all Jerusalem was in confusion.
 
 ## v32
 
@@ -159,4 +159,4 @@ But Paul said, I am a Jewish man of Tarsus in Cilicia, a citizen of no insignifi
 
 ## v40
 
-And when he had given him permission, Paul stood on the stairs and motioned with his hand to the people. And when there was a great silence, he addressed them in the Hebrew dialect, saying,
+And when he had given him permission, Paul stood on the stairs and motioned with his hand to the people. And when there was a great silence, he addressed them in the Hebrew [[Acts-21.fn#Footnote 40.1 — dialect|dialect]], saying,

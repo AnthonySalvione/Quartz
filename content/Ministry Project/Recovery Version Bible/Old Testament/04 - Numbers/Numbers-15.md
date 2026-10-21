@@ -1,6 +1,6 @@
 ## v1
 
-Then Jehovah spoke to Moses, saying,
+Then Jehovah [[Numbers-15.fn#Footnote 1.1 — spoke|spoke]] to Moses, saying,
 
 ## v2
 
@@ -8,7 +8,7 @@ Speak to the children of Israel and say to them, When you come into the land tha
 
 ## v3
 
-And you make an offering by fire to Jehovah, a burnt offering or a sacrifice, to make a special vow or as a freewill offering or at your appointed feasts, to make a satisfying fragrance to Jehovah, from the herd or from the flock,
+And you make an [[Numbers-15.fn#Footnote 3.1 — offering|offering]] by fire to Jehovah, a burnt offering or a sacrifice, to [[Numbers-15.fn#Footnote 3.2 — make|make]] a special vow or as a freewill offering or at your appointed feasts, to make a satisfying fragrance to Jehovah, from the herd or from the flock,
 
 ## v4
 
@@ -56,7 +56,7 @@ And if a stranger sojourns with you, or one who may be among you throughout your
 
 ## v15
 
-For the congregation there shall be one statute for you and for the stranger who sojourns with you, a perpetual statute throughout your generations; as you are, so shall the sojourner be before Jehovah.
+For the congregation there shall be [[Numbers-15.fn#Footnote 15.1 — one|one]] statute for you and for the stranger who sojourns with you, a perpetual statute throughout your generations; as you are, so shall the sojourner be before Jehovah.
 
 ## v16
 
@@ -76,7 +76,7 @@ Whenever you eat of the bread of the land, you shall offer up a heave offering t
 
 ## v20
 
-From the first of your dough you shall offer up a cake for a heave offering; as the heave offering of the threshing floor, so shall you offer it up.
+From the [[Numbers-15.fn#Footnote 20.1 — first|first]] of your dough you shall offer up a cake for a heave offering; as the heave offering of the threshing floor, so shall you offer it up.
 
 ## v21
 
@@ -84,7 +84,7 @@ From the first of your dough you shall give to Jehovah a heave offering througho
 
 ## v22
 
-And if you sin unintentionally and do not observe all these commandments which Jehovah has spoken to Moses,
+And if [[Numbers-15.fn#Footnote 22.1 — you|you]] sin unintentionally and do not observe all these commandments which Jehovah has spoken to Moses,
 
 ## v23
 
@@ -96,7 +96,7 @@ Then, if it was done unintentionally, without the knowledge of the assembly, the
 
 ## v25
 
-And the priest shall make expiation for the whole assembly of the children of Israel, and they shall be forgiven; for it was unintentional, and they have brought their offering, an offering by fire to Jehovah, and their sin offering before Jehovah for their error.
+And the priest shall make [[Numbers-15.fn#Footnote 25.1 — expiation|expiation]] for the whole assembly of the children of Israel, and they shall be forgiven; for it was unintentional, and they have brought their offering, an offering by fire to Jehovah, and their sin offering before Jehovah for their error.
 
 ## v26
 
@@ -116,7 +116,7 @@ You shall have one law for the one who does anything unintentionally, for one wh
 
 ## v30
 
-But the person who does anything with a high hand, whether a native or a sojourner, that one reviles Jehovah; and that person shall be cut off from among his people.
+But the person who does anything with a [[Numbers-15.fn#Footnote 30.1 — high|high]] hand, whether a native or a sojourner, that one reviles Jehovah; and that person shall be cut off from among his people.
 
 ## v31
 
@@ -136,7 +136,7 @@ And they put him in custody, because it had not been declared what should be don
 
 ## v35
 
-And Jehovah said to Moses, The man shall surely be put to death; the whole assembly shall stone him with stones outside the camp.
+And Jehovah said to Moses, The man shall surely be [[Numbers-15.fn#Footnote 35.1 — put|put]] to death; the whole assembly shall stone him with stones outside the camp.
 
 ## v36
 
@@ -148,7 +148,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v38
 
-Speak to the children of Israel and tell them to make for themselves fringes on the borders of their garments throughout their generations and to put on the fringe of each border a cord of blue.
+Speak to the children of Israel and tell them to make for themselves [[Numbers-15.fn#Footnote 38.1 — fringes|fringes]] on the borders of their garments throughout their generations and to put on the fringe of each border a [[Numbers-15.fn#Footnote 38.2 — cord|cord]] of blue.
 
 ## v39
 

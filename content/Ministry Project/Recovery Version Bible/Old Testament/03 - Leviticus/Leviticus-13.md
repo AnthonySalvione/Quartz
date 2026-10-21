@@ -4,11 +4,11 @@ Then Jehovah spoke to Moses and to Aaron, saying,
 
 ## v2
 
-When a man has a swelling or an eruption or a bright spot on the skin of his body, and it becomes an infection of leprosy on the skin of his body, then he shall be brought to Aaron the priest or to one of his sons the priests.
+When a man has a [[Leviticus-13.fn#Footnote 2.1 — swelling|swelling]] or an eruption or a bright spot on the skin of his [[Leviticus-13.fn#Footnote 2.2 — body|body]], and it becomes an infection of [[Leviticus-13.fn#Footnote 2.1 — swelling|leprosy]] on the skin of his body, then he shall be brought to [[Leviticus-13.fn#Footnote 2.3 — Aaron|Aaron]] the priest or to one of his sons the priests.
 
 ## v3
 
-And the priest shall look at the infection in the skin of the body; and if the hair in the infection has turned white and the appearance of the infection is deeper than the skin of his body, it is the infection of leprosy. When the priest has looked at him, he shall pronounce him unclean.
+And the priest shall look at the infection in the skin of the body; and if the hair in the infection has turned [[Leviticus-13.fn#Footnote 3.1 — white|white]] and the appearance of the infection is [[Leviticus-13.fn#Footnote 3.2 — deeper|deeper]] than the skin of his body, it is the infection of leprosy. When the priest has looked at him, he shall pronounce him unclean.
 
 ## v4
 
@@ -20,7 +20,7 @@ And the priest shall look at him on the seventh day; and if in his eyes the infe
 
 ## v6
 
-And the priest shall look at him again on the seventh day; and if the infection has faded, and the infection has not spread in the skin, then the priest shall pronounce him clean; it is only a scab. And he shall wash his clothes and be clean.
+And the priest shall look at him again on the seventh day; and if the infection has [[Leviticus-13.fn#Footnote 6.1 — faded|faded]], and the infection has not spread in the skin, then the priest shall pronounce him clean; it is only a scab. And he shall wash his clothes and be clean.
 
 ## v7
 
@@ -36,7 +36,7 @@ When the infection of leprosy is in a man, then he shall be brought to the pries
 
 ## v10
 
-And the priest shall look; and if there is a white swelling in the skin, and it has turned the hair white, and there is living raw flesh in the swelling,
+And the priest shall look; and if there is a white swelling in the skin, and it has turned the hair white, and there is living [[Leviticus-13.fn#Footnote 10.1 — raw|raw]] flesh in the swelling,
 
 ## v11
 
@@ -44,7 +44,7 @@ It is a chronic leprosy on the skin of his body; and the priest shall pronounce 
 
 ## v12
 
-And if the leprosy breaks out further on the skin, and the leprosy covers all the skin of the one who has the infection, from his head even to his feet, as far as the priest can see,
+And if the leprosy breaks out further on the skin, and the leprosy [[Leviticus-13.fn#Footnote 12.1 — covers|covers]] all the skin of the one who has the infection, from his head even to his feet, as far as the priest can see,
 
 ## v13
 
@@ -52,7 +52,7 @@ Then the priest shall look; and if the leprosy has covered all his body, he shal
 
 ## v14
 
-But whenever raw flesh appears on him, he shall be unclean.
+But whenever [[Leviticus-13.fn#Footnote 14.1 — raw|raw]] flesh appears on him, he shall be unclean.
 
 ## v15
 
@@ -68,7 +68,7 @@ And the priest shall look at him; and if the infection has turned white, then th
 
 ## v18
 
-And when the body has a boil on its skin, and it has healed,
+And when the body has a [[Leviticus-13.fn#Footnote 18.1 — boil|boil]] on its skin, and it has healed,
 
 ## v19
 
@@ -92,7 +92,7 @@ But if the bright spot remains in its place and does not spread, it is only the 
 
 ## v24
 
-Or when the flesh has on its skin a burn by fire, and the raw flesh of the burn becomes a bright spot, reddish-white or white,
+Or when the [[Leviticus-13.fn#Footnote 24.1 — flesh|flesh]] has on its skin a burn by fire, and the raw flesh of the burn becomes a bright spot, reddish-white or white,
 
 ## v25
 
@@ -112,15 +112,15 @@ And if the bright spot remains in its place, and it has not spread in the skin, 
 
 ## v29
 
-And if a man or woman has an infection on the head or on the beard,
+And if a man or woman has an infection on the [[Leviticus-13.fn#Footnote 29.1 — head|head]] or on the [[Leviticus-13.fn#Footnote 29.1 — head|beard]],
 
 ## v30
 
-Then the priest shall look at the infection; and if its appearance is deeper than the skin, and there is in it thin yellowish hair, then the priest shall pronounce him unclean. It is a scale; it is leprosy of the head or of the beard.
+Then the priest shall look at the infection; and if its appearance is deeper than the skin, and there is in it [[Leviticus-13.fn#Footnote 30.1 — thin|thin]] yellowish hair, then the priest shall pronounce him unclean. It is a scale; it is leprosy of the head or of the beard.
 
 ## v31
 
-And if the priest looks at the infection of the scale, and if its appearance is not deeper than the skin, and there is no black hair in it, then the priest shall isolate the one who has the infection of the scale seven days.
+And if the priest looks at the infection of the scale, and if its appearance is [[Leviticus-13.fn#Footnote 31.1 — not|not]] deeper than the skin, and there is [[Leviticus-13.fn#Footnote 31.1 — not|no]] black hair in it, then the priest shall isolate the one who has the infection of the scale seven days.
 
 ## v32
 
@@ -128,11 +128,11 @@ And on the seventh day the priest shall look at the infection; and if the scale 
 
 ## v33
 
-Then he shall shave himself, but the scale he shall not shave. And the priest shall isolate the one who has the scale seven days more.
+Then he shall [[Leviticus-13.fn#Footnote 33.1 — shave|shave]] himself, but the scale he shall not shave. And the priest shall isolate the one who has the scale seven days more.
 
 ## v34
 
-And on the seventh day the priest shall look at the scale; and if the scale has not spread in the skin, and its appearance is not deeper than the skin, then the priest shall pronounce him clean. And he shall wash his clothes and be clean.
+And on the seventh day the priest shall look at the scale; and if the scale has not spread in the skin, and its appearance is not deeper than the skin, then the priest shall pronounce him clean. And he shall [[Leviticus-13.fn#Footnote 34.1 — wash|wash]] his clothes and be clean.
 
 ## v35
 
@@ -144,11 +144,11 @@ Then the priest shall look at him; and if the scale has spread in the skin, the 
 
 ## v37
 
-But if, in the priest’s eyes, the scale has remained, and black hair has grown up in it, the scale is healed; he is clean. And the priest shall pronounce him clean.
+But if, in [[Leviticus-13.fn#Footnote 37.1 — the|the]] priest’s eyes, the scale has remained, and [[Leviticus-13.fn#Footnote 37.2 — black|black]] hair has grown up in it, the scale is healed; he is clean. And the priest shall pronounce him clean.
 
 ## v38
 
-And when a man or a woman has bright spots on the skin of their body, white bright spots,
+And when a man or a woman has bright spots on the skin of their body, [[Leviticus-13.fn#Footnote 38.1 — white|white]] bright spots,
 
 ## v39
 
@@ -156,7 +156,7 @@ Then the priest shall look; and if the bright spots on the skin of their body ar
 
 ## v40
 
-And if a man loses the hair of his head, he is bald; he is clean.
+And if a man [[Leviticus-13.fn#Footnote 40.1 — loses|loses]] the hair of his head, he is bald; he is clean.
 
 ## v41
 
@@ -176,7 +176,7 @@ He is a leprous man; he is unclean. The priest shall surely pronounce him unclea
 
 ## v45
 
-And as for the leper in whom the infection is, his clothes shall be torn, and the hair of his head shall be let loose, and he shall cover his upper lip and cry, Unclean, unclean!
+And as for the leper in whom the infection is, his [[Leviticus-13.fn#Footnote 45.1 — clothes|clothes]] shall be torn, and the [[Leviticus-13.fn#Footnote 45.1 — clothes|hair]] of his head shall be let loose, and he shall [[Leviticus-13.fn#Footnote 45.1 — clothes|cover]] his upper lip and cry, [[Leviticus-13.fn#Footnote 45.1 — clothes|Unclean]], unclean!
 
 ## v46
 
@@ -184,15 +184,15 @@ He shall be unclean all the days during which the infection is in him; he is unc
 
 ## v47
 
-The garment also that the infection of leprosy is in, whether it is a woolen garment or a linen garment,
+The [[Leviticus-13.fn#Footnote 47.1 — garment|garment]] also that the infection of leprosy is in, whether it is a [[Leviticus-13.fn#Footnote 47.2 — woolen|woolen]] garment or a [[Leviticus-13.fn#Footnote 47.2 — woolen|linen]] garment,
 
 ## v48
 
-Whether it is in warp or woof, of linen or of wool, whether in a skin or in anything made of skin,
+Whether it is in [[Leviticus-13.fn#Footnote 48.1 — warp|warp]] or [[Leviticus-13.fn#Footnote 48.1 — warp|woof]], of linen or of wool, whether in a skin or in anything made of skin,
 
 ## v49
 
-If the infection is greenish or reddish in the garment or in the skin, or in the warp or in the woof, or in anything of skin, it is the infection of leprosy and shall be shown to the priest.
+If the infection is [[Leviticus-13.fn#Footnote 49.1 — greenish|greenish]] or reddish in the garment or in the skin, or in the warp or in the woof, or in anything of skin, it is the infection of leprosy and shall be shown to the priest.
 
 ## v50
 
@@ -204,7 +204,7 @@ Then he shall look at the infection on the seventh day. If the infection has spr
 
 ## v52
 
-And he shall burn the garment, whether the warp or the woof, in wool or in linen, or anything of skin in which the infection occurs, for it is a malignant leprosy; it shall be burned in the fire.
+And he shall [[Leviticus-13.fn#Footnote 52.1 — burn|burn]] the garment, whether the warp or the woof, in wool or in linen, or anything of skin in which the infection occurs, for it is a malignant leprosy; it shall be burned in the fire.
 
 ## v53
 
@@ -212,15 +212,15 @@ And if the priest shall look, and if the infection has not spread in the garment
 
 ## v54
 
-Then the priest shall command that they wash the thing in which the infection is; and he shall isolate it for seven more days.
+Then the priest shall command that they [[Leviticus-13.fn#Footnote 54.1 — wash|wash]] the thing in which the infection is; and he shall isolate it for seven more days.
 
 ## v55
 
-And after the article with the infection has been washed, the priest shall look at it; and if the infection has not changed its appearance, even though the infection has not spread, it is unclean. You shall burn it in the fire; it is a leprous decay, whether the bareness is on the inside or on the outside.
+And after the article with the infection has been washed, the priest shall look at it; and if the infection has not changed its appearance, even though the infection has not spread, it is unclean. You shall burn it in the fire; it is a [[Leviticus-13.fn#Footnote 55.1 — leprous|leprous]] decay, whether the bareness is on the inside or on the outside.
 
 ## v56
 
-And if the priest looks, and if the infection has faded after it was washed, then he shall tear it out of the garment or out of the skin, whether from the warp or from the woof.
+And if the priest looks, and if the infection has faded after it was washed, then he shall [[Leviticus-13.fn#Footnote 56.1 — tear|tear]] it out of the garment or out of the skin, whether from the warp or from the woof.
 
 ## v57
 
@@ -228,7 +228,7 @@ But if it appears again in the garment, whether in the warp or in the woof, or i
 
 ## v58
 
-And the garment, whether the warp or the woof, or any article of skin, which you shall wash, if the infection has departed from them, shall be washed a second time and shall be clean.
+And the garment, whether the warp or the woof, or any article of skin, which you shall wash, if the infection has departed from them, shall be washed a [[Leviticus-13.fn#Footnote 58.1 — second|second]] time and shall be clean.
 
 ## v59
 

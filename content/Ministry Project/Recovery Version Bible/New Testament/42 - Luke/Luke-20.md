@@ -3,7 +3,7 @@ Author: Luke
 ---
 ## v1
 
-And on one of the days, as He was teaching the people in the temple and announcing the good news, the chief priests and the scribes with the elders came upon Him,
+And on one of the days, as [[Luke-20.fn#Footnote 1.1 — He|He]] was teaching the people in the temple and announcing the good news, the chief priests and the scribes with the elders came upon Him,
 
 ## v2
 
@@ -31,11 +31,11 @@ And they answered that they did not know where it was from.
 
 ## v8
 
-And Jesus said to them, Neither do I tell you by what authority I do these things.
+And Jesus said to them, [[Luke-20.fn#Footnote 8.1 — Neither|Neither]] do I tell you by what authority I do these things.
 
 ## v9
 
-And He began to speak to the people this parable: A certain man planted a vineyard and leased it out to vinedressers and went abroad for a considerable time.
+[[Luke-20.fn#Footnote 9.1 — And|And]] He began to speak to the people this parable: A certain man planted a vineyard and leased it out to vinedressers and went abroad for a considerable time.
 
 ## v10
 
@@ -51,7 +51,7 @@ And he went on to send a third, but that one also they wounded and threw out.
 
 ## v13
 
-And the master of the vineyard said, What shall I do? I will send my son, the beloved; they will probably respect this one.
+And the master of the vineyard said, What shall I do? I will send my son, the beloved; they will [[Luke-20.fn#Footnote 13.1 — probably|probably]] respect this one.
 
 ## v14
 
@@ -79,11 +79,11 @@ And the scribes and the chief priests sought to lay hands on Him in that hour; y
 
 ## v20
 
-And they watched Him closely and sent spies who feigned themselves to be righteous, in order that they might lay hold on some word of His, so as to deliver Him up to the rule and authority of the governor.
+[[Luke-20.fn#Footnote 20.1 — And|And]] they watched Him closely and sent spies who feigned themselves to be righteous, in order that they might lay hold on some word of His, so as to deliver Him up to the rule and authority of the governor.
 
 ## v21
 
-And they questioned Him, saying, Teacher, we know that You speak and teach correctly, and do not accept man’s person, but teach the way of God in truth.
+And they questioned Him, saying, Teacher, we know that You speak and teach correctly, [[Luke-20.fn#Footnote 21.1 — and|and]] do not accept man’s person, but teach the way of God in truth.
 
 ## v22
 
@@ -107,7 +107,7 @@ And they were not able to lay hold of a saying of His in the presence of the peo
 
 ## v27
 
-And some of the Sadducees, who say there is no resurrection, came to Him and questioned Him,
+[[Luke-20.fn#Footnote 27.1 — And|And]] some of the Sadducees, who say there is no resurrection, came to Him and questioned Him,
 
 ## v28
 
@@ -119,7 +119,7 @@ There were then seven brothers. And the first took a wife and died childless;
 
 ## v30
 
-And the second;
+And the [[Luke-20.fn#Footnote 30.1 — second|second]];
 
 ## v31
 
@@ -139,7 +139,7 @@ And Jesus said to them, The sons of this age marry and are given in marriage,
 
 ## v35
 
-But those who are counted worthy to obtain that age and the resurrection from the dead neither marry nor are given in marriage;
+But those who are counted worthy to obtain that [[Luke-20.fn#Footnote 35.1 — age|age]] and the resurrection from the dead neither marry nor are given in marriage;
 
 ## v36
 
@@ -159,11 +159,11 @@ And some of the scribes answered and said, Teacher, You have spoken well.
 
 ## v40
 
-For they no longer dared to question Him about anything.
+For they [[Luke-20.fn#Footnote 40.1 — no|no]] longer dared to question Him about anything.
 
 ## v41
 
-And He said to them, How is it that they say that the Christ is David’s son?
+[[Luke-20.fn#Footnote 41.1 — And|And]] He said to them, How is it that they say that the Christ is David’s son?
 
 ## v42
 
@@ -175,7 +175,7 @@ Until I set Your enemies as a footstool for Your feet.”
 
 ## v44
 
-David therefore calls Him Lord, and how is He his son?
+David therefore calls Him Lord, and how is He his [[Luke-20.fn#Footnote 44.1 — son|son]]?
 
 ## v45
 
@@ -183,8 +183,8 @@ And as all the people were listening, He said to His disciples,
 
 ## v46
 
-Beware of the scribes, who like to walk around in long robes, and love greetings in the marketplaces and chief seats in the synagogues and places of honor at the dinners,
+[[Luke-20.fn#Footnote 46.1 — Beware|Beware]] of the scribes, who like to walk around in long robes, and love greetings in the marketplaces and chief seats in the synagogues and places of honor at the dinners,
 
 ## v47
 
-Who devour widows’ houses, and for a pretense make long prayers. These shall receive greater judgment.
+Who devour widows’ houses, and for a [[Luke-20.fn#Footnote 47.1 — pretense|pretense]] make long prayers. These shall receive greater [[Luke-20.fn#Footnote 47.2 — judgment|judgment]].

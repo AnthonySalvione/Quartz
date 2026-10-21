@@ -1,0 +1,1 @@
+longest TypersGuild paragraph - 103 lines, 844 XP.

@@ -8,7 +8,7 @@ We’d like four brothers and four sisters to line up on both sides. Be bold.”
 
 # Testimonies
 
-## Daniel Biatoro (sent from the church in Rio Valley)
+## Daniel Viatoro (sent from the church in Rio Valley)
 
 I want to keep my testimony short and sweet. My testimony is [[1 Corinthians-06#v12|1 Corinthians 6:12]].
 

@@ -16,7 +16,7 @@ And he built cities in the hill country of Judah, and in the forests he built fo
 
 ## v5
 
-And he fought with the king of the children of Ammon and prevailed against them. And the children of Ammon gave him that same year one hundred talents of silver and ten thousand cors of wheat and ten thousand of barley. This much did the children of Ammon pay him also in the second and third years.
+And he fought with the king of the children of Ammon and prevailed against them. And the children of Ammon gave him that same year one hundred talents of silver and ten thousand [[2 Chronicles-27.fn#Footnote 5.1 — cors|cors]] of wheat and ten thousand of barley. This much did the children of Ammon pay him also in the second and third years.
 
 ## v6
 

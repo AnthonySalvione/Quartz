@@ -4,7 +4,7 @@ Now Joseph was brought down to Egypt; and Potiphar, an official of Pharaoh, the 
 
 ## v2
 
-And Jehovah was with Joseph, and he became a prosperous man; and he was in the house of his master, the Egyptian.
+And Jehovah was [[Genesis-39.fn#Footnote 2.1 — with|with]] Joseph, and he became a prosperous man; and he was in the house of his master, the Egyptian.
 
 ## v3
 
@@ -12,7 +12,7 @@ And his master saw that Jehovah was with him and that Jehovah caused all that he
 
 ## v4
 
-And Joseph found favor in his sight, and he ministered to him; and he made him overseer of his house and put all that he had in his charge.
+And Joseph found favor in his sight, and he ministered to him; and he made him overseer of his house and put all that he had in his [[Genesis-39.fn#Footnote 4.1 — charge|charge]].
 
 ## v5
 
@@ -44,7 +44,7 @@ And one such day he went into the house to do his work, and none of the men of t
 
 ## v12
 
-And she grabbed him by his garment, saying, Lie with me! But he left his garment in her hand, and fled and went outside.
+And she grabbed him by his garment, saying, Lie with me! But he left his garment in her hand, and [[Genesis-39.fn#Footnote 12.1 — fled|fled]] and went outside.
 
 ## v13
 
@@ -76,7 +76,7 @@ And when his master heard the words of his wife that she had spoken to him, sayi
 
 ## v20
 
-And Joseph’s master took him and put him into the prison, the place where the king’s prisoners were confined. But while he was there in the prison,
+And Joseph’s master took him and put him into the [[Genesis-39.fn#Footnote 20.1 — prison|prison]], the place where the king’s prisoners were confined. But while he was there in the prison,
 
 ## v21
 

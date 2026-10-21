@@ -24,7 +24,7 @@ And his heart was exalted in the ways of Jehovah; and even more, he removed the 
 
 ## v7
 
-And in the third year of his reign he sent his officials Ben-hail and Obadiah and Zechariah and Nethanel and Micaiah to teach in the cities of Judah;
+And in the third year of his reign he [[2 Chronicles-17.fn#Footnote 7.1 — sent|sent]] his officials Ben-hail and Obadiah and Zechariah and Nethanel and Micaiah to teach in the cities of Judah;
 
 ## v8
 

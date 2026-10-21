@@ -1,0 +1,57 @@
+---
+Category:
+  - Fullness of the Spirit
+Subcategory:
+  - By the Cross
+Lyricist:
+  - Watchman Nee
+Melody:
+  - Anonymous
+---
+
+# Lord, may Thy blood now cleanse me
+## Stanza 1
+Lord, may Thy blood now cleanse me,
+Wash all my sins away,
+That with Thy Holy Spirit
+Thou may anoint I pray.
+My service, I confess, Lord,
+Is failure-full and weak;
+The filling of Thy Spirit
+To live for Thee I seek.
+
+## Chorus
+	Oh, from myself deliver,
+	From all its misery;
+	I’d henceforth be forever
+	Completely filled with Thee.
+
+## Stanza 2
+Oh, Lord, how dry my heart is,
+It yearns and pants for Thee;
+The filling of Thy Spirit
+Is now my fervent plea.
+Within the smitten Rock, Lord,
+I would entirely hide;
+Pour thru Thy living water,
+Till I am satisfied.
+
+## Stanza 3
+How cold my heart has been, Lord,
+How slow obeying Thee;
+So fill me with Thy Spirit,
+I'll ne'er rebellious be.
+I lie upon Thy altar
+And dare not move away;
+Oh, may Thy flame descending
+Consume my all, I pray.
+
+## Stanza 4
+Oh, may Thy Cross within me
+Deepen its work and burn,
+In me enlarge Thy measure,
+And me to ashes turn.
+Oh, may Thy Spirit fill me
+Each day more than before,
+And may Thy living water
+On me and thru me pour.

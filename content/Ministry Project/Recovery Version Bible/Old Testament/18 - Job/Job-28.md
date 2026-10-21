@@ -12,7 +12,7 @@ And copper is smelted from rock.
 
 The miner sets an end to the darkness,  
 And to the very end he searches out  
-The stones of deep darkness and of gloom.
+The stones of deep darkness and of [[Job-28.fn#Footnote 3.1 — gloom|gloom]].
 
 ## v4
 
@@ -42,7 +42,7 @@ The fierce lion does not pass along it.
 
 ## v9
 
-The miner sends forth his hand into the flinty rock;  
+[[Job-28.fn#Footnote 9.1 — The|The]] miner sends forth his hand into the flinty rock;  
 He overturns the mountains by their roots.
 
 ## v10
@@ -92,7 +92,7 @@ Indeed the acquisition of wisdom is above that of pearls.
 
 ## v19
 
-The topaz of Cush cannot compare with it,  
+The topaz of [[Job-28.fn#Footnote 19.1 — Cush|Cush]] cannot compare with it,  
 Nor can it be balanced with pure gold.
 
 ## v20
@@ -107,7 +107,7 @@ And concealed from the birds of heaven.
 
 ## v22
 
-Abaddon and Death say,  
+[[Job-28.fn#Footnote 22.1 — Abaddon|Abaddon]] and Death say,  
 We have heard a report of it with our ears.
 
 ## v23

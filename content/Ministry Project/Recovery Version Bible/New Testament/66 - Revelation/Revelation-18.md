@@ -3,27 +3,27 @@ Author: John
 ---
 ## v1
 
-After these things I saw another Angel coming down out of heaven, having great authority; and the earth was illumined with His glory.
+After these things I saw [[Revelation-18.fn#Footnote 1.1 — another|another]] Angel [[Revelation-18.fn#Footnote 1.2 — coming|coming]] down out of heaven, having great authority; and the earth was illumined with His glory.
 
 ## v2
 
-And He cried with a strong voice, saying, Fallen, fallen is Babylon the Great! And she has become a dwelling place of demons and a hold of every unclean spirit and a hold of every unclean and hateful bird;
+And He cried with a strong voice, saying, [[Revelation-18.fn#Footnote 2.1 — Fallen|Fallen]], fallen is Babylon the Great! And she has become a dwelling place of demons and a [[Revelation-18.fn#Footnote 2.2 — hold|hold]] of every unclean spirit and a [[Revelation-18.fn#Footnote 2.2 — hold|hold]] of every unclean and hateful bird;
 
 ## v3
 
-For all the nations have drunk of the wine of the fury of her fornication, and the kings of the earth have committed fornication with her, and the merchants of the earth have become rich by the power of her luxury.
+For all the nations [[Revelation-18.fn#Footnote 3.1 — have|have]] [[Revelation-18.fn#Footnote 3.2 — drunk|drunk]] of the wine of the fury of her fornication, and the kings of the earth have committed fornication with her, and the merchants of the earth have become rich by the power of her luxury.
 
 ## v4
 
-And I heard another voice out of heaven, saying, Come out of her, My people, that you do not participate in her sins and that you do not receive her plagues;
+And I heard another voice out of heaven, saying, [[Revelation-18.fn#Footnote 4.1 — Come|Come]] out of her, My people, that you do not participate in her sins and that you do not receive her plagues;
 
 ## v5
 
-For her sins have accumulated up to heaven, and God has remembered her unrighteousnesses.
+For her sins have [[Revelation-18.fn#Footnote 5.1 — accumulated|accumulated]] up to heaven, and God has remembered her [[Revelation-18.fn#Footnote 5.2 — unrighteousnesses|unrighteousnesses]].
 
 ## v6
 
-Pay her back even as she has paid, and double to her double according to her works; in the cup which she has mixed, mix double to her.
+Pay her back even as she has paid, and [[Revelation-18.fn#Footnote 6.1 — double|double]] to her double according to her works; in the cup which she has mixed, mix double to her.
 
 ## v7
 
@@ -31,7 +31,7 @@ As much as she has glorified herself and lived luxuriously, as much torment and 
 
 ## v8
 
-Therefore in one day her plagues will come, death and sorrow and famine, and she will be utterly burned with fire; for the Lord God who judges her is strong.
+Therefore in one day her plagues will come, death and sorrow and famine, and she will be utterly [[Revelation-18.fn#Footnote 8.1 — burned|burned]] with fire; for the Lord God who judges her is strong.
 
 ## v9
 
@@ -47,11 +47,11 @@ And the merchants of the earth weep and mourn over her because no one buys their
 
 ## v12
 
-Cargo of gold and silver and precious stone and pearls and fine linen and purple and silk and scarlet, and every kind of thyine wood, and every vessel of ivory, and every vessel of most precious wood and brass and iron and marble,
+[[Revelation-18.fn#Footnote 12.1 — Cargo|Cargo]] of gold and silver and precious stone and pearls and fine linen and purple and silk and scarlet, and every kind of [[Revelation-18.fn#Footnote 12.2 — thyine|thyine]] wood, and every vessel of ivory, and every vessel of most precious wood and brass and iron and marble,
 
 ## v13
 
-And cinnamon and amomum and incense and ointment and frankincense and wine and oil and fine flour and wheat and cattle and sheep, and cargo of horses and chariots and slaves and souls of men.
+And cinnamon and [[Revelation-18.fn#Footnote 13.1 — amomum|amomum]] and incense and ointment and frankincense and wine and oil and fine flour and wheat and cattle and sheep, and cargo of horses and chariots and [[Revelation-18.fn#Footnote 13.2 — slaves|slaves]] and [[Revelation-18.fn#Footnote 13.3 — souls|souls]] of men.
 
 ## v14
 
@@ -75,15 +75,15 @@ And cried out, seeing the smoke of her burning, saying, What city is like the gr
 
 ## v19
 
-And they cast dust on their heads and cried out, weeping and mourning, saying, Woe, woe, the great city, by which all those who have ships on the sea became rich from her wealth, for in one hour she has become desolate!
+And they cast dust on their heads and cried out, weeping and mourning, saying, Woe, woe, the great city, by which all those who have ships on the sea became rich from her [[Revelation-18.fn#Footnote 19.1 — wealth|wealth]], for in [[Revelation-18.fn#Footnote 19.2 — one|one]] hour she has become desolate!
 
 ## v20
 
-Be glad over her, O heaven and saints and apostles and prophets, because God has judged judgment for you upon her.
+Be glad over her, O heaven and saints and apostles and prophets, because God has [[Revelation-18.fn#Footnote 20.1 — judged|judged]] judgment for you upon her.
 
 ## v21
 
-And a strong angel took up a stone like a great millstone and threw it into the sea, saying, Thus will Babylon, the great city, be thrown down with violence and shall be found no more at all.
+And a strong angel took up a stone like a great millstone and threw it into the sea, saying, Thus will Babylon, the great city, be [[Revelation-18.fn#Footnote 21.1 — thrown|thrown]] down with violence and shall be found no more at all.
 
 ## v22
 
@@ -91,7 +91,7 @@ And the sound of harp-singers and musicians and flutists and trumpeters shall be
 
 ## v23
 
-And the light of a lamp shall shine no more at all in you, and the voice of bridegroom and bride shall be heard no more at all in you; for your merchants were the great ones of the earth, for by your sorcery all the nations were deceived.
+And the light of a lamp shall shine no more at all in you, and the voice of bridegroom and bride shall be heard no more at all in you; for your merchants were the great ones of the earth, for by your [[Revelation-18.fn#Footnote 23.1 — sorcery|sorcery]] all the nations were deceived.
 
 ## v24
 

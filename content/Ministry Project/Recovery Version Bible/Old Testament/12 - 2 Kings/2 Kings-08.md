@@ -36,7 +36,7 @@ So Hazael went to meet him; and he took a gift with him, even all good things of
 
 ## v10
 
-And Elisha said to him, Go and say to him, You shall certainly recover; however Jehovah has shown me that he shall certainly die.
+And Elisha said to him, [[2 Kings-08.fn#Footnote 10.1 — Go|Go]] and say to him, You shall certainly recover; however Jehovah has shown me that he shall certainly die.
 
 ## v11
 
@@ -72,7 +72,7 @@ And he walked in the way of the kings of Israel and as the house of Ahab had don
 
 ## v19
 
-But Jehovah would not destroy Judah, because of David His servant, as He had promised him that for his sake He would provide a lamp for his children always.
+But Jehovah would not destroy Judah, because of [[2 Kings-08.fn#Footnote 19.1 — David|David]] His servant, as He had promised him that for his sake He would provide a lamp for his children always.
 
 ## v20
 
@@ -80,7 +80,7 @@ In his days Edom revolted from under the hand of Judah, and they installed a kin
 
 ## v21
 
-So Joram crossed over to Zair, and all his chariots with him. And he rose up at night and struck the Edomites all around him and the captains of the chariots, but his people fled to their tents.
+So [[2 Kings-08.fn#Footnote 21.1 — Joram|Joram]] crossed over to Zair, and all his chariots with him. And he rose up at night and struck the Edomites all around him and the captains of the chariots, but his people fled to their tents.
 
 ## v22
 
@@ -100,7 +100,7 @@ In the twelfth year of Joram the son of Ahab, the king of Israel, Ahaziah the so
 
 ## v26
 
-Ahaziah was twenty-two years old when he began to reign, and he reigned one year in Jerusalem. And his mother’s name was Athaliah, the daughter of Omri the king of Israel.
+Ahaziah was twenty-two years old when he began to reign, and he reigned one year in Jerusalem. And his mother’s name was Athaliah, the [[2 Kings-08.fn#Footnote 26.1 — daughter|daughter]] of Omri the king of Israel.
 
 ## v27
 

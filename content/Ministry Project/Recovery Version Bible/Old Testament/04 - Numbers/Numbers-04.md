@@ -8,7 +8,7 @@ Take the sum of the sons of Kohath from among the sons of Levi, by their familie
 
 ## v3
 
-From thirty years old and upward even to fifty years old, all who enter into the service to perform the skilled work in the Tent of Meeting.
+From [[Numbers-04.fn#Footnote 3.1 — thirty|thirty]] years old and upward even to fifty years old, all who enter into the [[Numbers-04.fn#Footnote 3.2 — service|service]] to perform the skilled work in the Tent of Meeting.
 
 ## v4
 
@@ -16,15 +16,15 @@ This is the service of the sons of Kohath in the Tent of Meeting concerning the 
 
 ## v5
 
-When the camp sets out, Aaron and his sons shall go in, and they shall take down the veil of the screen and cover the Ark of the Testimony with it,
+When the camp [[Numbers-04.fn#Footnote 5.1 — sets|sets]] out, [[Numbers-04.fn#Footnote 5.2 — Aaron|Aaron]] and his sons shall go in, and they shall take down the veil of the screen and cover the Ark of the Testimony with it,
 
 ## v6
 
-And they shall put on it a covering of porpoise skin, and shall spread over it a cloth all of blue strands, and shall put in its poles.
+And they shall put on it a covering of [[Numbers-04.fn#Footnote 6.1 — porpoise|porpoise]] skin, and shall spread over it a cloth all of blue strands, and shall put in its poles.
 
 ## v7
 
-And over the table of the bread of the Presence they shall spread a blue cloth, and put on it the plates and the cups and the bowls and the pitchers of the drink offering; and the continual bread shall be on it.
+And over the table of the bread of the Presence they shall spread a blue cloth, and put on it the plates and the cups and the bowls and the pitchers of the [[Numbers-04.fn#Footnote 7.1 — drink|drink]] offering; and the continual bread shall be on it.
 
 ## v8
 
@@ -60,7 +60,7 @@ And when Aaron and his sons have finished covering the sanctuary and all the fur
 
 ## v16
 
-And the oversight of Eleazar the son of Aaron the priest shall be the oil for the light and the fragrant incense and the continual meal offering and the anointing oil, the oversight of all the tabernacle and all that is in it, the sanctuary and its furnishings.
+And the oversight of Eleazar the son of Aaron the priest shall be the [[Numbers-04.fn#Footnote 16.1 — oil|oil]] for the light and the fragrant incense and the continual meal offering and the anointing oil, the oversight of all the tabernacle and all that is in it, the sanctuary and its furnishings.
 
 ## v17
 
@@ -72,11 +72,11 @@ Do not let the tribe of the families of the Kohathites be cut off from among the
 
 ## v19
 
-But do this to them that they may live and not die when they approach the most holy things: Aaron and his sons shall go in and assign each one of them to his service and to his burden;
+But do this to them that they may live and not die when they approach the most holy things: Aaron and his sons shall go in and [[Numbers-04.fn#Footnote 19.1 — assign|assign]] each one of them to his service and to his burden;
 
 ## v20
 
-But the Kohathites shall not go in to see the sanctuary even for a moment; otherwise they will die.
+But [[Numbers-04.fn#Footnote 20.1 — the|the]] Kohathites shall not go in to see the sanctuary even for a moment; otherwise they will die.
 
 ## v21
 

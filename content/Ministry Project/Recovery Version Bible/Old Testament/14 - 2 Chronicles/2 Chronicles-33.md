@@ -20,7 +20,7 @@ And he built altars to all the host of heaven in the two courts of the house of 
 
 ## v6
 
-And he caused his children to pass through fire in the valley of the son of Hinnom, and practiced soothsaying and enchantments and sorcery, and appointed mediums and spiritists; he did what was evil in the sight of Jehovah beyond measure, provoking Him to anger.
+And he caused his children to pass through fire in the [[2 Chronicles-33.fn#Footnote 6.1 — valley|valley]] of the son of Hinnom, and practiced soothsaying and enchantments and sorcery, and appointed mediums and spiritists; he did what was evil in the sight of Jehovah beyond measure, provoking Him to anger.
 
 ## v7
 
@@ -32,7 +32,7 @@ And I will no longer remove the foot of Israel from the land that I have appoint
 
 ## v9
 
-And Manasseh led Judah and the inhabitants of Jerusalem astray to do more evil than the nations which Jehovah had destroyed before the children of Israel.
+And Manasseh led Judah and the inhabitants of Jerusalem astray to do more [[2 Chronicles-33.fn#Footnote 9.1 — evil|evil]] than the nations which Jehovah had destroyed before the children of Israel.
 
 ## v10
 
@@ -72,7 +72,7 @@ Now the rest of the acts of Manasseh and his prayer to his God and the words of 
 
 ## v19
 
-His prayer also and how God was entreated by him, and all his sin and his trespass, and the sites where he built high places and set up the Asherahs and the idols before he humbled himself are there written among the records of Hozai.
+His prayer also and how God was entreated by him, and all his sin and his trespass, and the sites where he built high places and set up the Asherahs and the idols before he humbled himself are there written among the records of [[2 Chronicles-33.fn#Footnote 19.1 — Hozai|Hozai]].
 
 ## v20
 

@@ -17,7 +17,7 @@ And His lightning unto the ends of the earth.
 
 After it a voice roars;  
 He thunders with the voice of His majesty  
-And does not withhold the lightning  
+And does not withhold [[Job-37.fn#Footnote 4.1 — the|the]] lightning  
 When His voice is heard.
 
 ## v5

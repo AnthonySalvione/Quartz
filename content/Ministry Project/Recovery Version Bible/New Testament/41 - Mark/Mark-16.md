@@ -3,7 +3,7 @@ Author: Mark
 ---
 ## v1
 
-And when the Sabbath was past, Mary the Magdalene, and Mary the mother of James, and Salome bought spices so that they might come and anoint Him.
+[[Mark-16.fn#Footnote 1.1 — And|And]] when the Sabbath was past, Mary the Magdalene, and [[Mark-16.fn#Footnote 1.2 — Mary|Mary]] the mother of James, and [[Mark-16.fn#Footnote 1.3 — Salome|Salome]] bought spices so that they might come and [[Mark-16.fn#Footnote 1.4 — anoint|anoint]] Him.
 
 ## v2
 
@@ -23,11 +23,11 @@ And when they entered into the tomb, they saw a young man sitting on the right, 
 
 ## v6
 
-And he said to them, Do not be alarmed. You are seeking Jesus the Nazarene, who has been crucified. He has been raised; He is not here. Behold the place where they laid Him.
+And he said to them, Do not be alarmed. You are seeking Jesus the Nazarene, who has been crucified. He has been [[Mark-16.fn#Footnote 6.1 — raised|raised]]; He is not here. Behold the place where they laid Him.
 
 ## v7
 
-But go, tell His disciples and Peter that He is going before you into Galilee. There you will see Him, even as He told you.
+But go, tell His disciples [[Mark-16.fn#Footnote 7.1 — and|and]] Peter that He is going before you into Galilee. There you will see Him, even as He told you.
 
 ## v8
 
@@ -35,7 +35,7 @@ And they went out and fled from the tomb, for trembling and astonishment had sei
 
 ## v9
 
-Now after He had risen early on the first day of the week, He appeared first to Mary the Magdalene, from whom He had cast out seven demons.
+[[Mark-16.fn#Footnote 9.1 — Now|Now]] after He had risen early on the first day of the week, He appeared first to Mary the Magdalene, from whom He had [[Mark-16.fn#Footnote 9.2 — cast|cast]] out seven demons.
 
 ## v10
 
@@ -59,15 +59,15 @@ And afterward He appeared to the eleven as they were reclining at table, and He 
 
 ## v15
 
-And He said to them, Go into all the world and proclaim the gospel to all the creation.
+And He said to them, Go into [[Mark-16.fn#Footnote 15.2 — all|all]] the world and [[Mark-16.fn#Footnote 15.1 — proclaim|proclaim]] the gospel to all the creation.
 
 ## v16
 
-He who believes and is baptized shall be saved, but he who does not believe shall be condemned.
+He who [[Mark-16.fn#Footnote 16.1 — believes|believes]] and is baptized shall be saved, but he who does [[Mark-16.fn#Footnote 16.2 — not|not]] believe shall be condemned.
 
 ## v17
 
-And these signs will accompany those who believe: in My name they will cast out demons; they will speak with new tongues;
+And these signs will accompany those who believe: in My name they will cast out demons; they will [[Mark-16.fn#Footnote 17.1 — speak|speak]] with new tongues;
 
 ## v18
 
@@ -75,8 +75,8 @@ They will pick up serpents; and if they drink anything deadly, it shall by no me
 
 ## v19
 
-So then the Lord Jesus, after speaking to them, was taken up into heaven and sat at the right hand of God.
+So then the Lord Jesus, after speaking to them, was [[Mark-16.fn#Footnote 19.1 — taken|taken]] up into heaven and sat at the right hand of God.
 
 ## v20
 
-And they went out and preached everywhere, the Lord working with them and confirming the word by the accompanying signs.
+And they went out and [[Mark-16.fn#Footnote 20.1 — preached|preached]] everywhere, the Lord working with them and confirming the word by the accompanying signs.

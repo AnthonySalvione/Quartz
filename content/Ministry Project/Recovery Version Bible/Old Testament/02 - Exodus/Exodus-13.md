@@ -4,15 +4,15 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Sanctify to Me all the firstborn: Whatever opens the womb among the children of Israel, both of man and of beast, it is Mine.
+[[Exodus-13.fn#Footnote 2.1 — Sanctify|Sanctify]] to Me all the firstborn: Whatever opens the womb among the children of Israel, both of man and of beast, it is Mine.
 
 ## v3
 
-And Moses said to the people, Remember this day on which you came out from Egypt, from the slave house, for by strength of hand Jehovah brought you out from this place; and nothing leavened shall be eaten.
+And Moses said to the people, Remember this day on which you came out from Egypt, from the slave house, for by [[Exodus-13.fn#Footnote 3.1 — strength|strength]] of hand Jehovah brought you out from this place; and nothing leavened shall be eaten.
 
 ## v4
 
-On this day in the month of Abib you are going out.
+On this day in the month of [[Exodus-13.fn#Footnote 4.1 — Abib|Abib]] you are going out.
 
 ## v5
 
@@ -32,7 +32,7 @@ And you shall tell your son in that day, saying, It is because of what Jehovah d
 
 ## v9
 
-And it shall be for a sign to you upon your hand and for a memorial between your eyes, that the law of Jehovah may be in your mouth; for with a mighty hand Jehovah brought you out of Egypt.
+And it shall be for a sign to you upon your hand and for a [[Exodus-13.fn#Footnote 9.1 — memorial|memorial]] between your eyes, that the [[Exodus-13.fn#Footnote 9.2 — law|law]] of Jehovah may be in your mouth; for with a mighty hand Jehovah brought you out of Egypt.
 
 ## v10
 
@@ -48,7 +48,7 @@ You shall set apart to Jehovah everything that opens the womb and the first offs
 
 ## v13
 
-And every first offspring of a donkey you shall redeem with a lamb; and if you do not redeem it, you shall break its neck. And every firstborn male among your sons you shall redeem.
+And every [[Exodus-13.fn#Footnote 13.1 — first|first]] offspring of a donkey you shall redeem with a lamb; and if you do not redeem it, you shall break its neck. And every [[Exodus-13.fn#Footnote 13.1 — first|firstborn]] male among your sons you shall redeem.
 
 ## v14
 
@@ -64,15 +64,15 @@ So it will be as a sign upon your hand and as frontlets between your eyes, for b
 
 ## v17
 
-Now when Pharaoh let the people go, God did not lead them by the way of the land of the Philistines, although that was near; for God said, Perhaps the people will change their minds when they see war and will return to Egypt.
+Now when Pharaoh let the people go, God did not [[Exodus-13.fn#Footnote 17.1 — lead|lead]] them by the way of the land of the Philistines, although that was near; for God said, Perhaps the people will change their minds when they see war and will return to Egypt.
 
 ## v18
 
-Thus God led the people around by the way of the wilderness to the Red Sea. And the children of Israel went up arrayed for battle out of the land of Egypt.
+Thus God led the people [[Exodus-13.fn#Footnote 18.1 — around|around]] by the way of the wilderness to the Red Sea. And the children of Israel went up arrayed for battle out of the land of Egypt.
 
 ## v19
 
-And Moses took the bones of Joseph with him, for Joseph had made the children of Israel solemnly swear, saying, God will surely visit you, and you shall bring my bones up from here with you.
+And Moses took the [[Exodus-13.fn#Footnote 19.1 — bones|bones]] of Joseph with him, for Joseph had made the children of Israel solemnly swear, saying, God will surely visit you, and you shall bring my bones up from here with you.
 
 ## v20
 
@@ -80,7 +80,7 @@ And they journeyed from Succoth and encamped in Etham on the edge of the wildern
 
 ## v21
 
-And Jehovah went before them by day in a pillar of cloud to lead them on the way and by night in a pillar of fire to give them light, that they might go by day and by night.
+And Jehovah went before them by day in a pillar of [[Exodus-13.fn#Footnote 21.1 — cloud|cloud]] to lead them on the way and by night in a pillar of [[Exodus-13.fn#Footnote 21.1 — cloud|fire]] to give them light, that they might go by day and by night.
 
 ## v22
 

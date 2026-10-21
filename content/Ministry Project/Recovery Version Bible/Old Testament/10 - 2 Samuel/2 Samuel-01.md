@@ -1,6 +1,6 @@
 ## v1
 
-Now after the death of Saul, when David had returned from the slaughter of the Amalekites, David remained in Ziklag two days.
+[[2 Samuel-01.fn#Footnote 1.1 — Now|Now]] after the death of Saul, when David had returned from the slaughter of the Amalekites, David remained in Ziklag two days.
 
 ## v2
 
@@ -52,7 +52,7 @@ And David said to the young man who told him these things, Where are you from? A
 
 ## v14
 
-And David said to him, How is it that you were not afraid to stretch out your hand to destroy Jehovah’s anointed?
+And David said to him, [[2 Samuel-01.fn#Footnote 14.1 — How|How]] is it that you were not afraid to stretch out your hand to destroy Jehovah’s anointed?
 
 ## v15
 

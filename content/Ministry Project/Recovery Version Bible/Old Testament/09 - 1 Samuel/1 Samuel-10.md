@@ -1,6 +1,6 @@
 ## v1
 
-Then Samuel took the vial of oil and poured it upon his head, and he kissed him and said, Jehovah anoints you ruler over His inheritance.
+Then Samuel took the vial of oil and poured it upon his head, and he kissed him and said, [[1 Samuel-10.fn#Footnote 1.1 — Jehovah|Jehovah]] anoints you ruler over His inheritance.
 
 ## v2
 
@@ -16,7 +16,7 @@ And they will greet you and give you two loaves of bread, and you will take them
 
 ## v5
 
-After that you will come to the hill of God, where the Philistines’ garrison is. And as you come to the city there, you will encounter a group of prophets coming down from the high place, preceded by harp and tambourine and pipe and lyre; and they will be prophesying.
+After that you will come to [[1 Samuel-10.fn#Footnote 5.1 — the|the]] hill of God, where the Philistines’ garrison is. And as you come to the city there, you will encounter a group of prophets coming down from the high place, preceded by harp and tambourine and pipe and lyre; and they will be prophesying.
 
 ## v6
 
@@ -36,7 +36,7 @@ And so when he turned his back to depart from Samuel, God gave him another heart
 
 ## v10
 
-And when they came there to the hill, there was the group of prophets, coming to meet him. And the Spirit of God rushed upon him, and he prophesied among them.
+And when they came there to [[1 Samuel-10.fn#Footnote 10.1 — the|the]] hill, there was the group of prophets, coming to meet him. And the Spirit of God rushed upon him, and he prophesied among them.
 
 ## v11
 
@@ -72,11 +72,11 @@ And he said to the children of Israel, Thus says Jehovah the God of Israel, I br
 
 ## v19
 
-But today you have rejected your God, who Himself saved you from all your calamities and distresses, and have said, No; but set a king over us. And now present yourselves before Jehovah according to your tribes and according to your thousands.
+But today you have rejected your God, who Himself saved you from all your calamities and distresses, and have said, [[1 Samuel-10.fn#Footnote 19.1 — No|No]]; but set a king over us. And now present yourselves before Jehovah according to your tribes and according to your thousands.
 
 ## v20
 
-So Samuel brought all the tribes of Israel near, and the tribe of Benjamin was taken.
+So Samuel brought all the tribes of Israel near, and the tribe of Benjamin was [[1 Samuel-10.fn#Footnote 20.1 — taken|taken]].
 
 ## v21
 
@@ -96,7 +96,7 @@ And Samuel said to all the people, See him whom Jehovah has chosen, that there i
 
 ## v25
 
-Then Samuel told the people the practice of the kingdom, and he wrote it in a book and laid it before Jehovah. And Samuel sent all the people away, every man to his house.
+Then Samuel told the people the [[1 Samuel-10.fn#Footnote 25.1 — practice|practice]] of the kingdom, and he wrote it in a book and laid it before Jehovah. And Samuel sent all the people away, every man to his house.
 
 ## v26
 

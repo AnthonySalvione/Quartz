@@ -4,7 +4,7 @@ And these are what the children of Israel received as inheritances in the land o
 
 ## v2
 
-By the lot of their inheritance, as Jehovah commanded through Moses for the nine tribes and the half-tribe.
+By the [[Joshua-14.fn#Footnote 2.1 — lot|lot]] of their inheritance, as Jehovah commanded through Moses for the nine tribes and the half-tribe.
 
 ## v3
 
@@ -44,11 +44,11 @@ Today I am still as strong as I was on the day Moses sent me out; as my strength
 
 ## v12
 
-Now therefore give me this hill country, of which Jehovah spoke on that day, for you heard on that day that the Anakim were there with great fortified cities. It may be that Jehovah will be with me, and I will dispossess them, as Jehovah said.
+Now therefore give me this hill country, of which Jehovah spoke on that day, for you heard on that day that the [[Joshua-14.fn#Footnote 12.1 — Anakim|Anakim]] were there with great fortified cities. It may be that Jehovah will be with me, and I will dispossess them, as Jehovah said.
 
 ## v13
 
-So Joshua blessed him; and he gave Hebron to Caleb the son of Jephunneh as an inheritance.
+So Joshua blessed him; and he gave [[Joshua-14.fn#Footnote 13.1 — Hebron|Hebron]] to Caleb the son of Jephunneh as an inheritance.
 
 ## v14
 

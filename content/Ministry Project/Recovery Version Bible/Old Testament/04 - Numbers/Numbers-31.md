@@ -4,7 +4,7 @@ Then Jehovah spoke to Moses, saying,
 
 ## v2
 
-Thoroughly avenge the children of Israel on the Midianites; afterward you will be gathered to your people.
+Thoroughly avenge the children of Israel on the [[Numbers-31.fn#Footnote 2.1 — Midianites|Midianites]]; afterward you will be gathered to your people.
 
 ## v3
 
@@ -72,7 +72,7 @@ But all the little ones among the women, who have not known a male by lying with
 
 ## v19
 
-And you, encamp outside the camp seven days, everyone who has killed any person and everyone who has touched any slain; purify yourselves on the third day and on the seventh day, you and your captives.
+And you, encamp outside the camp seven days, everyone who has killed any person and everyone who has touched any slain; [[Numbers-31.fn#Footnote 19.1 — purify|purify]] yourselves on the [[Numbers-31.fn#Footnote 19.2 — third|third]] day and on the [[Numbers-31.fn#Footnote 19.2 — third|seventh]] day, you and your captives.
 
 ## v20
 
@@ -92,7 +92,7 @@ Everything that can go into the fire, you shall pass through the fire, and it wi
 
 ## v24
 
-And you shall wash your clothes on the seventh day, and you shall be clean; and afterward you may come into the camp.
+And you shall wash your [[Numbers-31.fn#Footnote 24.1 — clothes|clothes]] on the seventh day, and you shall be clean; and afterward you may come into the camp.
 
 ## v25
 
@@ -112,7 +112,7 @@ And levy a tribute to Jehovah from the men of war who went out to battle: one li
 
 ## v29
 
-Take it from their half and give it to Eleazar the priest, for Jehovah’s heave offering.
+Take it from their half and give it to [[Numbers-31.fn#Footnote 29.1 — Eleazar|Eleazar]] the priest, for Jehovah’s heave offering.
 
 ## v30
 
@@ -120,7 +120,7 @@ And of the children of Israel’s half, you shall take one seized out of fifty, 
 
 ## v31
 
-And Moses and Eleazar the priest did just as Jehovah commanded Moses.
+And Moses and Eleazar the priest did just as Jehovah [[Numbers-31.fn#Footnote 31.1 — commanded|commanded]] Moses.
 
 ## v32
 
@@ -196,7 +196,7 @@ And they said to Moses, Your servants have taken the sum of the men of war who a
 
 ## v50
 
-And we have presented Jehovah’s offering, what every man has obtained, articles of gold, armlets and bracelets, signet rings, earrings and pendants, to make expiation for our souls before Jehovah.
+And we have presented Jehovah’s offering, what every man has obtained, articles of gold, armlets and bracelets, signet rings, earrings and pendants, to make [[Numbers-31.fn#Footnote 50.1 — expiation|expiation]] for our souls before Jehovah.
 
 ## v51
 

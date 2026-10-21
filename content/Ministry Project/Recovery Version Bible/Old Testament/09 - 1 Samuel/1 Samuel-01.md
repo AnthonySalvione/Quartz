@@ -1,6 +1,6 @@
 ## v1
 
-Now there was a certain man from Ramathaim-zophim, from the hill country of Ephraim, and his name was Elkanah, the son of Jeroham, the son of Elihu, the son of Tohu, the son of Zuph, an Ephrathite.
+[[1 Samuel-01.fn#Footnote 1.1 — Now|Now]] there was a certain man from Ramathaim-zophim, from the hill country of Ephraim, and his name was Elkanah, the son of Jeroham, the son of Elihu, the son of Tohu, the son of Zuph, an Ephrathite.
 
 ## v2
 
@@ -16,7 +16,7 @@ And when the day came that Elkanah sacrificed, he would give portions to Peninna
 
 ## v5
 
-But he would give a double portion to Hannah, for it was Hannah whom he loved; but Jehovah had shut up her womb.
+But he would give a double portion to Hannah, for it was Hannah whom he loved; but [[1 Samuel-01.fn#Footnote 5.1 — Jehovah|Jehovah]] had shut up her womb.
 
 ## v6
 
@@ -24,7 +24,7 @@ And her rival provoked her bitterly to irritate her, because Jehovah had shut up
 
 ## v7
 
-And so it happened year after year; when she went up to the house of Jehovah, the other provoked her this way; and she wept and would not eat.
+And so it happened year after year; when she went up to the house of Jehovah, [[1 Samuel-01.fn#Footnote 7.1 — the|the]] other provoked her this way; and she wept and would not eat.
 
 ## v8
 
@@ -32,15 +32,15 @@ And Elkanah her husband said to her, Hannah, why are you weeping, and why do you
 
 ## v9
 
-Then after the eating and drinking in Shiloh, Hannah rose up. Now Eli the priest was sitting on his seat at the doorpost of the temple of Jehovah.
+Then after the eating and drinking in Shiloh, Hannah rose up. Now Eli the priest was sitting on his seat at the doorpost of the [[1 Samuel-01.fn#Footnote 9.1 — temple|temple]] of Jehovah.
 
 ## v10
 
-And she was bitter in soul and prayed to Jehovah and wept much.
+And she was bitter in soul and [[1 Samuel-01.fn#Footnote 10.1 — prayed|prayed]] to Jehovah and wept much.
 
 ## v11
 
-And she made a vow and said, O Jehovah of hosts, if You will indeed look upon the affliction of Your female servant and remember me and not forget Your female servant, but give to Your female servant a male child, then I will give him to Jehovah for all the days of his life, and no razor will come upon his head.
+And she made a vow and said, O Jehovah of hosts, if You will indeed look upon the affliction of Your female servant and remember me and not forget Your female servant, but give to Your female servant a male child, then I will give him to Jehovah for all the days of his life, and no [[1 Samuel-01.fn#Footnote 11.1 — razor|razor]] will come upon his head.
 
 ## v12
 
@@ -76,7 +76,7 @@ And they rose up early in the morning and worshipped before Jehovah; and they re
 
 ## v20
 
-And in due time Hannah conceived and bore a son; and she called his name Samuel, For, she said, I asked for him of Jehovah.
+And in due time Hannah conceived and bore a son; and she called his name [[1 Samuel-01.fn#Footnote 20.1 — Samuel|Samuel]], For, she said, I asked for him of Jehovah.
 
 ## v21
 
@@ -108,4 +108,4 @@ It was for this child that I prayed, and Jehovah has granted me my request that 
 
 ## v28
 
-Therefore I, for my part, have lent him to Jehovah; all the days that he lives, he is lent to Jehovah. And he worshipped Jehovah there.
+Therefore I, for my part, have [[1 Samuel-01.fn#Footnote 28.1 — lent|lent]] him to Jehovah; all the days that he lives, he is lent to Jehovah. And he worshipped Jehovah there.

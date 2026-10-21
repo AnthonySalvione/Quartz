@@ -52,7 +52,7 @@ Be strong and let us be bold for the sake of our people and for the sake of the 
 
 ## v14
 
-So Joab and the people who were with him approached the battle against the Syrians, and the Syrians fled before him.
+So Joab and the people who were with him approached the battle against the Syrians, and [[1 Chronicles-19.fn#Footnote 14.1 — the|the]] Syrians fled before him.
 
 ## v15
 
@@ -60,7 +60,7 @@ And the children of Ammon saw that the Syrians fled, and they also fled from bef
 
 ## v16
 
-Now when the Syrians saw that they had been routed before Israel, they sent messengers and brought forth the Syrians who were beyond the River with Shophach the captain of the army of Hadadezer before them.
+Now when the Syrians saw that they had been routed before Israel, they sent messengers and brought forth the Syrians who were beyond the [[1 Chronicles-19.fn#Footnote 16.1 — River|River]] with Shophach the captain of the army of Hadadezer before them.
 
 ## v17
 

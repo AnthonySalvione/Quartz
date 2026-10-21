@@ -1,6 +1,6 @@
 ## v1
 
-And Solomon began to build the house of Jehovah in Jerusalem on Mount Moriah, where He had appeared to David his father, at the place that David prepared, on the threshing floor of Ornan the Jebusite.
+And Solomon began to build the house of Jehovah in Jerusalem on [[2 Chronicles-03.fn#Footnote 1.1 — Mount|Mount]] Moriah, where He had appeared to David his father, at the place that David prepared, on the threshing floor of Ornan the Jebusite.
 
 ## v2
 
@@ -8,7 +8,7 @@ And he began to build on the second day of the second month in the fourth year o
 
 ## v3
 
-And these are the foundations which Solomon laid to build the house of God. The length in cubits, according to the former standard, was sixty cubits, and it was twenty cubits wide.
+And these are the foundations which Solomon laid to build the house of God. The [[2 Chronicles-03.fn#Footnote 3.1 — length|length]] in cubits, according to the former standard, was sixty cubits, and it was twenty cubits wide.
 
 ## v4
 
@@ -16,7 +16,7 @@ And the portico that was at the front was as long as the width of the house, twe
 
 ## v5
 
-And the greater house he overlaid with cypress wood, and he overlaid it with fine gold and put palm trees and chains on it.
+And the [[2 Chronicles-03.fn#Footnote 5.1 — greater|greater]] house he overlaid with cypress wood, and he overlaid it with fine gold and put palm trees and chains on it.
 
 ## v6
 
@@ -56,7 +56,7 @@ And he made the veil of blue and purple and crimson cloth and fine linen, and he
 
 ## v15
 
-And at the front of the house he made two pillars, thirty-five cubits high; and the capital that was on the top of each was five cubits high.
+And at the front of the house he made two [[2 Chronicles-03.fn#Footnote 15.1 — pillars|pillars]], thirty-five cubits high; and the capital that was on the top of each was five cubits high.
 
 ## v16
 
@@ -64,4 +64,4 @@ And he made chains in the innermost sanctuary and set them on the tops of the pi
 
 ## v17
 
-And he erected the pillars in front of the temple, one on the right and one on the left; and he called the name of the one on the right Jachin and the name of the one on the left Boaz.
+And he erected the pillars in front of the temple, one on the right and one on the left; and he called the name of the one on the right [[2 Chronicles-03.fn#Footnote 17.1 — Jachin|Jachin]] and the name of the one on the left [[2 Chronicles-03.fn#Footnote 17.2 — Boaz|Boaz]].

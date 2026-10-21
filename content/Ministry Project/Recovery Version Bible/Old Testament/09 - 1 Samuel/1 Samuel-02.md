@@ -1,6 +1,6 @@
 ## v1
 
-And Hannah prayed and said: / My heart exults in Jehovah; / My horn is exalted in Jehovah; / My mouth is enlarged against my enemies, / Because I rejoice in Your salvation.
+And Hannah prayed and said: / My heart exults in Jehovah; / My horn is exalted in Jehovah; / My mouth is enlarged against my enemies, / Because I rejoice in Your [[1 Samuel-02.fn#Footnote 1.1 — salvation|salvation]].
 
 ## v2
 
@@ -8,7 +8,7 @@ There is none holy like Jehovah, / For there is none besides You; / Nor is there
 
 ## v3
 
-Talk no more so very proudly; / Do not let arrogance go forth from your mouth; / For Jehovah is a God of knowledge, / And actions are weighed by Him.
+Talk no more so very proudly; / Do not let arrogance go forth from your mouth; / For Jehovah is a God of knowledge, / [[1 Samuel-02.fn#Footnote 3.1 — And|And]] actions are weighed by Him.
 
 ## v4
 
@@ -40,7 +40,7 @@ Those who strive with Jehovah will be shattered; / Against them He will thunder 
 
 ## v11
 
-And Elkanah went to Ramah to his house. And the child ministered to Jehovah before Eli the priest.
+And Elkanah went to Ramah to his house. And the child [[1 Samuel-02.fn#Footnote 11.1 — ministered|ministered]] to Jehovah before [[1 Samuel-02.fn#Footnote 11.2 — Eli|Eli]] the priest.
 
 ## v12
 
@@ -80,7 +80,7 @@ And Eli would bless Elkanah and his wife and say, May Jehovah give you seed by t
 
 ## v21
 
-And Jehovah visited Hannah, and she conceived and bore three sons and two daughters. And the boy Samuel grew before Jehovah.
+[[1 Samuel-02.fn#Footnote 21.1 — And|And]] Jehovah visited Hannah, and she conceived and bore three sons and two daughters. And the boy Samuel grew before Jehovah.
 
 ## v22
 
@@ -88,11 +88,11 @@ Now Eli was very old, and he heard of all that his sons did to all Israel and ho
 
 ## v23
 
-And he said to them, Why do you do such things? For I hear of your evil dealings from all this people.
+And he said to them, [[1 Samuel-02.fn#Footnote 23.1 — Why|Why]] do you do such things? For I hear of your evil dealings from all this people.
 
 ## v24
 
-No, my sons; for it is not a good report that I hear Jehovah’s people spreading.
+No, my sons; for it is not a good report [[1 Samuel-02.fn#Footnote 24.1 — that|that]] I hear Jehovah’s people spreading.
 
 ## v25
 
@@ -104,7 +104,7 @@ And the boy Samuel continued to grow in stature and in favor both with Jehovah a
 
 ## v27
 
-And a man of God came to Eli and said to him, Thus says Jehovah, I revealed Myself to the house of your father when they were in Egypt as slaves to Pharaoh’s house.
+And a man of God came to Eli and said to him, Thus says Jehovah, I revealed Myself to the house of your father when they were in Egypt [[1 Samuel-02.fn#Footnote 27.1 — as|as]] slaves to Pharaoh’s house.
 
 ## v28
 
@@ -124,11 +124,11 @@ The days are now coming when I will cut off your arm and the arm of the house of
 
 ## v32
 
-And you shall see the distress of My habitation in the midst of all the good that I will do to Israel, and there shall not be an old man in your house forever.
+And you shall see the distress of My habitation in the midst of all the good that [[1 Samuel-02.fn#Footnote 32.1 — I|I]] will do to Israel, and there shall not be an old man in your house forever.
 
 ## v33
 
-And that man of yours whom I do not cut off from My altar shall be left to consume your eyes and to grieve your soul, and all the increase of your house shall die by the swords of men.
+And that man of yours whom I do not cut off from My altar shall be left to consume your eyes and to grieve your soul, and all the increase of your house shall die [[1 Samuel-02.fn#Footnote 33.1 — by|by]] the swords of men.
 
 ## v34
 
@@ -136,7 +136,7 @@ And this will be the sign to you, which will come upon your two sons, upon Hophn
 
 ## v35
 
-And I will raise up for Myself a faithful priest, who will do according to what is in My heart and in My mind; and I will build him a sure house; and he will go before My anointed continually.
+And I will raise up for Myself a faithful [[1 Samuel-02.fn#Footnote 35.1 — priest|priest]], who will do according to what is in My [[1 Samuel-02.fn#Footnote 35.2 — heart|heart]] and in My [[1 Samuel-02.fn#Footnote 35.2 — heart|mind]]; and I will build him a sure house; and he will [[1 Samuel-02.fn#Footnote 35.3 — go|go]] before My anointed continually.
 
 ## v36
 

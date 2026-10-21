@@ -27,7 +27,7 @@ In burnt offerings and sacrifices for sin You did not delight.
 
 ## v7
 
-Then I said, Behold, I have come (in the roll of the book it is written concerning Me) to do Your will, O God.”
+Then I said, Behold, I have come (in the [[Hebrews-10.fn#Footnote 7.1 — roll|roll]] of the book it is written concerning Me) to do Your [[Hebrews-10.fn#Footnote 7.2 — will|will]], O God.”
 
 ## v8
 
@@ -35,19 +35,19 @@ Saying above, “Sacrifices and offerings and burnt offerings and sacrifices for
 
 ## v9
 
-He then has said, “Behold, I have come to do Your will.” He takes away the first that He may establish the second,
+He then has said, “Behold, I have come to do Your will.” He takes away the [[Hebrews-10.fn#Footnote 9.1 — first|first]] that He may establish the [[Hebrews-10.fn#Footnote 9.1 — first|second]],
 
 ## v10
 
-By which will we have been sanctified through the offering of the body of Jesus Christ once for all.
+By which will we have been sanctified through the offering of the body of Jesus Christ [[Hebrews-10.fn#Footnote 10.1 — once|once]] for all.
 
 ## v11
 
-And every priest stands daily, ministering and offering often the same sacrifices, which can never remove sins;
+And every priest [[Hebrews-10.fn#Footnote 11.1 — stands|stands]] daily, ministering and offering often the same sacrifices, which can never remove sins;
 
 ## v12
 
-But this One, having offered one sacrifice for sins, sat down forever on the right hand of God,
+But this One, having offered one sacrifice for sins, [[Hebrews-10.fn#Footnote 12.1 — sat|sat]] down [[Hebrews-10.fn#Footnote 12.2 — forever|forever]] on the right hand of God,
 
 ## v13
 
@@ -55,7 +55,7 @@ Henceforth waiting until His enemies are made the footstool for His feet.
 
 ## v14
 
-For by one offering He has perfected forever those who are being sanctified.
+For by one offering He has [[Hebrews-10.fn#Footnote 14.1 — perfected|perfected]] forever those who are being sanctified.
 
 ## v15
 
@@ -75,11 +75,11 @@ Now where forgiveness of these is, there is no longer an offering for sin.
 
 ## v19
 
-Having therefore, brothers, boldness for entering the Holy of Holies in the blood of Jesus,
+Having therefore, brothers, boldness for [[Hebrews-10.fn#Footnote 19.1 — entering|entering]] the Holy of Holies in the blood of Jesus,
 
 ## v20
 
-Which entrance He initiated for us as a new and living way through the veil, that is, His flesh,
+Which entrance He initiated for us as a [[Hebrews-10.fn#Footnote 20.1 — new|new]] and living way through the [[Hebrews-10.fn#Footnote 20.2 — veil|veil]], that is, His flesh,
 
 ## v21
 
@@ -87,7 +87,7 @@ And having a great Priest over the house of God,
 
 ## v22
 
-Let us come forward to the Holy of Holies with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience and having our bodies washed with pure water.
+[[Hebrews-10.fn#Footnote 22.1 — Let|Let]] us come forward to the Holy of Holies with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience and having our [[Hebrews-10.fn#Footnote 22.2 — bodies|bodies]] washed with [[Hebrews-10.fn#Footnote 22.2 — bodies|pure]] water.
 
 ## v23
 
@@ -99,11 +99,11 @@ And let us consider one another so as to incite one another to love and good wor
 
 ## v25
 
-Not abandoning our own assembling together, as the custom with some is, but exhorting one another; and so much the more as you see the day drawing near.
+Not [[Hebrews-10.fn#Footnote 25.1 — abandoning|abandoning]] our own [[Hebrews-10.fn#Footnote 25.2 — assembling|assembling]] together, as the custom with some is, but exhorting one another; and so much the more as you see the day drawing near.
 
 ## v26
 
-For when we sin willfully after receiving the knowledge of the truth, there no longer remains a sacrifice of bulls and goats for sins,
+For when we [[Hebrews-10.fn#Footnote 26.1 — sin|sin]] willfully after receiving the knowledge of the [[Hebrews-10.fn#Footnote 26.2 — truth|truth]], there [[Hebrews-10.fn#Footnote 26.3 — no|no]] longer remains a sacrifice of bulls and goats for sins,
 
 ## v27
 
@@ -115,11 +115,11 @@ Anyone who has set aside the law of Moses dies without compassion on the testimo
 
 ## v29
 
-By how much do you think he will be thought worthy of worse punishment who has trampled underfoot the Son of God and has considered the blood of the covenant by which he was sanctified a common thing and has insulted the Spirit of grace?
+By how much do you think he will be thought worthy of [[Hebrews-10.fn#Footnote 29.1 — worse|worse]] punishment who has [[Hebrews-10.fn#Footnote 29.2 — trampled|trampled]] underfoot the Son of God and has [[Hebrews-10.fn#Footnote 29.3 — considered|considered]] the blood of the covenant by which he was sanctified a common thing and has [[Hebrews-10.fn#Footnote 29.4 — insulted|insulted]] the Spirit of grace?
 
 ## v30
 
-For we know Him who said, “Vengeance is Mine; I will repay”; and again, “The Lord will judge His people.”
+For we know Him who said, “[[Hebrews-10.fn#Footnote 30.1 — Vengeance|Vengeance]] is Mine; I will repay”; and again, “The Lord will judge His people.”
 
 ## v31
 
@@ -131,19 +131,19 @@ But call to mind the former days, in which, having been enlightened, you endured
 
 ## v33
 
-On one hand, being made a spectacle both in reproaches and in afflictions, and on the other, having become partakers with those who are treated the same.
+On one hand, being made a [[Hebrews-10.fn#Footnote 33.1 — spectacle|spectacle]] both in reproaches and in afflictions, and on the other, having become partakers with those who are treated the same.
 
 ## v34
 
-For you both sympathized with those in bonds and accepted with joy the plundering of your possessions, knowing that you yourselves have a better possession and one that abides.
+For you both sympathized with those in bonds and accepted with joy the plundering of your possessions, knowing that you yourselves have a [[Hebrews-10.fn#Footnote 34.1 — better|better]] possession and one that abides.
 
 ## v35
 
-Do not cast away therefore your boldness, which has great reward.
+Do not cast away therefore your boldness, which has great [[Hebrews-10.fn#Footnote 35.1 — reward|reward]].
 
 ## v36
 
-For you have need of endurance in order that, having done the will of God, you may obtain the promise.
+For you have need of endurance in order that, having done the [[Hebrews-10.fn#Footnote 36.1 — will|will]] of God, you may obtain the [[Hebrews-10.fn#Footnote 36.2 — promise|promise]].
 
 ## v37
 
@@ -151,8 +151,8 @@ For you have need of endurance in order that, having done the will of God, you m
 
 ## v38
 
-But My righteous one shall live by faith; and if he shrinks back, My soul does not delight in him.”
+But My righteous one shall live by [[Hebrews-10.fn#Footnote 38.1 — faith|faith]]; and if he shrinks back, My soul does not delight in him.”
 
 ## v39
 
-But we are not of those who shrink back to ruin but of those who have faith to the gaining of the soul.
+But we are not of those who [[Hebrews-10.fn#Footnote 39.1 — shrink|shrink]] back to [[Hebrews-10.fn#Footnote 39.2 — ruin|ruin]] but of those who have faith to the [[Hebrews-10.fn#Footnote 39.3 — gaining|gaining]] of the soul.

@@ -1,10 +1,10 @@
 ## v1
 
-Now when all the kings of the Amorites, who were beyond the Jordan westward, and all the kings of the Canaanites, who were by the sea, heard that Jehovah had dried up the waters of the Jordan before the children of Israel until they crossed over, their hearts melted, and there was no longer any spirit in them because of the children of Israel.
+Now when all the kings of the Amorites, who were beyond the Jordan westward, and all the kings of the [[Joshua-05.fn#Footnote 1.1 — Canaanites|Canaanites]], who were by the sea, heard that Jehovah had dried up the waters of the Jordan before the children of Israel until [[Joshua-05.fn#Footnote 1.2 — they|they]] crossed over, their hearts melted, and there was no longer any spirit in them because of the children of Israel.
 
 ## v2
 
-At that time Jehovah said to Joshua, Make knives of flint, and circumcise again the children of Israel a second time.
+At that time Jehovah said to Joshua, Make knives of flint, and [[Joshua-05.fn#Footnote 2.1 — circumcise|circumcise]] again the children of Israel a second time.
 
 ## v3
 
@@ -16,7 +16,7 @@ And this is the reason Joshua circumcised them: All the people who came out of E
 
 ## v5
 
-Although all the people who came out were circumcised, all the people who were born in the wilderness on the way, after the others had come out of Egypt, had not been circumcised.
+Although all the people who came out were circumcised, all the people who were born in the wilderness on the way, after [[Joshua-05.fn#Footnote 5.1 — the|the]] others had come out of Egypt, had not been circumcised.
 
 ## v6
 
@@ -32,11 +32,11 @@ And when they had finished circumcising the whole nation, they remained in their
 
 ## v9
 
-Then Jehovah said to Joshua, Today I have rolled away the reproach of Egypt from off you. So the name of that place has been called Gilgal to this day.
+Then Jehovah said to Joshua, Today I have rolled away the reproach of Egypt from off you. So the name of that place has been called [[Joshua-05.fn#Footnote 9.1 — Gilgal|Gilgal]] to this day.
 
 ## v10
 
-And the children of Israel camped in Gilgal; and they held the Passover on the fourteenth day of the month in the evening on the plains of Jericho.
+And the children of Israel camped in Gilgal; and they held the [[Joshua-05.fn#Footnote 10.1 — Passover|Passover]] on the fourteenth day of the month in the evening on the plains of Jericho.
 
 ## v11
 
@@ -44,11 +44,11 @@ And on the day after the Passover, on that very day, they ate of the produce of 
 
 ## v12
 
-And the manna ceased on that day, when they ate of the produce of the land; and there was no longer manna for the children of Israel, but they ate of the yield of the land of Canaan that year.
+And the [[Joshua-05.fn#Footnote 12.1 — manna|manna]] ceased on that day, when they ate of the produce of the land; and there was no longer manna for the children of Israel, but they ate of the yield of the land of Canaan that year.
 
 ## v13
 
-Now once, when Joshua was by Jericho, he lifted up his eyes and looked; and behold, there was a man standing opposite him, and His sword was drawn in His hand. And Joshua went to Him and said to Him, Are You for us or for our adversaries?
+Now once, when Joshua was by Jericho, he lifted up his eyes and looked; and behold, there was a [[Joshua-05.fn#Footnote 13.1 — man|man]] standing opposite him, and His sword was drawn in His hand. And Joshua went to Him and said to Him, Are You for us or for our adversaries?
 
 ## v14
 

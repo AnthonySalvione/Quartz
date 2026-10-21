@@ -89,7 +89,7 @@ And like a hut that a watchman makes.
 
 ## v19
 
-He lies down rich but will be rich no more;  
+He lies down rich but [[Job-27.fn#Footnote 19.1 — will|will]] be rich no more;  
 He opens his eyes, and he is not.
 
 ## v20

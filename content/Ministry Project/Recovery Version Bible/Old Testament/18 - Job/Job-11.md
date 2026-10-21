@@ -30,7 +30,7 @@ Know then that God has forgotten some of your iniquity.
 
 ## v7
 
-Can you find out the depths of God?  
+Can you find out the [[Job-11.fn#Footnote 7.1 — depths|depths]] of God?  
 Can you find out the limit of the Almighty?
 
 ## v8
@@ -55,7 +55,7 @@ And He sees iniquity without considering it.
 
 ## v12
 
-But an empty-headed man acquires intelligence  
+But an [[Job-11.fn#Footnote 12.1 — empty-headed|empty-headed]] man acquires intelligence  
 When the foal of a wild ass is born as a man.
 
 ## v13

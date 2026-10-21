@@ -1,6 +1,6 @@
 ## v1
 
-And at the end of two full years Pharaoh had a dream, and there he was, standing by the River.
+And at the end of [[Genesis-41.fn#Footnote 1.1 — two|two]] full years Pharaoh had a dream, and there he was, standing by the [[Genesis-41.fn#Footnote 1.2 — River|River]].
 
 ## v2
 
@@ -48,11 +48,11 @@ And a young Hebrew man was there with us, a servant of the captain of the guard.
 
 ## v13
 
-And as he interpreted to us, so it happened; Pharaoh restored me to my office, and he hanged the baker.
+And as he interpreted to us, so it happened; [[Genesis-41.fn#Footnote 13.1 — Pharaoh|Pharaoh]] restored me to my office, and he hanged the [[Genesis-41.fn#Footnote 13.2 — baker|baker]].
 
 ## v14
 
-Then Pharaoh sent and called for Joseph, and they brought him hastily out of the dungeon; and he shaved himself and changed his garments, and he came to Pharaoh.
+Then Pharaoh sent and called for Joseph, and they brought him hastily out of the [[Genesis-41.fn#Footnote 14.1 — dungeon|dungeon]]; and he shaved himself and changed his garments, and he came to Pharaoh.
 
 ## v15
 
@@ -60,7 +60,7 @@ And Pharaoh said to Joseph, I have had a dream, but there is no one who can inte
 
 ## v16
 
-And Joseph answered Pharaoh, saying, It is not of me; God will give Pharaoh a favorable answer.
+And Joseph answered Pharaoh, saying, It is not of me; God [[Genesis-41.fn#Footnote 16.1 — will|will]] give Pharaoh a favorable answer.
 
 ## v17
 
@@ -156,7 +156,7 @@ And Pharaoh said to Joseph, Since God let you know all this, there is no one as 
 
 ## v40
 
-You shall be over my household, and according to your word all my people shall be ruled; only in the throne will I be greater than you.
+You shall be [[Genesis-41.fn#Footnote 40.1 — over|over]] my household, and according to your word all my people shall be ruled; only in the throne will I be greater than you.
 
 ## v41
 
@@ -164,7 +164,7 @@ Then Pharaoh said to Joseph, See, I have set you over all the land of Egypt.
 
 ## v42
 
-And Pharaoh took off his signet ring from his hand and put it upon Joseph’s hand, and clothed him in garments of fine linen, and put a gold chain around his neck.
+And Pharaoh took off his [[Genesis-41.fn#Footnote 42.1 — signet|signet]] ring from his hand and put it upon Joseph’s hand, and clothed him in [[Genesis-41.fn#Footnote 42.1 — signet|garments]] of fine linen, and put a [[Genesis-41.fn#Footnote 42.1 — signet|gold]] chain around his neck.
 
 ## v43
 
@@ -176,7 +176,7 @@ And Pharaoh said to Joseph, I am Pharaoh, yet without your consent no man will l
 
 ## v45
 
-And Pharaoh called Joseph’s name Zaphenath-paneah, and he gave him Asenath, the daughter of Potiphera priest of On, as his wife. And Joseph went out over the land of Egypt.
+And Pharaoh called Joseph’s name [[Genesis-41.fn#Footnote 45.1 — Zaphenath-paneah|Zaphenath-paneah]], and he gave him [[Genesis-41.fn#Footnote 45.2 — Asenath|Asenath]], the daughter of Potiphera priest of On, as his wife. And Joseph went out over the land of Egypt.
 
 ## v46
 
@@ -200,11 +200,11 @@ And before the year of famine came, two sons were born to Joseph, whom Asenath, 
 
 ## v51
 
-And Joseph called the name of the firstborn Manasseh, for, he said, God has made me forget all my trouble and all my father’s house.
+And Joseph called the name of the firstborn [[Genesis-41.fn#Footnote 51.1 — Manasseh|Manasseh]], for, he said, God has made me forget all my trouble and all my father’s house.
 
 ## v52
 
-And he called the name of the second Ephraim, for, he said, God has made me fruitful in the land of my affliction.
+And he called the name of the second [[Genesis-41.fn#Footnote 52.1 — Ephraim|Ephraim]], for, he said, God has made me fruitful in the land of my affliction.
 
 ## v53
 
@@ -220,7 +220,7 @@ So when all the land of Egypt became hungry, the people cried out to Pharaoh for
 
 ## v56
 
-And when the famine was over all the face of the earth, Joseph opened all the storehouses of grain and sold grain to the Egyptians; and the famine became severe in the land of Egypt.
+And when the famine was over [[Genesis-41.fn#Footnote 56.1 — all|all]] the face of the earth, Joseph opened [[Genesis-41.fn#Footnote 56.2 — all|all]] the storehouses of grain and sold grain to the Egyptians; and the famine became severe in the land of Egypt.
 
 ## v57
 

@@ -4,7 +4,7 @@ And the divisions of the sons of Aaron were these: the sons of Aaron: Nadab and 
 
 ## v2
 
-But Nadab and Abihu died before their father and had no children; therefore Eleazar and Ithamar served as priests.
+But [[1 Chronicles-24.fn#Footnote 2.1 — Nadab|Nadab]] and Abihu died before their father and had no children; therefore Eleazar and Ithamar served as priests.
 
 ## v3
 

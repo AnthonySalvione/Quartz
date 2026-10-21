@@ -16,7 +16,7 @@ And they gave him seventy pieces of silver from the house of Baal-berith. And wi
 
 ## v5
 
-And he went to his father’s house in Ophrah and slew his brothers, the sons of Jerubbaal, seventy men, on one stone; but Jotham, the youngest son of Jerubbaal, was left, for he hid himself.
+And he went to his father’s house in Ophrah and [[Judges-09.fn#Footnote 5.1 — slew|slew]] his brothers, the sons of Jerubbaal, seventy men, on one stone; but Jotham, the youngest son of Jerubbaal, was left, for he hid himself.
 
 ## v6
 
@@ -28,7 +28,7 @@ And when Jotham was told, he went and stood on the top of Mount Gerizim and lift
 
 ## v8
 
-The trees once went forth to anoint a king over themselves. And they said to the olive tree, Reign over us.
+The trees once went forth to anoint a king over themselves. And they said to the [[Judges-09.fn#Footnote 8.1 — olive|olive]] tree, Reign over us.
 
 ## v9
 
@@ -36,7 +36,7 @@ But the olive tree said to them, Shall I leave my fatness, because of which God 
 
 ## v10
 
-Then the trees said to the fig tree, You come and reign over us.
+Then the trees said to the [[Judges-09.fn#Footnote 10.1 — fig|fig]] tree, You come and reign over us.
 
 ## v11
 
@@ -44,7 +44,7 @@ But the fig tree said to them, Shall I leave my sweetness and my good fruit, and
 
 ## v12
 
-Then the trees said to the vine, You come and reign over us.
+Then the trees said to the [[Judges-09.fn#Footnote 12.1 — vine|vine]], You come and reign over us.
 
 ## v13
 
@@ -92,7 +92,7 @@ And God sent an evil spirit between Abimelech and the lords of Shechem, and the 
 
 ## v24
 
-So that the violence done to the seventy sons of Jerubbaal might be avenged and so that their blood might be put upon Abimelech their brother, who slew them, and upon the lords of Shechem, who strengthened his hands to slay his brothers.
+So that the violence done to the seventy sons of Jerubbaal [[Judges-09.fn#Footnote 24.1 — might|might]] be avenged and so that their blood might be put upon Abimelech their brother, who slew them, and upon the lords of Shechem, who strengthened his hands to slay his brothers.
 
 ## v25
 
@@ -108,7 +108,7 @@ And they went out into the field and gathered the grapes of their vineyards and 
 
 ## v28
 
-And Gaal the son of Ebed said, Who is Abimelech and who are we of Shechem, that we should serve him? Is he not the son of Jerubbaal, and is not Zebul his officer? Serve the men of Hamor, the father of Shechem; but why should we serve this man?
+And Gaal the son of Ebed said, Who is Abimelech and who are we of Shechem, that we should serve him? Is he not the son of Jerubbaal, and is not Zebul his officer? Serve the men of Hamor, the father of Shechem; but why should we serve [[Judges-09.fn#Footnote 28.1 — this|this]] man?
 
 ## v29
 
@@ -120,7 +120,7 @@ When Zebul the ruler of the city heard the words of Gaal the son of Ebed, his an
 
 ## v31
 
-And he sent messengers to Abimelech in Tormah, saying, Gaal the son of Ebed and his brothers have now come to Shechem, and now they are stirring up the city against you.
+And he sent messengers to Abimelech in [[Judges-09.fn#Footnote 31.1 — Tormah|Tormah]], saying, Gaal the son of Ebed and his brothers have now come to Shechem, and now they are stirring up the city against you.
 
 ## v32
 
@@ -156,7 +156,7 @@ So Gaal went out before the lords of Shechem and fought with Abimelech.
 
 ## v40
 
-And Abimelech pursued him, and Gaal fled from before him. And many wounded fell, up to the entrance of the gate.
+And Abimelech pursued him, and [[Judges-09.fn#Footnote 40.1 — Gaal|Gaal]] fled from before him. And many wounded fell, up to the entrance of the gate.
 
 ## v41
 

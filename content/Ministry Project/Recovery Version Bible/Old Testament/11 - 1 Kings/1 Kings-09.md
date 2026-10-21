@@ -1,6 +1,6 @@
 ## v1
 
-And when Solomon had finished building the house of Jehovah and the king’s house and everything that Solomon desired to make,
+And when [[1 Kings-09.fn#Footnote 1.1 — Solomon|Solomon]] had finished building the house of Jehovah and the king’s house and everything that Solomon desired to make,
 
 ## v2
 
@@ -28,7 +28,7 @@ Then I will cut Israel off from the face of the land which I have given them, an
 
 ## v8
 
-And this house will become heaps, and everyone who passes by it will be astonished and hiss and say, Why has Jehovah done this to this land and to this house?
+And this house will become [[1 Kings-09.fn#Footnote 8.1 — heaps|heaps]], and everyone who passes by it will be astonished and hiss and say, Why has Jehovah done this to this land and to this house?
 
 ## v9
 
@@ -56,7 +56,7 @@ And Hiram sent to the king one hundred and twenty talents of gold.
 
 ## v15
 
-Now this is the account of the forced labor which King Solomon levied to build the house of Jehovah and his own house and the Millo and the wall of Jerusalem, and Hazor and Megiddo and Gezer.
+Now this is the account of the forced labor which King Solomon levied to build the house of Jehovah and his own house and the [[1 Kings-09.fn#Footnote 15.1 — Millo|Millo]] and the wall of Jerusalem, and Hazor and Megiddo and Gezer.
 
 ## v16
 
@@ -92,7 +92,7 @@ These were the chief of the officers over Solomon’s work, five hundred and fif
 
 ## v24
 
-As soon as Pharaoh’s daughter came up from the city of David into her house which Solomon had built for her, he built the Millo.
+As soon as Pharaoh’s daughter came up from the city of David into her house which [[1 Kings-09.fn#Footnote 24.1 — Solomon|Solomon]] had built for her, he built the Millo.
 
 ## v25
 

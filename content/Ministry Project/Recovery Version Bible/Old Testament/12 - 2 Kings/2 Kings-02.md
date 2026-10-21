@@ -1,6 +1,6 @@
 ## v1
 
-And when Jehovah was about to take up Elijah by a whirlwind into heaven, Elijah went with Elisha from Gilgal.
+And when Jehovah was about to take up Elijah by a whirlwind into heaven, [[2 Kings-02.fn#Footnote 1.1 — Elijah|Elijah]] went with [[2 Kings-02.fn#Footnote 1.1 — Elijah|Elisha]] from Gilgal.
 
 ## v2
 
@@ -28,7 +28,7 @@ And fifty men from the sons of the prophets went and stood opposite them at a di
 
 ## v8
 
-And Elijah took his mantle and wrapped it together and struck the water; and it parted to this side and that, so that the two of them crossed over on dry ground.
+And Elijah took his [[2 Kings-02.fn#Footnote 8.1 — mantle|mantle]] and wrapped it together and struck the water; and it parted to this side and that, so that the two of them crossed over on dry ground.
 
 ## v9
 
@@ -40,11 +40,11 @@ And he said, You have asked a hard thing. If you see me when I am taken from you
 
 ## v11
 
-And as they went on and talked, suddenly a chariot of fire and horses of fire appeared; and they separated the two of them. And Elijah went up by a whirlwind into heaven.
+And as they went on and talked, suddenly a chariot of fire and horses of fire appeared; and they separated the two of them. And Elijah [[2 Kings-02.fn#Footnote 11.1 — went|went]] up by a whirlwind into heaven.
 
 ## v12
 
-And Elisha saw it and cried, My father, my father, the chariot of Israel and its horsemen! And he did not see him anymore. And he grasped his clothes and tore them in two pieces.
+And Elisha saw it and cried, My father, my father, the chariot of Israel and its horsemen! And he did not see him anymore. And he grasped his clothes and [[2 Kings-02.fn#Footnote 12.1 — tore|tore]] them in two pieces.
 
 ## v13
 
@@ -56,7 +56,7 @@ And he took Elijah’s mantle, which had fallen from him, and struck the water a
 
 ## v15
 
-And when the sons of the prophets who were at Jericho opposite him saw him, they said, The spirit of Elijah rests on Elisha. And they came to meet him and bowed themselves to the ground before him.
+And when the sons of the prophets who were at Jericho opposite him saw him, they said, The [[2 Kings-02.fn#Footnote 15.1 — spirit|spirit]] of Elijah rests on Elisha. And they came to meet him and bowed themselves to the ground before him.
 
 ## v16
 
@@ -80,7 +80,7 @@ And he said, Bring me a new jar, and put salt in it. And they brought it to him.
 
 ## v21
 
-And he went out to the source of the water and threw salt there; and he said, Thus says Jehovah, I have healed this water; there will not be any more death or barrenness from there.
+And he went out to the source of the water and threw salt there; and he said, Thus says Jehovah, I have [[2 Kings-02.fn#Footnote 21.1 — healed|healed]] this water; there will not be any more death or barrenness from there.
 
 ## v22
 
@@ -92,7 +92,7 @@ And he went up from there to Bethel. And as he was going up on the way, some lit
 
 ## v24
 
-And he turned around and looked at them and cursed them in the name of Jehovah. Then two female bears came out of the woods and tore up forty-two children among them.
+And he turned around and looked at them and [[2 Kings-02.fn#Footnote 24.1 — cursed|cursed]] them in the name of Jehovah. Then two female bears came out of the woods and tore up forty-two children among them.
 
 ## v25
 

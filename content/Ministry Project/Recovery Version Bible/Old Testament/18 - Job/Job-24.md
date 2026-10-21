@@ -120,7 +120,7 @@ He arises, and no one is certain of life.
 
 ## v23
 
-He grants a man to be secure, and he rests on it;  
+He grants [[Job-24.fn#Footnote 23.1 — a|a]] man to be secure, and he rests on it;  
 And His eyes are upon their ways.
 
 ## v24

@@ -1,6 +1,6 @@
 ## v1
 
-And these are the children of Israel by their number, the heads of fathers’ houses, and the captains of thousands and of hundreds, and their officers who served the king in all the matters of the divisions that came in and went out month by month throughout all the months of the year; for every division there were twenty-four thousand.
+And these are the children of Israel by their number, the heads of fathers’ houses, and the captains of thousands and of hundreds, and their officers who [[1 Chronicles-27.fn#Footnote 1.1 — served|served]] the king in all the matters of the divisions that came in and went out month by month throughout all the months of the year; for every division there were twenty-four thousand.
 
 ## v2
 
@@ -60,7 +60,7 @@ The twelfth for the twelfth month was Heldai the Netophathite, of Othniel; and i
 
 ## v16
 
-And over the tribes of Israel were these: for the Reubenites was Eliezer the son of Zichri, the leader; for the Simeonites, Shephatiah the son of Maacah;
+And [[1 Chronicles-27.fn#Footnote 16.1 — over|over]] the tribes of Israel were these: for the Reubenites was Eliezer the son of Zichri, the leader; for the Simeonites, Shephatiah the son of Maacah;
 
 ## v17
 
