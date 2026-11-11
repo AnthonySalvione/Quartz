@@ -15,4 +15,4 @@ chapter_num: 4
 
 **Verse:** [[Esther-04#v3|Esther 4:3]]
 
-Although they fasted in their supplication to God ([[Esther-04#v3|vv. 3]], [[Esther-04#v16|16]]), in this verse there is no mention of the name of God, contrary to what would be expected. See note 11 in [[Esther-01|Esther 1]].
+Although they fasted in their supplication to God ([[Esther-04#v3|vv. 3]], [[Esther-04#v16|16]]), in this verse there is no mention of the name of God, contrary to what would be expected. See [note 1¹](<Esther-01.fn#Footnote 1.1 — Now>) in [[Esther-01|Esther 1]].

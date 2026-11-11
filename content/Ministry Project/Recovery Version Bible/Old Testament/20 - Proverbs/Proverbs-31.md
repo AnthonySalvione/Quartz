@@ -127,7 +127,7 @@ And she happily looks forward to the time to come.
 ## v26
 
 She opens her mouth with wisdom,  
-And the law of kindness is on her tongue.
+And the [[Proverbs-31.fn#Footnote 26.1 — law|law]] of kindness is on her tongue.
 
 ## v27
 

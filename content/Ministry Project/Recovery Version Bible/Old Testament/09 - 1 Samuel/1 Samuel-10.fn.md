@@ -47,7 +47,7 @@ Some MSS read, to Him.
 
 **Verse:** [[1 Samuel-10#v20|1 Samuel 10:20]]
 
-Saul was made king by the casting of lots ([[1 Samuel-10#v20|vv. 20-23a]]) to prove that he was chosen by God. Cf. note 21 in [[Joshua-14|Josh. 14]].
+Saul was made king by the casting of lots ([[1 Samuel-10#v20|vv. 20-23a]]) to prove that he was chosen by God. Cf. [note 2¹](<Joshua-14.fn#Footnote 2.1 — lot>) in [[Joshua-14|Josh. 14]].
 
 ## Footnotes for verse 25
 

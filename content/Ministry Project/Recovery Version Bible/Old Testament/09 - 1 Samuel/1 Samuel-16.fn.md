@@ -55,7 +55,7 @@ After being chosen by God ([[1 Samuel-16#v1|vv. 1-10]]), David was trained by Go
 
 **Verse:** [[1 Samuel-16#v13|1 Samuel 16:13]]
 
-The rushing of the Spirit upon David was a confirmation of Samuel’s anointing David with oil. It was related not to life for salvation but to power for outward activities (see notes 493 in [[Luke-24|Luke 24]] and 21 in [[Acts-02|Acts 2]]). The Spirit of Jehovah departing from Saul and an evil spirit from Jehovah terrorizing him ([[1 Samuel-16#v14|v. 14]]) were a further confirmation that God had chosen someone other than him.
+The rushing of the Spirit upon David was a confirmation of Samuel’s anointing David with oil. It was related not to life for salvation but to power for outward activities (see notes [49³](<Luke-24.fn#Footnote 49.3 — put>) in [[Luke-24|Luke 24]] and [2¹](<Acts-02.fn#Footnote 2.1 — wind>) in [[Acts-02|Acts 2]]). The Spirit of Jehovah departing from Saul and an evil spirit from Jehovah terrorizing him ([[1 Samuel-16#v14|v. 14]]) were a further confirmation that God had chosen someone other than him.
 
 ### Footnote 13.2 — David
 

@@ -1,6 +1,6 @@
 ## v1
 
-The word which Jehovah spoke concerning Babylon, concerning the land of the Chaldeans, through Jeremiah the prophet:
+The word which Jehovah spoke concerning [[Jeremiah-50.fn#Footnote 1.1 — Babylon|Babylon]], concerning the land of the Chaldeans, through Jeremiah the prophet:
 
 ## v2
 
@@ -8,14 +8,14 @@ Declare among the nations and proclaim; /
 Lift up a banner, proclaim it. /  
 Do not conceal it, but say, /  
 Babylon is captured; /  
-Bel is put to shame; /  
-Merodach is shattered; /  
+[[Jeremiah-50.fn#Footnote 2.1 — Bel|Bel]] is put to shame; /  
+[[Jeremiah-50.fn#Footnote 2.1 — Bel|Merodach]] is shattered; /  
 Her images are put to shame; /  
 Her idols are dismayed.
 
 ## v3
 
-For a nation has come up against her from the north; /  
+For a [[Jeremiah-50.fn#Footnote 3.1 — nation|nation]] has come up against her from the north; /  
 It will make her land a waste, /  
 And there will be no inhabitant in it; /  
 Both man and beast have fled; they are gone away.
@@ -48,12 +48,12 @@ They have forgotten their resting place.
 All who found them have devoured them, /  
 And their adversaries have said, We are not guilty, /  
 Because they have sinned against Jehovah, /  
-The habitation of righteousness, /  
+The [[Jeremiah-50.fn#Footnote 7.1 — habitation|habitation]] of righteousness, /  
 Even Jehovah, the hope of their fathers.
 
 ## v8
 
-Flee from the midst of Babylon, /  
+[[Jeremiah-50.fn#Footnote 8.1 — Flee|Flee]] from the midst of Babylon, /  
 And go out from the land of the Chaldeans, /  
 And be as male goats /  
 Before the flock.
@@ -105,7 +105,7 @@ Because she has sinned against Jehovah.
 Raise a shout against her all around. /  
 She has surrendered; her buttresses have fallen, /  
 Her walls have been torn down; /  
-For this is the vengeance of Jehovah: /  
+For this is the [[Jeremiah-50.fn#Footnote 15.1 — vengeance|vengeance]] of Jehovah: /  
 Take vengeance on her; /  
 As she has done, so do to her.
 
@@ -146,7 +146,7 @@ For I will forgive those whom I will leave as a remnant.
 
 ## v21
 
-Go up against her, against the land of Merathaim /  
+Go up against her, against the land of [[Jeremiah-50.fn#Footnote 21.1 — Merathaim|Merathaim]] /  
 And against the inhabitants of Pekod. /  
 Desolate and utterly destroy them, declares Jehovah, /  
 And do according to all that I commanded you.
@@ -198,11 +198,11 @@ There is a sound of those who flee and escape /
 From the land of Babylon, /  
 To declare in Zion /  
 The vengeance of Jehovah our God, /  
-The vengeance for His temple.
+The [[Jeremiah-50.fn#Footnote 28.1 — vengeance|vengeance]] for His temple.
 
 ## v29
 
-Summon archers against Babylon, /  
+Summon [[Jeremiah-50.fn#Footnote 29.1 — archers|archers]] against Babylon, /  
 All those who bend the bow. /  
 Encamp against her all around; /  
 Let there be no escape. /  
@@ -219,7 +219,7 @@ Declares Jehovah.
 
 ## v31
 
-Indeed, I am against you, O Pride, /  
+Indeed, I am against you, O [[Jeremiah-50.fn#Footnote 31.1 — Pride|Pride]], /  
 Declares the Lord Jehovah of hosts; /  
 For your day has come, /  
 The time that I punish you.
@@ -260,7 +260,7 @@ The sword is against her mighty men, and they will be dismayed.
 
 ## v37
 
-The sword is against their horses and against their chariots /  
+The sword is against [[Jeremiah-50.fn#Footnote 37.1 — their|their]] horses and against [[Jeremiah-50.fn#Footnote 37.1 — their|their]] chariots /  
 And against all the mingled people who are in her midst, /  
 And they will become like women. /  
 The sword is against her treasuries, /  

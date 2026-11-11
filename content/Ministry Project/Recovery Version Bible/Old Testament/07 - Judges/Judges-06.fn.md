@@ -15,7 +15,7 @@ chapter_num: 6
 
 **Verse:** [[Judges-06#v11|Judges 6:11]]
 
-See note 11, par. 1, in [[Judges-02|Judges 2]].
+See [note 1¹](<Judges-02.fn#Footnote 1.1 — Angel>), par. 1, in [[Judges-02|Judges 2]].
 
 ## Footnotes for verse 14
 
@@ -23,7 +23,7 @@ See note 11, par. 1, in [[Judges-02|Judges 2]].
 
 **Verse:** [[Judges-06#v14|Judges 6:14]]
 
-The Angel of Jehovah is Jehovah Himself ([[Judges-06#v11|vv. 11-14]], [[Judges-06#v21|21-23]]). See note 21 in [[Exodus-03|Exo. 3]].
+The Angel of Jehovah is Jehovah Himself ([[Judges-06#v11|vv. 11-14]], [[Judges-06#v21|21-23]]). See [note 2¹](<Exodus-03.fn#Footnote 2.1 — Angel>) in [[Exodus-03|Exo. 3]].
 
 ## Footnotes for verse 20
 

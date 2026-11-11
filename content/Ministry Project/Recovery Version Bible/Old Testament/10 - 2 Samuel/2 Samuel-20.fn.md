@@ -39,4 +39,4 @@ Lit., he.
 
 **Verse:** [[2 Samuel-20#v26|2 Samuel 20:26]]
 
-Lit., priest. See note 18³ in [[2 Samuel-08|2 Samuel 8]].
+Lit., priest. See [note 18³](<2 Samuel-08.fn#Footnote 18.3 — chief>) in [[2 Samuel-08|2 Samuel 8]].

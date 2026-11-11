@@ -3,7 +3,7 @@
 Thus says Jehovah, /  
 Heaven is My throne, /  
 And the earth the footstool for My feet. /  
-Where then is the house that you will build for Me, /  
+Where then is the [[Isaiah-66.fn#Footnote 1.1 — house|house]] that you will build for Me, /  
 And where is the place of My rest?
 
 ## v2
@@ -91,7 +91,7 @@ In the abundance of her glory.
 For thus says Jehovah, /  
 I now am extending to her /  
 Peace like a river, /  
-And the glory of the nations /  
+And the [[Isaiah-66.fn#Footnote 12.1 — glory|glory]] of the nations /  
 Like an overflowing stream; /  
 And you will nurse, /  
 You will be carried on the hip, /  
@@ -133,7 +133,7 @@ Will come to an end together, declares Jehovah.
 
 ## v18
 
-But I — their works and their thoughts I will repay; /  
+But [[Isaiah-66.fn#Footnote 18.1 — I|I]] — their works and their thoughts I will repay; /  
 The time is coming to gather all the nations and tongues; /  
 And they will come and see My glory.
 
@@ -142,14 +142,14 @@ And they will come and see My glory.
 And I will set a sign among them /  
 And will send those who have escaped from them unto the nations: /  
 To Tarshish, Put, and Lud, to those who draw the bow; /  
-To Tubal and Javan, /  
+To Tubal and [[Isaiah-66.fn#Footnote 19.1 — Javan|Javan]], /  
 To the distant coastlands that have not heard My fame nor seen My glory; /  
 And they will declare My glory among the nations.
 
 ## v20
 
 And they will bring all your brothers from all the nations /  
-As a meal offering to Jehovah, /  
+As a [[Isaiah-66.fn#Footnote 20.1 — meal|meal]] offering to Jehovah, /  
 On horses and in chariots and in wagons and on mules and on camels, /  
 To My holy mountain, Jerusalem, says Jehovah, /  
 Just as the children of Israel bring their meal offering /  
@@ -162,7 +162,7 @@ And for Levites, says Jehovah.
 
 ## v22
 
-For as the new heavens /  
+For as the [[Isaiah-66.fn#Footnote 22.1 — new|new]] heavens /  
 And new earth, which I make, /  
 Remain before Me, declares Jehovah, /  
 So will your seed and your name remain.

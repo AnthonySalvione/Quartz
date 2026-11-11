@@ -4,7 +4,7 @@ Indeed a day is coming for Jehovah when the spoil taken from you will be divided
 
 ## v2
 
-For I will gather all the nations against Jerusalem to battle; and the city will be captured, and the houses plundered, and the women ravished; and half of the city will go forth into captivity, but the rest of the people will not be cut off from the city.
+For I will gather all the nations against Jerusalem to battle; and the city will be captured, and the houses plundered, and the women ravished; and [[Zechariah-14.fn#Footnote 2.1 — half|half]] of the city will go forth into captivity, but the rest of the people will not be cut off from the city.
 
 ## v3
 
@@ -12,15 +12,15 @@ Then Jehovah will go forth and fight against those nations, as when He fights in
 
 ## v4
 
-And His feet will stand in that day on the Mount of Olives, which is before Jerusalem on the east; and the Mount of Olives will be split at its middle toward the east and toward the west into a very great valley, so that half of the mountain will remove to the north and half of it to the south.
+And His [[Zechariah-14.fn#Footnote 4.1 — feet|feet]] will stand in that day on the Mount of Olives, which is before Jerusalem on the east; and the Mount of Olives will be split at its middle toward the east and toward the west into a very great valley, so that half of the mountain will remove to the north and half of it to the south.
 
 ## v5
 
-And you will flee into the valley of My mountains, for the valley of the mountains will reach unto Azel; yes, you will flee, just as you fled before the earthquake in the days of Uzziah the king of Judah. And Jehovah my God will come, and all the saints with Him.
+And you will flee into the valley of My mountains, for the valley of the mountains will reach unto Azel; yes, you will flee, just as you fled before the earthquake in the days of Uzziah the king of Judah. And Jehovah my God will come, and all the saints with [[Zechariah-14.fn#Footnote 5.1 — Him|Him]].
 
 ## v6
 
-And in that day there will be no light; the shining ones will withdraw.
+And in that day there will be no light; [[Zechariah-14.fn#Footnote 6.1 — the|the]] shining ones will withdraw.
 
 ## v7
 
@@ -28,11 +28,11 @@ For it will be a kind of day known only to Jehovah, neither day nor night; but a
 
 ## v8
 
-And in that day living waters will go forth from Jerusalem; half of them toward the eastern sea and half of them toward the western sea; it will be there in summer and in winter.
+And in that day [[Zechariah-14.fn#Footnote 8.1 — living|living]] waters will go forth from Jerusalem; half of them toward the [[Zechariah-14.fn#Footnote 8.2 — eastern|eastern]] sea and half of them toward the [[Zechariah-14.fn#Footnote 8.3 — western|western]] sea; it will be there in summer and in winter.
 
 ## v9
 
-And Jehovah will be King over all the earth; and in that day Jehovah will be the one God and His name the one name.
+And Jehovah will be [[Zechariah-14.fn#Footnote 9.1 — King|King]] over all the earth; and in that day Jehovah will be the one God and His name the one name.
 
 ## v10
 
@@ -64,7 +64,7 @@ And everyone left from all the nations that went forth against Jerusalem will go
 
 ## v17
 
-And whichever of the families of the earth does not go up to Jerusalem to worship the King, Jehovah of hosts, upon them there will be no rain.
+And whichever of the families of the earth does not go up to Jerusalem to worship the King, Jehovah of hosts, upon them there will be [[Zechariah-14.fn#Footnote 17.1 — no|no]] rain.
 
 ## v18
 
@@ -76,8 +76,8 @@ This will be the sin of Egypt and the sin of all the nations that do not go up t
 
 ## v20
 
-In that day on the horses’ bells will be, Holiness to Jehovah; and the pots in the house of Jehovah will be like the basins before the altar.
+In that day on the horses’ bells will be, Holiness to Jehovah; and the [[Zechariah-14.fn#Footnote 20.1 — pots|pots]] in the house of Jehovah will be like the basins before the altar.
 
 ## v21
 
-Indeed every pot in Jerusalem and in Judah will be holiness to Jehovah of hosts; and all those who sacrifice will come and take of them and boil in them; and there will never again be a Canaanite in the house of Jehovah of hosts in that day.
+Indeed every pot in Jerusalem and in Judah will be holiness to Jehovah of hosts; and all those who sacrifice will come and take of them and boil in them; and there will never again be a [[Zechariah-14.fn#Footnote 21.1 — Canaanite|Canaanite]] in the house of Jehovah of hosts in that day.

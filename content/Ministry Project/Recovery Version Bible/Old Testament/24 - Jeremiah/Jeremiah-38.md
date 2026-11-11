@@ -20,7 +20,7 @@ Then King Zedekiah said, He is now in your hand, for the king can do nothing aga
 
 ## v6
 
-So they took Jeremiah and cast him into the pit of Malchijah, the king’s son, which was in the court of the guard; and they let Jeremiah down with ropes. Now in the pit there was no water but only mire, and Jeremiah sank into the mire.
+So they took Jeremiah and cast him into the [[Jeremiah-38.fn#Footnote 6.1 — pit|pit]] of Malchijah, the king’s son, which was in the court of the guard; and they let Jeremiah down with ropes. Now in the pit there was no water but only mire, and Jeremiah sank into the mire.
 
 ## v7
 

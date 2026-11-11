@@ -15,7 +15,7 @@ chapter_num: 17
 
 **Verse:** [[Genesis-17#v1|Genesis 17:1]]
 
-Abraham’s producing of Ishmael by the exercise of his natural strength was a serious offense against God and His economy. Because of this, after the birth of Ishmael, Abraham’s fellowship with God was broken; God waited for thirteen years (cf. [[Genesis-16#v16|16:16]]), until Abraham’s natural strength was terminated, before He came to contact Abraham again ([[Romans-04#v19|Rom. 4:19]] and note). See note 41 in [[Genesis-15|Genesis 15]].
+Abraham’s producing of Ishmael by the exercise of his natural strength was a serious offense against God and His economy. Because of this, after the birth of Ishmael, Abraham’s fellowship with God was broken; God waited for thirteen years (cf. [[Genesis-16#v16|16:16]]), until Abraham’s natural strength was terminated, before He came to contact Abraham again ([[Romans-04#v19|Rom. 4:19]] and [note](<Romans-04.fn#Footnote 19.1 — already>)). See [note 4¹](<Genesis-15.fn#Footnote 4.1 — body>) in [[Genesis-15|Genesis 15]].
 
 ### Footnote 1.2 — All-sufficient
 
@@ -35,7 +35,7 @@ Here, to walk before God is to walk in His presence, constantly enjoying Him and
 
 **Verse:** [[Genesis-17#v4|Genesis 17:4]]
 
-The mentioning of nations and kings in [[Genesis-17#v4|vv. 4-6]] and in [[Genesis-35#v11|35:11]] implies that the result of our being multiplied must be the proper church life as the kingdom of God on earth ([[Romans-14#v17|Rom. 14:17]] and note 1). See note 22 in [[Genesis-12|Genesis 12]].
+The mentioning of nations and kings in [[Genesis-17#v4|vv. 4-6]] and in [[Genesis-35#v11|35:11]] implies that the result of our being multiplied must be the proper church life as the kingdom of God on earth ([[Romans-14#v17|Rom. 14:17]] and [note 1](<Romans-14.fn#Footnote 17.1 — kingdom>)). See [note 2²](<Genesis-12.fn#Footnote 2.2 — great>) in [[Genesis-12|Genesis 12]].
 
 ## Footnotes for verse 5
 
@@ -49,7 +49,7 @@ Meaning exalted father.
 
 **Verse:** [[Genesis-17#v5|Genesis 17:5]]
 
-Meaning father of a multitude. In order to fulfill His eternal purpose, God needs not one exalted person but the father of a great multitude (cf. [[Genesis-01#v28|1:28]]; [[Genesis-09#v1|9:1]]). Hence, the changing of Abraham’s name, signifying the changing of his person, was for the fulfillment of God’s purpose. In spiritual experience, the real changing of a name is the change from “I” to Christ ([[Galatians-02#v20|Gal. 2:20]]) and from “I” to the grace of God ([[1 Corinthians-15#v10|1 Cor. 15:10]]). Only Christ as God’s grace, not “I,” can bring forth the multitude needed to fulfill God’s purpose (see note 41 in [[Genesis-15|Genesis 15]]). Cf. [[Genesis-32#v27|32:27-28]]; [[John-01#v42|John 1:42]].
+Meaning father of a multitude. In order to fulfill His eternal purpose, God needs not one exalted person but the father of a great multitude (cf. [[Genesis-01#v28|1:28]]; [[Genesis-09#v1|9:1]]). Hence, the changing of Abraham’s name, signifying the changing of his person, was for the fulfillment of God’s purpose. In spiritual experience, the real changing of a name is the change from “I” to Christ ([[Galatians-02#v20|Gal. 2:20]]) and from “I” to the grace of God ([[1 Corinthians-15#v10|1 Cor. 15:10]]). Only Christ as God’s grace, not “I,” can bring forth the multitude needed to fulfill God’s purpose (see [note 4¹](<Genesis-15.fn#Footnote 4.1 — body>) in [[Genesis-15|Genesis 15]]). Cf. [[Genesis-32#v27|32:27-28]]; [[John-01#v42|John 1:42]].
 
 ## Footnotes for verse 10
 
@@ -57,7 +57,7 @@ Meaning father of a multitude. In order to fulfill His eternal purpose, God need
 
 **Verse:** [[Genesis-17#v10|Genesis 17:10]]
 
-The spiritual meaning of circumcision is to put off the flesh, to put off the self and the old man, through the crucifixion of Christ ([[Colossians-02#v11|Col. 2:11]], [[Colossians-02#v13|13a]]; [[Deuteronomy-10#v16|Deut. 10:16]]; [[Jeremiah-04#v4|Jer. 4:4a]]; [[Acts-07#v51|Acts 7:51]]; [[Galatians-05#v24|Gal. 5:24]]; [[Romans-06#v6|Rom. 6:6]]; [[Ephesians-04#v22|Eph. 4:22]]; [[Colossians-03#v9|Col. 3:9]]). In [[Genesis-16|Genesis 16]] Abraham exercised his flesh to produce Ishmael. Here God asked him to cut off his flesh, to terminate his natural strength, so that God could come in and bring forth Isaac by His grace for the fulfillment of His purpose. The circumcision in the Old Testament is the equivalent of baptism in the New Testament ([[Colossians-02#v11|Col. 2:11-12]] and notes). The real circumcision is not outward in the flesh but inward “of the heart, in spirit, not in letter” ([[Romans-02#v28|Rom. 2:28-29]]). See note 21 in [[Joshua-05|Josh. 5]].
+The spiritual meaning of circumcision is to put off the flesh, to put off the self and the old man, through the crucifixion of Christ ([[Colossians-02#v11|Col. 2:11]], [[Colossians-02#v13|13a]]; [[Deuteronomy-10#v16|Deut. 10:16]]; [[Jeremiah-04#v4|Jer. 4:4a]]; [[Acts-07#v51|Acts 7:51]]; [[Galatians-05#v24|Gal. 5:24]]; [[Romans-06#v6|Rom. 6:6]]; [[Ephesians-04#v22|Eph. 4:22]]; [[Colossians-03#v9|Col. 3:9]]). In [[Genesis-16|Genesis 16]] Abraham exercised his flesh to produce Ishmael. Here God asked him to cut off his flesh, to terminate his natural strength, so that God could come in and bring forth Isaac by His grace for the fulfillment of His purpose. The circumcision in the Old Testament is the equivalent of baptism in the New Testament ([[Colossians-02#v11|Col. 2:11-12]] and notes). The real circumcision is not outward in the flesh but inward “of the heart, in spirit, not in letter” ([[Romans-02#v28|Rom. 2:28-29]]). See [note 2¹](<Joshua-05.fn#Footnote 2.1 — circumcise>) in [[Joshua-05|Josh. 5]].
 
 ## Footnotes for verse 11
 
@@ -65,7 +65,7 @@ The spiritual meaning of circumcision is to put off the flesh, to put off the se
 
 **Verse:** [[Genesis-17#v11|Genesis 17:11]]
 
-Although God’s promise concerning the inheriting of the good land by His elect ([[Genesis-12#v1|12:1-2]], [[Genesis-12#v7|7]]; [[Genesis-13#v15|13:15-17]]) had been made a covenant ([[Genesis-15#v4|15:4-5]], [[Genesis-15#v18|18-21]]), there was still the need to confirm the covenant of God’s promise with the covenant of circumcision. Circumcision was the procedure that God’s elect had to pass through in order to inherit God’s promise. It signifies that God’s chosen ones in the New Testament must be terminated through the cross so that they may inherit all the riches in Christ promised by God (cf. [[Galatians-02#v20|Gal. 2:20]]). See [[Romans-04#v11|Rom. 4:11]] and note 1.
+Although God’s promise concerning the inheriting of the good land by His elect ([[Genesis-12#v1|12:1-2]], [[Genesis-12#v7|7]]; [[Genesis-13#v15|13:15-17]]) had been made a covenant ([[Genesis-15#v4|15:4-5]], [[Genesis-15#v18|18-21]]), there was still the need to confirm the covenant of God’s promise with the covenant of circumcision. Circumcision was the procedure that God’s elect had to pass through in order to inherit God’s promise. It signifies that God’s chosen ones in the New Testament must be terminated through the cross so that they may inherit all the riches in Christ promised by God (cf. [[Galatians-02#v20|Gal. 2:20]]). See [[Romans-04#v11|Rom. 4:11]] and [note 1](<Romans-04.fn#Footnote 11.1 — sign>).
 
 ## Footnotes for verse 12
 
@@ -97,7 +97,7 @@ Meaning my princess.
 
 **Verse:** [[Genesis-17#v15|Genesis 17:15]]
 
-Meaning princess. The word my before princess (see note 151) indicates narrowness and particularity. Here, the changing of Sarah’s name signifies generality and suggests the enlarging and broadening of her person to make her a mother of nations ([[Genesis-17#v16|v. 16]]). As seen with both Abraham ([[Genesis-17#v5|v. 5]]) and Sarah, such a change requires the termination of our old and natural man so that we may be transformed into a new person who can produce seed and care for others for the fulfillment of God’s purpose.
+Meaning princess. The word my before princess (see [note 15¹](<Genesis-17.fn#Footnote 15.1 — Sarai>)) indicates narrowness and particularity. Here, the changing of Sarah’s name signifies generality and suggests the enlarging and broadening of her person to make her a mother of nations ([[Genesis-17#v16|v. 16]]). As seen with both Abraham ([[Genesis-17#v5|v. 5]]) and Sarah, such a change requires the termination of our old and natural man so that we may be transformed into a new person who can produce seed and care for others for the fulfillment of God’s purpose.
 
 ## Footnotes for verse 16
 
@@ -127,4 +127,4 @@ Ishmael, the seed produced by the flesh, was rejected by God ([[Genesis-21#v10|2
 
 **Verse:** [[Genesis-17#v21|Genesis 17:21]]
 
-See note 14¹ in [[Genesis-18|Genesis 18]].
+See [note 14¹](<Genesis-18.fn#Footnote 14.1 — appointed>) in [[Genesis-18|Genesis 18]].

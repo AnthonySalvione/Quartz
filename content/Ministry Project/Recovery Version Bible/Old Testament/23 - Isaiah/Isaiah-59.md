@@ -64,7 +64,7 @@ For brightness, but we walk in gloom.
 We grope like blind men at the wall; /  
 We grope like those without eyes; /  
 We stumble at midday as we would at dusk; /  
-Among the prospering we are like dead men.
+Among the [[Isaiah-59.fn#Footnote 10.1 — prospering|prospering]] we are like dead men.
 
 ## v11
 
@@ -105,7 +105,7 @@ That there was no justice.
 
 And He saw that there was no man, /  
 And He was appalled that there was no intercessor. /  
-Therefore His arm accomplished salvation for Him, /  
+Therefore His [[Isaiah-59.fn#Footnote 16.1 — arm|arm]] accomplished salvation for Him, /  
 And His righteousness sustained Him.
 
 ## v17
@@ -130,14 +130,14 @@ The Spirit of Jehovah will lift up a standard against him.
 
 ## v20
 
-And a Redeemer will come to Zion, /  
+And a [[Isaiah-59.fn#Footnote 20.1 — Redeemer|Redeemer]] will come to Zion, /  
 And unto those who turn from transgression in Jacob, /  
 Declares Jehovah.
 
 ## v21
 
-And as for Me, this is My covenant with them, says Jehovah: /  
-My Spirit which is upon you and My words which I have put in your mouth /  
+And as for Me, this is My [[Isaiah-59.fn#Footnote 21.1 — covenant|covenant]] with them, says Jehovah: /  
+My [[Isaiah-59.fn#Footnote 21.2 — Spirit|Spirit]] which is upon you and My [[Isaiah-59.fn#Footnote 21.2 — Spirit|words]] which I have put in your mouth /  
 Shall not depart from your mouth, nor from the mouth of your seed, /  
 Nor from the mouth of your seed’s seed, says Jehovah, /  
 From now and forever.

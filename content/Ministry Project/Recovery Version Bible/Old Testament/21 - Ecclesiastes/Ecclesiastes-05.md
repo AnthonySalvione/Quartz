@@ -1,6 +1,6 @@
 ## v1
 
-Guard your steps when you go to the house of God,  
+[[Ecclesiastes-05.fn#Footnote 1.1 — Guard|Guard]] your steps when you go to the house of God,  
 And draw near to listen rather than to offer the sacrifice of fools;  
 For they do not know that they are doing evil.
 
@@ -101,7 +101,7 @@ And has much vexation and sickness and resentment.
 ## v18
 
 Here is what I have seen to be good and what is pleasant:  
-To eat and to drink and to taste enjoyment in all his labor  
+To [[Ecclesiastes-05.fn#Footnote 18.1 — eat|eat]] and to drink and to taste enjoyment in all his labor  
 By which he labors under the sun  
 During the few days of his life, which God has given him;  
 For this is his portion.
@@ -115,5 +115,5 @@ This is the gift of God.
 
 ## v20
 
-For he will not brood much over the days of his life,  
+For he will not [[Ecclesiastes-05.fn#Footnote 20.1 — brood|brood]] much over the days of his life,  
 Because God keeps him occupied with the gladness of his heart.

@@ -53,7 +53,7 @@ Or, who caused Israel to sin. So also in [[2 Kings-10#v31|v. 31]].
 
 **Verse:** [[2 Kings-10#v29|2 Kings 10:29]]
 
-See note 28¹ in [[1 Kings-12|1 Kings 12]].
+See [note 28¹](<1 Kings-12.fn#Footnote 28.1 — calves>) in [[1 Kings-12|1 Kings 12]].
 
 ## Footnotes for verse 30
 

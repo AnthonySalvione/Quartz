@@ -84,7 +84,7 @@ And let seven periods of time pass over him.
 
 ## v17
 
-This matter is by the decree of the watchers, and the decision is a command of the holy ones, to the intent that the living may know that the Most High is the Ruler over the kingdom of men and gives it to whomever He wills and sets up over it the lowliest of men.
+This matter is by the decree of the watchers, and the decision is a command of the holy ones, to the intent that the living may know that the [[Daniel-04.fn#Footnote 17.1 — Most|Most]] High is the Ruler over the kingdom of men and gives it to whomever He wills and sets up over it the lowliest of men.
 
 ## v18
 
@@ -120,7 +120,7 @@ You shall be driven out from among mankind, and with the beasts of the field sha
 
 ## v26
 
-And in that it was commanded that the stump of roots of the tree be left, your kingdom will be assured to you after you have come to know that the heavens do rule.
+And in that it was commanded that the stump of roots of the tree be left, your kingdom will be assured to you after you have come to know that the [[Daniel-04.fn#Footnote 26.1 — heavens|heavens]] do rule.
 
 ## v27
 
@@ -132,7 +132,7 @@ All this came upon Nebuchadnezzar the king.
 
 ## v29
 
-At the end of twelve months he was walking upon the roof of the royal palace of Babylon.
+At the end of [[Daniel-04.fn#Footnote 29.1 — twelve|twelve]] months he was walking upon the roof of the royal palace of Babylon.
 
 ## v30
 
@@ -144,7 +144,7 @@ While the word was still in the king’s mouth, a voice came down from heaven: T
 
 ## v32
 
-And from among mankind you shall be driven out, and with the beasts of the field shall your dwelling place be; you shall be made to eat grass as bulls do; and seven periods of time will pass over you, until you come to know that the Most High is the Ruler over the kingdom of men and gives it to whomever He wills.
+And from among mankind you shall be driven out, and with the [[Daniel-04.fn#Footnote 32.1 — beasts|beasts]] of the field shall your dwelling place be; you shall be made to eat grass as bulls do; and [[Daniel-04.fn#Footnote 32.2 — seven|seven]] periods of time will pass over you, until you come to know that the Most High is the Ruler over the kingdom of men and gives it to whomever He wills.
 
 ## v33
 
@@ -152,7 +152,7 @@ In that very hour the word concerning Nebuchadnezzar was fulfilled; and from amo
 
 ## v34
 
-And at the end of those days I, Nebuchadnezzar, lifted up my eyes to heaven, and my reason returned to me; and I blessed the Most High, and I praised and honored the ever-living One;  
+And at the end of those days I, Nebuchadnezzar, lifted up my eyes to heaven, and my [[Daniel-04.fn#Footnote 34.1 — reason|reason]] returned to me; and I blessed the Most High, and I praised and honored the ever-living One;  
 For His dominion is an eternal dominion,  
 And His kingdom is from generation to generation;
 

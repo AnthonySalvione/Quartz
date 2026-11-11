@@ -15,13 +15,13 @@ chapter_num: 28
 
 **Verse:** [[Exodus-28#v1|Exodus 28:1]]
 
-In typology Aaron as the high priest signifies Christ as our High Priest before God ([[Hebrews-04#v14|Heb. 4:14]]—[[Hebrews-07#v28|7:28]]), and the sons of Aaron, the priests, signify the believers in Christ as priests ([[Revelation-01#v6|Rev. 1:6]]; [[Revelation-05#v10|5:10]]). See note 61, par. 2, in [[Revelation-02|Rev. 2]].
+In typology Aaron as the high priest signifies Christ as our High Priest before God ([[Hebrews-04#v14|Heb. 4:14]]—[[Hebrews-07#v28|7:28]]), and the sons of Aaron, the priests, signify the believers in Christ as priests ([[Revelation-01#v6|Rev. 1:6]]; [[Revelation-05#v10|5:10]]). See [note 6¹](<Revelation-02.fn#Footnote 6.1 — Nicolaitans>), par. 2, in [[Revelation-02|Rev. 2]].
 
 ### Footnote 1.2 — priest
 
 **Verse:** [[Exodus-28#v1|Exodus 28:1]]
 
-In the sequence of the divine record in Exodus, the priesthood follows the tabernacle. In typology, the priesthood and the tabernacle are one entity, signifying the church composed of God’s redeemed people as a spiritual house and a holy priesthood ([[1 Peter-02#v5|1 Pet. 2:5]] and note 7). That the tabernacle is mentioned before the priesthood emphasizes the need of the believers to be built up to be God’s dwelling place that they may serve God as a corporate, coordinated priesthood (see note 17 in [[Romans-12|Rom. 12]]).
+In the sequence of the divine record in Exodus, the priesthood follows the tabernacle. In typology, the priesthood and the tabernacle are one entity, signifying the church composed of God’s redeemed people as a spiritual house and a holy priesthood ([[1 Peter-02#v5|1 Pet. 2:5]] and [note 7](<1 Peter-02.fn#Footnote 5.7 — priesthood>)). That the tabernacle is mentioned before the priesthood emphasizes the need of the believers to be built up to be God’s dwelling place that they may serve God as a corporate, coordinated priesthood (see [note 1⁷](<Romans-12.fn#Footnote 1.7 — service>) in [[Romans-12|Rom. 12]]).
 
 ## Footnotes for verse 2
 
@@ -49,7 +49,7 @@ All the priests wore linen trousers, a tunic, a girding sash, and a turban ([[Ex
 
 **Verse:** [[Exodus-28#v4|Exodus 28:4]]
 
-The ephod is a type of Christ expressed in His two natures, divinity and humanity, with His attributes and virtues ([[Exodus-28#v6|v. 6]]). It was a part of the priestly garments used for fastening, or binding. The two shoulder pieces with the two onyx stones (see note 91), and the breastplate with the twelve precious stones (see note 151), were bound, fastened, to the ephod ([[Exodus-28#v12|vv. 12-28]]). This signifies that Christ holds, binds, and fastens the church to Himself by His divine glory and human beauty, the components of the ephod ([[2 Corinthians-01#v21|2 Cor. 1:21]]; [[2 Peter-01#v3|2 Pet. 1:3b]]; cf. notes 22, 91 and 151).
+The ephod is a type of Christ expressed in His two natures, divinity and humanity, with His attributes and virtues ([[Exodus-28#v6|v. 6]]). It was a part of the priestly garments used for fastening, or binding. The two shoulder pieces with the two onyx stones (see [note 9¹](<Exodus-28.fn#Footnote 9.1 — onyx>)), and the breastplate with the twelve precious stones (see [note 15¹](<Exodus-28.fn#Footnote 15.1 — breastplate>)), were bound, fastened, to the ephod ([[Exodus-28#v12|vv. 12-28]]). This signifies that Christ holds, binds, and fastens the church to Himself by His divine glory and human beauty, the components of the ephod ([[2 Corinthians-01#v21|2 Cor. 1:21]]; [[2 Peter-01#v3|2 Pet. 1:3b]]; cf. notes [2²](<Exodus-28.fn#Footnote 2.2 — for>), [9¹](<Exodus-28.fn#Footnote 9.1 — onyx>) and [15¹](<Exodus-28.fn#Footnote 15.1 — breastplate>)).
 
 ### Footnote 4.3 — checkered
 
@@ -89,7 +89,7 @@ Lit., of its ephod. With the skillfully woven band the ephod was bound around th
 
 **Verse:** [[Exodus-28#v9|Exodus 28:9]]
 
-The two onyx stones engraved with the names of the children of Israel symbolize God’s redeemed and transformed people ([[Matthew-16#v18|Matt. 16:18]]; [[John-01#v42|John 1:42]]; [[1 Peter-02#v5|1 Pet. 2:5]]; see note 121 in [[Genesis-02|Gen. 2]]) as Christ’s testimony, signified by the number two. This indicates that Christ as the High Priest holds the church, composed of the transformed believers, bearing them on His shoulders, in His strength, before God. Cf. note 221.
+The two onyx stones engraved with the names of the children of Israel symbolize God’s redeemed and transformed people ([[Matthew-16#v18|Matt. 16:18]]; [[John-01#v42|John 1:42]]; [[1 Peter-02#v5|1 Pet. 2:5]]; see [note 12¹](<Genesis-02.fn#Footnote 12.1 — gold>) in [[Genesis-02|Gen. 2]]) as Christ’s testimony, signified by the number two. This indicates that Christ as the High Priest holds the church, composed of the transformed believers, bearing them on His shoulders, in His strength, before God. Cf. [note 22¹](<Exodus-28.fn#Footnote 22.1 — chains>).
 
 ## Footnotes for verse 11
 
@@ -97,7 +97,7 @@ The two onyx stones engraved with the names of the children of Israel symbolize 
 
 **Verse:** [[Exodus-28#v11|Exodus 28:11]]
 
-Lit., plaited work, plaited settings, or filigree. So also in [[Exodus-28#v13|vv. 13]], [[Exodus-28#v14|14]], [[Exodus-28#v25|25]]. The settings of gold for the onyx stones were filigree settings, fine work made with gold plaited together to make a beautiful design. They portray the Lord’s divinity after it was processed and had passed through many sufferings (cf. note 61, par. 2). The skillful way in which they were made signifies the fine work of the Holy Spirit with the divine nature. That the filigree settings were gold signifies that only the divinity of Christ, His divine nature, can hold us ([[2 Peter-01#v4|2 Pet. 1:4]]). The divine nature becomes the power to hold us in a beautiful and glorious way. 
+Lit., plaited work, plaited settings, or filigree. So also in [[Exodus-28#v13|vv. 13]], [[Exodus-28#v14|14]], [[Exodus-28#v25|25]]. The settings of gold for the onyx stones were filigree settings, fine work made with gold plaited together to make a beautiful design. They portray the Lord’s divinity after it was processed and had passed through many sufferings (cf. [note 6¹](<Exodus-28.fn#Footnote 6.1 — gold>), par. 2). The skillful way in which they were made signifies the fine work of the Holy Spirit with the divine nature. That the filigree settings were gold signifies that only the divinity of Christ, His divine nature, can hold us ([[2 Peter-01#v4|2 Pet. 1:4]]). The divine nature becomes the power to hold us in a beautiful and glorious way. 
 
 The onyx stones fastened to the shoulders of the ephod added more beauty to it, signifying that the transformed believers added to Christ are His additional beauty. The gold filigree in which the onyx stones were set added beauty to the onyx stones, signifying that the fine work of the Holy Spirit adds the beauty of Christ to the believers as the precious stones. This is a mutual beautification, in which Christ and the transformed believers beautify each other.
 
@@ -115,7 +115,7 @@ The two onyx stones on the shoulder pieces of the ephod became a memorial, a ple
 
 **Verse:** [[Exodus-28#v14|Exodus 28:14]]
 
-The chains of gold cords, formed of gold threads twined together, fastened the onyx stones in their gold settings to the shoulder pieces. They portray Christ’s divinity becoming a golden fastening cord by passing through a process (cf. notes 61 and 111).
+The chains of gold cords, formed of gold threads twined together, fastened the onyx stones in their gold settings to the shoulder pieces. They portray Christ’s divinity becoming a golden fastening cord by passing through a process (cf. notes [6¹](<Exodus-28.fn#Footnote 6.1 — gold>) and [11¹](<Exodus-28.fn#Footnote 11.1 — settings>)).
 
 ## Footnotes for verse 15
 
@@ -123,13 +123,13 @@ The chains of gold cords, formed of gold threads twined together, fastened the o
 
 **Verse:** [[Exodus-28#v15|Exodus 28:15]]
 
-The breastplate on the ephod signifies the church as the building together of God’s redeemed people upon Christ. The twelve precious stones set in gold ([[Exodus-28#v17|vv. 17-20]]) symbolize the saints as transformed precious stones built together in the divine nature of Christ to become one entity, the church as Christ’s Body ([[1 Corinthians-03#v10|1 Cor. 3:10-12a]]; [[Ephesians-01#v22|Eph. 1:22-23]]). Therefore, the breastplate is a miniature of the building up of God’s people (see note 121 in [[Genesis-02|Gen. 2]]), indicating that the believers in Christ are distinct individuals but are not divided ([[Romans-12#v5|Rom. 12:5]]; [[1 Corinthians-12#v27|1 Cor. 12:27]]). The entire ephod with its shoulder pieces and the breastplate are a marvelous portrait of Christ with the church.
+The breastplate on the ephod signifies the church as the building together of God’s redeemed people upon Christ. The twelve precious stones set in gold ([[Exodus-28#v17|vv. 17-20]]) symbolize the saints as transformed precious stones built together in the divine nature of Christ to become one entity, the church as Christ’s Body ([[1 Corinthians-03#v10|1 Cor. 3:10-12a]]; [[Ephesians-01#v22|Eph. 1:22-23]]). Therefore, the breastplate is a miniature of the building up of God’s people (see [note 12¹](<Genesis-02.fn#Footnote 12.1 — gold>) in [[Genesis-02|Gen. 2]]), indicating that the believers in Christ are distinct individuals but are not divided ([[Romans-12#v5|Rom. 12:5]]; [[1 Corinthians-12#v27|1 Cor. 12:27]]). The entire ephod with its shoulder pieces and the breastplate are a marvelous portrait of Christ with the church.
 
 ### Footnote 15.2 — judgment
 
 **Verse:** [[Exodus-28#v15|Exodus 28:15]]
 
-See note 30¹.
+See [note 30¹](<Exodus-28.fn#Footnote 30.1 — judgment>).
 
 ### Footnote 15.3 — like
 
@@ -163,13 +163,13 @@ The twelve precious stones on the breastplate, on which the names of the twelve 
 
 **Verse:** [[Exodus-28#v17|Exodus 28:17]]
 
-The number twelve, composed of four (the creatures) times three (the Triune God in resurrection), signifies the mingling of the Triune God with His creature, man, for the complete and perfect carrying out of God’s administration eternally (see notes 122 and 131 in [[Revelation-21|Rev. 21]] and note 24 in [[Revelation-22|Rev. 22]]). That the stones were arranged in four rows with three stones in each row indicates that the believers are not only transformed but also mingled with the Triune God. The setting of the stones in gold ([[Exodus-28#v20|v. 20]]) signifies that the transformed and mingled believers are built in the divine nature of Christ into one entity. These people, being of the number twelve, complete the eternal purpose of God and become the administration of the divine government in the universe. In God’s eternal plan and according to His eternal view, the church, borne on Christ’s heart ([[Exodus-28#v29|v. 29]]) and held in the span of His loving care ([[Exodus-28#v16|v. 16b]]), is such a mingling of the Triune God with redeemed humanity.
+The number twelve, composed of four (the creatures) times three (the Triune God in resurrection), signifies the mingling of the Triune God with His creature, man, for the complete and perfect carrying out of God’s administration eternally (see notes [12²](<Revelation-21.fn#Footnote 12.2 — twelve>) and [13¹](<Revelation-21.fn#Footnote 13.1 — east>) in [[Revelation-21|Rev. 21]] and note [2⁴](<Revelation-22.fn#Footnote 2.4 — month>) in [[Revelation-22|Rev. 22]]). That the stones were arranged in four rows with three stones in each row indicates that the believers are not only transformed but also mingled with the Triune God. The setting of the stones in gold ([[Exodus-28#v20|v. 20]]) signifies that the transformed and mingled believers are built in the divine nature of Christ into one entity. These people, being of the number twelve, complete the eternal purpose of God and become the administration of the divine government in the universe. In God’s eternal plan and according to His eternal view, the church, borne on Christ’s heart ([[Exodus-28#v29|v. 29]]) and held in the span of His loving care ([[Exodus-28#v16|v. 16b]]), is such a mingling of the Triune God with redeemed humanity.
 
 ### Footnote 17.3 — sardius
 
 **Verse:** [[Exodus-28#v17|Exodus 28:17]]
 
-See note 3² in [[Revelation-04|Rev. 4]].
+See [note 3²](<Revelation-04.fn#Footnote 3.2 — sardius>) in [[Revelation-04|Rev. 4]].
 
 ## Footnotes for verse 18
 
@@ -209,7 +209,7 @@ The twisted chains of gold signify Christ’s divine nature, after passing throu
 
 **Verse:** [[Exodus-28#v23|Exodus 28:23]]
 
-The rings of gold on the breastplate and the ephod ([[Exodus-28#v23|vv. 23]], [[Exodus-28#v26|26-28]]) signify the Spirit of Christ as the holding element (cf. note 261 in [[Exodus-25|Exodus 25]]).
+The rings of gold on the breastplate and the ephod ([[Exodus-28#v23|vv. 23]], [[Exodus-28#v26|26-28]]) signify the Spirit of Christ as the holding element (cf. [note 26¹](<Exodus-25.fn#Footnote 26.1 — rings>) in [[Exodus-25|Exodus 25]]).
 
 ## Footnotes for verse 28
 
@@ -217,7 +217,7 @@ The rings of gold on the breastplate and the ephod ([[Exodus-28#v23|vv. 23]], [[
 
 **Verse:** [[Exodus-28#v28|Exodus 28:28]]
 
-The breastplate was connected to the shoulder pieces of the ephod at both the top ([[Exodus-28#v22|vv. 22-25]] and note 221) and the bottom. A cord of blue strands, signifying Christ’s heavenly humanity, bound the breastplate by its two gold rings at its two bottom ends to two gold rings at the bottom of the shoulder pieces of the ephod, above the skillfully woven band ([[Exodus-28#v26|vv. 26-28]]; [[Exodus-39#v19|39:19-21]]). Thus, the church (the breastplate) is connected to the expression of Christ (the ephod) by His Spirit (the rings) with both His divinity (the gold chains) and His humanity (the linen cords).
+The breastplate was connected to the shoulder pieces of the ephod at both the top ([[Exodus-28#v22|vv. 22-25]] and [[Exodus-28.fn#Footnote 22.1 — chains|note 22¹]]) and the bottom. A cord of blue strands, signifying Christ’s heavenly humanity, bound the breastplate by its two gold rings at its two bottom ends to two gold rings at the bottom of the shoulder pieces of the ephod, above the skillfully woven band ([[Exodus-28#v26|vv. 26-28]]; [[Exodus-39#v19|39:19-21]]). Thus, the church (the breastplate) is connected to the expression of Christ (the ephod) by His Spirit (the rings) with both His divinity (the gold chains) and His humanity (the linen cords).
 
 ## Footnotes for verse 29
 
@@ -233,7 +233,7 @@ The breastplate being borne upon Aaron’s heart for a memorial before Jehovah s
 
 **Verse:** [[Exodus-28#v30|Exodus 28:30]]
 
-After the Urim and the Thummim were put into it, the breastplate became not only a memorial but also a breastplate of judgment. Here and in [[Deuteronomy-33#v8|Deut. 33:8]] and [[Deuteronomy-33#v10|10]], God’s judgments, referring to God’s law with its verdicts and judgments (see note 64 in [[Luke-01|Luke 1]]), are related to the Urim and the Thummim. According to the Old Testament, the Urim and the Thummim added to the breastplate were a means for God to speak to His people to indicate to them His leading (see references in 30a). God’s leading through the breastplate always involved a judgment. God’s law includes His judgments, and these judgments become God’s leading. In spiritual experience, in order to know God’s leading we must judge whatever is of the flesh, the self, the old man, and the world. In [[Romans-08#v14|Rom. 8:14]] the leading of the Spirit, as the reality of God’s leading through the breastplate, issues from, and is the totality of, all the judgments in [[Exodus-28#v1|vv. 1-13]] of that chapter (see note 141 there). 
+After the Urim and the Thummim were put into it, the breastplate became not only a memorial but also a breastplate of judgment. Here and in [[Deuteronomy-33#v8|Deut. 33:8]] and [[Deuteronomy-33#v10|10]], God’s judgments, referring to God’s law with its verdicts and judgments (see [note 6⁴](<Luke-01.fn#Footnote 6.4 — ordinances>) in [[Luke-01|Luke 1]]), are related to the Urim and the Thummim. According to the Old Testament, the Urim and the Thummim added to the breastplate were a means for God to speak to His people to indicate to them His leading (see references in 30a). God’s leading through the breastplate always involved a judgment. God’s law includes His judgments, and these judgments become God’s leading. In spiritual experience, in order to know God’s leading we must judge whatever is of the flesh, the self, the old man, and the world. In [[Romans-08#v14|Rom. 8:14]] the leading of the Spirit, as the reality of God’s leading through the breastplate, issues from, and is the totality of, all the judgments in [[Exodus-28#v1|vv. 1-13]] of that chapter (see [note 14¹](<Exodus-28.fn#Footnote 14.1 — chains>) there). 
 
 The fact that God’s speaking as His leading was through the breastplate signifies that God makes His leading known to His people through the church. The Lord’s speaking through the breastplate with the Urim and the Thummim required the making of the breastplate with the twelve precious stones engraved with the names of the children of Israel and the bearing of the breastplate on the heart of the high priest. In the same principle, God’s speaking today through the church with Christ as the Illuminator (Urim) and Perfecter (Thummim) requires the building up of the church with the believers as transformed, transparent precious stones who have been inscribed with Christ as the letters of the spiritual alphabet ([[2 Corinthians-03#v3|2 Cor. 3:3]]) and the bearing of the church on the hearts of the leading ones.
 
@@ -247,7 +247,7 @@ Meaning lights, illuminators. The Urim was an illuminator inserted into the brea
 
 **Verse:** [[Exodus-28#v30|Exodus 28:30]]
 
-Meaning perfecters, completers. The names on the twelve stones on the breastplate contained only eighteen of the twenty-two letters of the Hebrew alphabet. The remaining four letters were put on the Thummim, making it the perfecter and completer (David Baron). By the shining of the Urim on the individual precious stones, the full alphabet of twenty-two letters could be used to spell out words and sentences. The Thummim typifies Christ as the perfecter and completer ([[Hebrews-12#v2|Heb. 12:2]]). Christ is the spiritual alphabet for both inscribing (see note 211) and completing. Together, the Urim and the Thummim typify Christ as God’s witness, God’s testimony ([[Revelation-03#v14|Rev. 3:14]]), as the means for God to speak to His people ([[Hebrews-01#v2|Heb. 1:2]]). In the New Testament, the reality of the Urim and the Thummim is the mingled spirit—the unveiling Spirit of God, the Holy Spirit, indwelling our receiving spirit, our regenerated human spirit ([[Romans-08#v4|Rom. 8:4]], [[Romans-08#v14|14]]).
+Meaning perfecters, completers. The names on the twelve stones on the breastplate contained only eighteen of the twenty-two letters of the Hebrew alphabet. The remaining four letters were put on the Thummim, making it the perfecter and completer (David Baron). By the shining of the Urim on the individual precious stones, the full alphabet of twenty-two letters could be used to spell out words and sentences. The Thummim typifies Christ as the perfecter and completer ([[Hebrews-12#v2|Heb. 12:2]]). Christ is the spiritual alphabet for both inscribing (see [note 21¹](<Exodus-28.fn#Footnote 21.1 — engravings>)) and completing. Together, the Urim and the Thummim typify Christ as God’s witness, God’s testimony ([[Revelation-03#v14|Rev. 3:14]]), as the means for God to speak to His people ([[Hebrews-01#v2|Heb. 1:2]]). In the New Testament, the reality of the Urim and the Thummim is the mingled spirit—the unveiling Spirit of God, the Holy Spirit, indwelling our receiving spirit, our regenerated human spirit ([[Romans-08#v4|Rom. 8:4]], [[Romans-08#v14|14]]).
 
 ## Footnotes for verse 31
 
@@ -269,7 +269,7 @@ The robe being all of blue signifies that the church is altogether heavenly, hav
 
 **Verse:** [[Exodus-28#v32|Exodus 28:32]]
 
-The meaning of the Hebrew is uncertain. The reference here to a coat of mail indicates that the priestly service is a warfare (see note 32 in [[Numbers-01|Num. 1]]).
+The meaning of the Hebrew is uncertain. The reference here to a coat of mail indicates that the priestly service is a warfare (see [note 3²](<Numbers-01.fn#Footnote 3.2 — for>) in [[Numbers-01|Num. 1]]).
 
 ## Footnotes for verse 33
 
@@ -277,7 +277,7 @@ The meaning of the Hebrew is uncertain. The reference here to a coat of mail ind
 
 **Verse:** [[Exodus-28#v33|Exodus 28:33]]
 
-The pomegranates and the bells, as part of the robe, are related to the church (see note 311). In the Bible pomegranates, being full of seeds, signify the fullness of life. The pomegranates made of linen signify the fullness of life expressed in the church’s humanity. The sound of the bells was to warn the high priest not to be careless lest he die ([[Exodus-28#v35|v. 35]]). That the bells were of gold signifies that the voice of warning in the church has its source in the church’s divinity. The pomegranates and the bells signify that the church speaks out of its divinity based on the fullness of life expressed in its humanity. The expression of life and the divine sounding are signs of the proper church life.
+The pomegranates and the bells, as part of the robe, are related to the church (see [note 31¹](<Exodus-28.fn#Footnote 31.1 — robe>)). In the Bible pomegranates, being full of seeds, signify the fullness of life. The pomegranates made of linen signify the fullness of life expressed in the church’s humanity. The sound of the bells was to warn the high priest not to be careless lest he die ([[Exodus-28#v35|v. 35]]). That the bells were of gold signifies that the voice of warning in the church has its source in the church’s divinity. The pomegranates and the bells signify that the church speaks out of its divinity based on the fullness of life expressed in its humanity. The expression of life and the divine sounding are signs of the proper church life.
 
 ## Footnotes for verse 36
 
@@ -291,7 +291,7 @@ Or, blossom. The gold plate was a holy crown ([[Exodus-29#v6|29:6]]), a diadem, 
 
 **Verse:** [[Exodus-28#v36|Exodus 28:36]]
 
-Holiness is God Himself in His pure divine nature, signified here by the pure gold. To be holy is a matter of having the divine nature wrought into our being to make us holy, as God is (see note 192 in [[Romans-06|Rom. 6]]). The engraving Holiness to Jehovah indicates that the entire priesthood is sanctified unto the Lord, separated to the Lord and saturated with the Lord. 
+Holiness is God Himself in His pure divine nature, signified here by the pure gold. To be holy is a matter of having the divine nature wrought into our being to make us holy, as God is (see [note 19²](<Romans-06.fn#Footnote 19.2 — sanctification>) in [[Romans-06|Rom. 6]]). The engraving Holiness to Jehovah indicates that the entire priesthood is sanctified unto the Lord, separated to the Lord and saturated with the Lord. 
 
 In the concluding word on the priestly garments ([[Exodus-28#v36|vv. 36-43]]), gold and linen, the two main materials, signify holiness in divinity and righteousness in humanity. Thus, the garments of the priests are the expression of holiness for glory and righteousness for beauty. A priest who serves God must express the virtues of holiness toward God and righteousness toward man.
 

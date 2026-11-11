@@ -57,7 +57,7 @@ They flatter with their tongue.
 
 ## v10
 
-Hold them guilty, O God;  
+[[Psalm-05.fn#Footnote 10.1 — Hold|Hold]] them guilty, O God;  
 Let them fall by their own counsels;  
 Because of the multitude of their transgressions thrust them out,  
 For they have rebelled against You.

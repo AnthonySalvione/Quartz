@@ -68,7 +68,7 @@ A horse is a vain thing for salvation, / And it cannot deliver by its great powe
 
 ## v18
 
-Behold, the eye of Jehovah is upon those who fear Him, / Upon those who hope in His lovingkindness,
+Behold, the eye of Jehovah is upon those who fear Him, / Upon those who [[Psalm-33.fn#Footnote 18.1 — hope|hope]] in His lovingkindness,
 
 ## v19
 

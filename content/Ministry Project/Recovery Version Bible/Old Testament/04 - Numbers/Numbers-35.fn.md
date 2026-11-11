@@ -51,7 +51,7 @@ That the cities of refuge were to be not only for the children of Israel but als
 
 **Verse:** [[Numbers-35#v16|Numbers 35:16]]
 
-The cities of refuge were not for the murderers, those who killed with an intent ([[Numbers-35#v16|vv. 16-21]]). Adam sinned without intent, and we, the descendants of Adam, have sinned in the same way (cf. [[Romans-07#v15|Rom. 7:15-24]]). Therefore, in the sight of God we are those who sin without intent, and He considers our sinning as being without intent. See note 61, par. 1.
+The cities of refuge were not for the murderers, those who killed with an intent ([[Numbers-35#v16|vv. 16-21]]). Adam sinned without intent, and we, the descendants of Adam, have sinned in the same way (cf. [[Romans-07#v15|Rom. 7:15-24]]). Therefore, in the sight of God we are those who sin without intent, and He considers our sinning as being without intent. See [note 6¹](<Numbers-35.fn#Footnote 6.1 — cities>), par. 1.
 
 ## Footnotes for verse 25
 
@@ -59,6 +59,6 @@ The cities of refuge were not for the murderers, those who killed with an intent
 
 **Verse:** [[Numbers-35#v25|Numbers 35:25]]
 
-The high priest here signifies Christ ([[Hebrews-04#v14|Heb. 4:14]]), who died for our sins. Spiritually, the Old Testament saints had to remain in the city of refuge until Christ died; no ransom could have released them before the time of Christ’s death ([[Numbers-35#v32|v. 32]]). This was a refuge prior to direct salvation. In the Old Testament time Christ had not yet died, and those who fled into Him as their refuge had to wait there until He came and died on the cross. For the Old Testament saints, therefore, the refuge was like the sheepfold in [[John-10#v1|John 10:1]] (see note 2 there). 
+The high priest here signifies Christ ([[Hebrews-04#v14|Heb. 4:14]]), who died for our sins. Spiritually, the Old Testament saints had to remain in the city of refuge until Christ died; no ransom could have released them before the time of Christ’s death ([[Numbers-35#v32|v. 32]]). This was a refuge prior to direct salvation. In the Old Testament time Christ had not yet died, and those who fled into Him as their refuge had to wait there until He came and died on the cross. For the Old Testament saints, therefore, the refuge was like the sheepfold in [[John-10#v1|John 10:1]] (see [[John-10.fn#Footnote 1.2 — sheepfold|note 2]] there). 
 
 Since Christ, our High Priest, has died, He is the refuge, not in the Old Testament sense but in the New Testament sense, to all His believers. This refuge is a matter of direct salvation. Before Christ’s death He was the refuge for the Old Testament saints, but now, after His death, He is our direct salvation. We who enter into Christ today may do so with the assurance that He has already died and that our sins have already been forgiven ([[Ephesians-01#v7|Eph. 1:7]]; [[Colossians-02#v13|Col. 2:13]]).

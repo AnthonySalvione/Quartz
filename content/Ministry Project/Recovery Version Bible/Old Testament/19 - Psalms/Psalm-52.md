@@ -1,6 +1,11 @@
+> *To the choir director. A Maschil of David, when Doeg the Edomite came and told Saul and said to him, David has come to the house of Ahimelech*
+
+> [!light] Note on Maschil:
+> See note on the superscription of [[Psalm-32|Psa. 32]].
+---
 ## v1
 
-Why do you boast in evil, O mighty one?  
+[[Psalm-52.fn#Footnote 1.1 — Why|Why]] do you boast in evil, O mighty one?  
 God’s lovingkindness endures continually.
 
 ## v2
@@ -20,7 +25,7 @@ O deceitful tongue.
 
 ## v5
 
-God will likewise break you down forever;  
+God will likewise [[Psalm-52.fn#Footnote 5.1 — break|break]] you down forever;  
 He will take you and pluck you up from your tent,  
 And uproot you from the land of the living. Selah
 
@@ -32,7 +37,7 @@ And they will laugh at him, saying,
 ## v7
 
 Behold, this is that mighty man  
-Who did not make God his strength,  
+Who did not make God his [[Psalm-52.fn#Footnote 7.1 — strength|strength]],  
 But trusted in the multitude of his riches  
 And strengthened himself in his desire.
 

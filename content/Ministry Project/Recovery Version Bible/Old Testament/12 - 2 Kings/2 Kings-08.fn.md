@@ -23,7 +23,7 @@ Some MSS read, Go and say, You shall certainly not recover.
 
 **Verse:** [[2 Kings-08#v19|2 Kings 8:19]]
 
-I.e., because of Christ, who was to be incarnated as one of David’s descendants ([[Matthew-01#v1|Matt. 1:1]]; [[Romans-01#v3|Rom. 1:3]]). See note 71 in [[Matthew-01|Matt. 1]].
+I.e., because of Christ, who was to be incarnated as one of David’s descendants ([[Matthew-01#v1|Matt. 1:1]]; [[Romans-01#v3|Rom. 1:3]]). See [note 7¹](<Matthew-01.fn#Footnote 7.1 — Rehoboam>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 21
 

@@ -1,6 +1,6 @@
 ## v1
 
-And when King Hezekiah heard, he tore his clothes, and covered himself with sackcloth and went into the house of Jehovah.
+And when King Hezekiah heard, he [[Isaiah-37.fn#Footnote 1.1 — tore|tore]] his clothes, and covered himself with sackcloth and went into the house of Jehovah.
 
 ## v2
 
@@ -113,7 +113,7 @@ And its luxuriant forest.
 I have dug; /  
 I have drunk water; /  
 With the sole of my foot I will dry up /  
-All the rivers of Egypt.
+All the rivers of [[Isaiah-37.fn#Footnote 25.1 — Egypt|Egypt]].
 
 ## v26
 
@@ -131,7 +131,7 @@ They were dismayed and felt ashamed; /
 And they were like vegetation of the field /  
 And green shoots of tender grass, /  
 Like grass which grows on the housetops /  
-And is scorched before it has grown up.
+And [[Isaiah-37.fn#Footnote 27.1 — is|is]] scorched before it has grown up.
 
 ## v28
 
@@ -178,8 +178,8 @@ Declares Jehovah.
 
 And around this city I will put an enclosure /  
 To save it, /  
-For My own sake /  
-And for the sake of David, My servant.
+For My [[Isaiah-37.fn#Footnote 35.1 — own|own]] sake /  
+And for the sake of [[Isaiah-37.fn#Footnote 35.1 — own|David]], My servant.
 
 ## v36
 

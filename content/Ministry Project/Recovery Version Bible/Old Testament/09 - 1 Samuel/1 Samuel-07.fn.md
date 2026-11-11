@@ -15,7 +15,7 @@ chapter_num: 7
 
 **Verse:** [[1 Samuel-07#v1|1 Samuel 7:1]]
 
-See note 11¹, par. 1, in [[1 Samuel-04|1 Samuel 4]].
+See [note 11¹](<1 Samuel-04.fn#Footnote 11.1 — taken>), par. 1, in [[1 Samuel-04|1 Samuel 4]].
 
 ## Footnotes for verse 3
 

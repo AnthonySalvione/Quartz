@@ -1,6 +1,11 @@
+> *To the choir director: on the gittith. Of Asaph*
+
+> [!light] Note on gittith:
+> See note on the superscription of [[Psalm-08|Psa. 8]].
+---
 ## v1
 
-Sing for joy to God our strength;  
+[[Psalm-81.fn#Footnote 1.1 — Sing|Sing]] for joy to God our strength;  
 Make a joyful noise to the God of Jacob.
 
 ## v2
@@ -15,7 +20,7 @@ At the full moon, on our feast day.
 
 ## v4
 
-For that is a statute of Israel,  
+For that is a [[Psalm-81.fn#Footnote 4.1 — statute|statute]] of Israel,  
 An ordinance of the God of Jacob.
 
 ## v5
@@ -26,7 +31,7 @@ I heard a language that I did not know:
 
 ## v6
 
-I turned your shoulder from the burden;  
+I turned [[Psalm-81.fn#Footnote 6.1 — your|your]] shoulder from the burden;  
 Your hands were freed from the basket.
 
 ## v7
@@ -37,7 +42,7 @@ I proved you at the waters of Meribah. Selah
 
 ## v8
 
-Hear, O My people, and I will testify against you:  
+Hear, O My people, and I will testify [[Psalm-81.fn#Footnote 8.1 — against|against]] you:  
 O Israel, if you would listen to Me!
 
 ## v9

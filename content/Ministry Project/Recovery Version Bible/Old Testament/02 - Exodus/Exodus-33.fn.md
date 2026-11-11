@@ -15,7 +15,7 @@ chapter_num: 33
 
 **Verse:** [[Exodus-33#v2|Exodus 33:2]]
 
-The Angel here is Christ (see note 191 in [[Exodus-14|Exodus 14]]).
+The Angel here is Christ (see [note 19¹](<Exodus-14.fn#Footnote 19.1 — Angel>) in [[Exodus-14|Exodus 14]]).
 
 ## Footnotes for verse 5
 
@@ -31,7 +31,7 @@ Lit., know.
 
 **Verse:** [[Exodus-33#v6|Exodus 33:6]]
 
-As a result of Moses’ work as a mediator between God and the children of Israel, God’s anger was appeased, and the people repented and gave up their self-beautification (see note 21 in [[Exodus-32|Exodus 32]]; cf. [[Genesis-35#v1|Gen. 35:1-4]]).
+As a result of Moses’ work as a mediator between God and the children of Israel, God’s anger was appeased, and the people repented and gave up their self-beautification (see [note 2¹](<Exodus-32.fn#Footnote 2.1 — rings>) in [[Exodus-32|Exodus 32]]; cf. [[Genesis-35#v1|Gen. 35:1-4]]).
 
 ## Footnotes for verse 7
 
@@ -61,7 +61,7 @@ Lit., he.
 
 **Verse:** [[Exodus-33#v14|Exodus 33:14]]
 
-Lit., face. In [[Exodus-33#v12|vv. 12-17]] Moses bargained with God for His presence to go with him and the people. God’s presence is His way, the “map” that shows His people the way they should take (cf. [[John-14#v6|John 14:6]] and note 1; [[Hebrews-11#v8|Heb. 11:8]] and note). The children of Israel had God’s presence in a very limited way, for they were far from God’s heart (cf. [[Isaiah-29#v13|Isa. 29:13]]). Moses, however, was a person very near to God’s heart and according to God’s heart. Hence, he had God’s presence to a full extent.
+Lit., face. In [[Exodus-33#v12|vv. 12-17]] Moses bargained with God for His presence to go with him and the people. God’s presence is His way, the “map” that shows His people the way they should take (cf. [[John-14#v6|John 14:6]] and [note 1](<John-14.fn#Footnote 6.1 — way>); [[Hebrews-11#v8|Heb. 11:8]] and [note](<Hebrews-11.fn#Footnote 8.1 — not>)). The children of Israel had God’s presence in a very limited way, for they were far from God’s heart (cf. [[Isaiah-29#v13|Isa. 29:13]]). Moses, however, was a person very near to God’s heart and according to God’s heart. Hence, he had God’s presence to a full extent.
 
 ## Footnotes for verse 18
 

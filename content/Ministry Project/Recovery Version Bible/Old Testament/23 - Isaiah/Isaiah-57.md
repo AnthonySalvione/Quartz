@@ -9,7 +9,7 @@ That the righteous man is being swept away from evil.
 ## v2
 
 He enters into peace; /  
-They rest in their beds, /  
+They rest in their [[Isaiah-57.fn#Footnote 2.1 — beds|beds]], /  
 Each who walks uprightly.
 
 ## v3
@@ -28,7 +28,7 @@ A seed of falsehood,
 
 ## v5
 
-Who inflame yourselves among the terebinths, /  
+Who inflame yourselves among the [[Isaiah-57.fn#Footnote 5.1 — terebinths|terebinths]], /  
 Under every flourishing tree, /  
 Who slaughter the children in the valleys /  
 Under the clefts of the rocks?
@@ -90,7 +90,7 @@ Yet they will not profit you.
 When you cry out, let your heaps of idols deliver you. /  
 But the wind will carry them all away; /  
 A breath will take them away. /  
-But he who takes refuge in Me will inherit the land /  
+But he who takes [[Isaiah-57.fn#Footnote 13.1 — refuge|refuge]] in Me will inherit the land /  
 And possess My holy mountain.
 
 ## v14
@@ -104,7 +104,7 @@ Take up the obstacle out of the way of My people.
 For thus says the high and exalted One, /  
 Who inhabits eternity, whose name is Holy: /  
 I will dwell in the high and holy place, /  
-And with the contrite and lowly of spirit, /  
+And with the contrite and lowly of [[Isaiah-57.fn#Footnote 15.1 — spirit|spirit]], /  
 To revive the spirit of the lowly /  
 And to revive the heart of the contrite.
 
@@ -136,7 +136,7 @@ Says Jehovah; and I will heal him.
 
 ## v20
 
-But the wicked are like the tossed sea, /  
+But the [[Isaiah-57.fn#Footnote 20.1 — wicked|wicked]] are like the tossed sea, /  
 For it cannot be calm, /  
 And its waters toss up mire and mud.
 

@@ -1,18 +1,18 @@
 ## v1
 
-Indeed a King will reign according to righteousness,  
-And the rulers will rule according to justice.
+Indeed a [[Isaiah-32.fn#Footnote 1.1 — King|King]] will reign according to [[Isaiah-32.fn#Footnote 1.2 — righteousness|righteousness]],  
+And the [[Isaiah-32.fn#Footnote 1.1 — King|rulers]] will rule according to [[Isaiah-32.fn#Footnote 1.2 — righteousness|justice]].
 
 ## v2
 
-And a man will be like a refuge from the wind  
+And a [[Isaiah-32.fn#Footnote 2.1 — man|man]] will be like a refuge from the wind  
 And a covering from the tempest,  
 Like streams of water in a dry place,  
 Like the shadow of a massive rock in a wasted land.
 
 ## v3
 
-And the eyes of those who see will not be dim,  
+And the [[Isaiah-32.fn#Footnote 3.1 — eyes|eyes]] of those who see will not be dim,  
 And the ears of those who hear will attend.
 
 ## v4
@@ -84,7 +84,7 @@ In the exultant city.
 
 Because the palace will be abandoned;  
 The multitude of the city will be forsaken;  
-The Hill and the watchtower  
+The [[Isaiah-32.fn#Footnote 14.1 — Hill|Hill]] and the watchtower  
 Will become caves forever,  
 A joy for wild asses,  
 A pasture for flocks;

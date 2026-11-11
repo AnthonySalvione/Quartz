@@ -38,7 +38,7 @@ But You are my strong refuge.
 ## v8
 
 My mouth is filled with Your praise,  
-With Your glory, all day long.
+With Your [[Psalm-71.fn#Footnote 8.1 — glory|glory]], all day long.
 
 ## v9
 
@@ -104,10 +104,10 @@ O God, who is like You?
 
 ## v20
 
-You who have shown me  
+You who have shown [[Psalm-71.fn#Footnote 20.1 — me|me]]  
 Many great troubles  
-Will revive me again  
-And bring me up again  
+Will revive [[Psalm-71.fn#Footnote 20.1 — me|me]] again  
+And bring [[Psalm-71.fn#Footnote 20.1 — me|me]] up again  
 From the depths of the earth.
 
 ## v21
@@ -118,7 +118,7 @@ And will turn and comfort me.
 ## v22
 
 I will also praise You with the harp,  
-I will praise Your faithfulness, my God;  
+I will praise Your [[Psalm-71.fn#Footnote 22.1 — faithfulness|faithfulness]], my God;  
 I will sing psalms to You with the lyre,  
 O Holy One of Israel.
 

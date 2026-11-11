@@ -1,6 +1,6 @@
 ## v1
 
-In the third year of the reign of Belshazzar the king a vision appeared to me, Daniel, after the one that appeared to me at the beginning.
+In the [[Daniel-08.fn#Footnote 1.1 — third|third]] year of the reign of Belshazzar the king a vision appeared to me, Daniel, after the one that appeared to me at the beginning.
 
 ## v2
 
@@ -8,15 +8,15 @@ And I looked in the vision, and while I looked, now I was in the fortress of Shu
 
 ## v3
 
-Then I lifted my eyes, and I looked, and there was a ram, standing before the river, and he had two horns. And the two horns were high, but one was higher than the other; and the higher one came up last.
+Then I lifted my eyes, and I looked, and there was a [[Daniel-08.fn#Footnote 3.1 — ram|ram]], standing before the river, and he had two horns. And the two horns were high, but one was higher than the other; and the higher one came up last.
 
 ## v4
 
-I saw the ram pushing westward, northward, and southward; and no beast could stand before him, and there was no one who could deliver from his power; but he did as he pleased, and he became great.
+I saw the ram [[Daniel-08.fn#Footnote 4.1 — pushing|pushing]] westward, northward, and southward; and no beast could stand before him, and there was no one who could deliver from his power; but he [[Daniel-08.fn#Footnote 4.2 — did|did]] as he pleased, and he became great.
 
 ## v5
 
-And while I considered this, there was a male goat, coming from the west over the face of the whole earth without touching the ground; and the goat had a conspicuous horn between his eyes.
+And while I considered this, there was a [[Daniel-08.fn#Footnote 5.1 — male|male]] goat, coming from the west over the face of the whole earth without touching the ground; and the goat had a [[Daniel-08.fn#Footnote 5.2 — conspicuous|conspicuous]] horn between his eyes.
 
 ## v6
 
@@ -24,23 +24,23 @@ And he came up to the ram that had the two horns, which I had seen standing befo
 
 ## v7
 
-And I saw him come close to the ram, and he was enraged at him; and he struck the ram and broke his two horns; and the ram had no strength to withstand him, but the goat threw him down to the ground and trampled him; and there was none to deliver the ram from his power.
+And I saw him come close to the ram, and he was enraged at him; and he struck the ram and [[Daniel-08.fn#Footnote 7.1 — broke|broke]] his two horns; and the ram had no strength to withstand him, but the goat threw him down to the ground and trampled him; and there was none to deliver the ram from his power.
 
 ## v8
 
-And the male goat became very great. But once he became strong, the great horn was broken, and in its place four conspicuous ones came up toward the four winds of heaven.
+And the male goat became very [[Daniel-08.fn#Footnote 8.1 — great|great]]. But once he became strong, the great horn was [[Daniel-08.fn#Footnote 8.1 — great|broken]], and in its place [[Daniel-08.fn#Footnote 8.2 — four|four]] conspicuous ones came up toward the four winds of heaven.
 
 ## v9
 
-And out of one of them came forth a little horn, which grew very great toward the south, toward the east, and toward that which is beautiful.
+And out of one of them came forth a [[Daniel-08.fn#Footnote 9.1 — little|little]] horn, which grew very great toward the south, toward the east, and toward that which is beautiful.
 
 ## v10
 
-And it grew great, as high as the host of heaven; and it caused some of the host and some of the stars to fall to the earth, and it trampled them.
+And it grew great, [[Daniel-08.fn#Footnote 10.1 — as|as]] high as the host of heaven; and it caused some of the host and some of the stars to fall to the earth, and it trampled them.
 
 ## v11
 
-Indeed, he grew in greatness to that of the Prince of the host; and from Him the daily sacrifice was taken away, and the place of His sanctuary was thrown down.
+Indeed, he grew in greatness to that of the [[Daniel-08.fn#Footnote 11.1 — Prince|Prince]] of the host; and [[Daniel-08.fn#Footnote 11.2 — from|from]] Him the daily sacrifice was taken away, and the place of His sanctuary was thrown down.
 
 ## v12
 
@@ -48,11 +48,11 @@ And an army was given to him together with the daily sacrifice because of transg
 
 ## v13
 
-Then I heard a holy one speaking; and another holy one said to the particular one who was speaking, How long will the vision concerning the daily sacrifice and the transgression that desolates apply, so that the sanctuary and the host are trampled down?
+Then I heard a [[Daniel-08.fn#Footnote 13.1 — holy|holy]] one speaking; and another [[Daniel-08.fn#Footnote 13.1 — holy|holy]] one said to the particular one who was speaking, How long will the vision concerning the daily sacrifice and the transgression that desolates apply, so that the sanctuary and the host are trampled down?
 
 ## v14
 
-And he said to me, For two thousand three hundred nights and days; then the sanctuary will be cleansed.
+And he said to me, For [[Daniel-08.fn#Footnote 14.1 — two|two]] thousand three hundred nights and days; then the sanctuary will be [[Daniel-08.fn#Footnote 14.2 — cleansed|cleansed]].
 
 ## v15
 
@@ -80,7 +80,7 @@ The ram that you saw, which had the two horns, are the kings of Media and Persia
 
 ## v21
 
-And the hairy goat is the king of Javan; and the great horn which was between its eyes is the first king.
+And the hairy goat is the king of [[Daniel-08.fn#Footnote 21.1 — Javan|Javan]]; and the great horn which was between its eyes is the first king.
 
 ## v22
 
@@ -90,8 +90,8 @@ And the broken horn and the four horns that arose in its place are four kingdoms
 
 And in the latter time of their kingdom,  
 When the transgressors have filled up their transgressions,  
-A king will arise,  
-Of fierce countenance and skilled in ambiguities.
+A [[Daniel-08.fn#Footnote 23.1 — king|king]] will arise,  
+[[Daniel-08.fn#Footnote 23.2 — Of|Of]] fierce countenance and skilled in [[Daniel-08.fn#Footnote 23.3 — ambiguities|ambiguities]].
 
 ## v24
 

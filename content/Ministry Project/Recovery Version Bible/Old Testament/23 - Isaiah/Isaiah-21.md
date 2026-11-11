@@ -2,7 +2,7 @@
 
 The burden concerning the wilderness of the sea:  
 Like storm winds  
-In the Negev passing through,  
+In the [[Isaiah-21.fn#Footnote 1.1 — Negev|Negev]] passing through,  
 It comes from the wilderness  
 From an awesome land.
 
@@ -87,7 +87,7 @@ I have declared to you.
 
 ## v11
 
-The burden concerning Dumah:  
+The burden concerning [[Isaiah-21.fn#Footnote 11.1 — Dumah|Dumah]]:  
 Someone is calling to me from Seir:  
 Guard, what remains of the night?  
 Guard, what remains of the night?

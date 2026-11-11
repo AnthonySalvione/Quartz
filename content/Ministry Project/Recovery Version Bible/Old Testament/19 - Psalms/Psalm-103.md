@@ -1,6 +1,9 @@
+> *Of David*
+
+---
 ## v1
 
-Bless Jehovah, O my soul;  
+[[Psalm-103.fn#Footnote 1.1 — Bless|Bless]] Jehovah, O my soul;  
 And all that is within me, bless His holy name.
 
 ## v2
@@ -20,7 +23,7 @@ He crowns you with lovingkindness and compassions;
 
 ## v5
 
-He satisfies the prime of your life with good,  
+He satisfies the [[Psalm-103.fn#Footnote 5.1 — prime|prime]] of your life with good,  
 So that your youth is renewed like the eagle.
 
 ## v6
@@ -30,8 +33,8 @@ And judgments for all who are oppressed.
 
 ## v7
 
-He made His ways known to Moses;  
-His acts, to the children of Israel.
+He made His [[Psalm-103.fn#Footnote 7.1 — ways|ways]] known to Moses;  
+His [[Psalm-103.fn#Footnote 7.1 — ways|acts]], to the children of Israel.
 
 ## v8
 

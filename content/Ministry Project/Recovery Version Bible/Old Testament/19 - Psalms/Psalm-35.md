@@ -1,6 +1,9 @@
+> Of David
+
+---
 ## v1
 
-Strive, O Jehovah, with those who strive with me; / Battle against those who battle against me.
+[[Psalm-35.fn#Footnote 1.1 — Strive|Strive]], O Jehovah, with those who strive with me; / [[Psalm-35.fn#Footnote 1.1 — Strive|Battle]] against those who battle against me.
 
 ## v2
 
@@ -64,7 +67,7 @@ As profane mocking parasites, / They gnash their teeth at me.
 
 ## v17
 
-O Lord, how long will You look on? / Rescue my soul from their destruction, / My precious life from the lions.
+O Lord, how long will You look on? / Rescue my soul from their destruction, / My [[Psalm-35.fn#Footnote 17.1 — precious|precious]] life from the lions.
 
 ## v18
 
@@ -96,7 +99,7 @@ Vindicate me according to Your righteousness, O Jehovah my God; / And do not let
 
 ## v25
 
-Do not let them say in their heart, / Aha! That is what we wanted. / Do not let them say, We have swallowed him up.
+Do not let them say in their heart, / Aha! [[Psalm-35.fn#Footnote 25.1 — That|That]] is what we wanted. / Do not let them say, We have swallowed him up.
 
 ## v26
 

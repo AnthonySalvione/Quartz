@@ -47,7 +47,7 @@ Saul built this monument not for the kingdom of God but for the remembrance of h
 
 **Verse:** [[1 Samuel-15#v15|1 Samuel 15:15]]
 
-God did not want the best of the cattle to be used as a sacrifice to Him. In His eyes, such a thing was evil ([[1 Samuel-15#v19|v. 19]]). Anything presented and sacrificed to God that has its source in the flesh is evil in His sight. To offer something to God according to our own will is presumptuous and is sinful. See [[Genesis-04#v5|Gen. 4:5]] and note; [[Matthew-07#v22|Matt. 7:22-23]] and note 231.
+God did not want the best of the cattle to be used as a sacrifice to Him. In His eyes, such a thing was evil ([[1 Samuel-15#v19|v. 19]]). Anything presented and sacrificed to God that has its source in the flesh is evil in His sight. To offer something to God according to our own will is presumptuous and is sinful. See [[Genesis-04#v5|Gen. 4:5]] and [note](<Genesis-04.fn#Footnote 5.1 — no>); [[Matthew-07#v22|Matt. 7:22-23]] and [[Matthew-07.fn#Footnote 23.1 — knew|note 23¹]].
 
 ## Footnotes for verse 23
 
@@ -55,7 +55,7 @@ God did not want the best of the cattle to be used as a sacrifice to Him. In His
 
 **Verse:** [[1 Samuel-15#v23|1 Samuel 15:23]]
 
-Doing good according to our own will is actually an act of rebellion against God’s throne and His economy (see note 161 in [[Exodus-17|Exo. 17]]). Saul’s disobedience exposed him as being a rebel against God and an enemy of God (see note 171 in [[1 Samuel-22|1 Samuel 22]]). What Saul did was as evil as contacting an evil spirit for the purpose of carrying out the intention of that spirit, not God’s intention. Samuel’s word in this verse indicates that sparing the good aspects of our flesh involves us with evil spirits and idolatry.
+Doing good according to our own will is actually an act of rebellion against God’s throne and His economy (see [note 16¹](<Exodus-17.fn#Footnote 16.1 — hand>) in [[Exodus-17|Exo. 17]]). Saul’s disobedience exposed him as being a rebel against God and an enemy of God (see [note 17¹](<1 Samuel-22.fn#Footnote 17.1 — kill>) in [[1 Samuel-22|1 Samuel 22]]). What Saul did was as evil as contacting an evil spirit for the purpose of carrying out the intention of that spirit, not God’s intention. Samuel’s word in this verse indicates that sparing the good aspects of our flesh involves us with evil spirits and idolatry.
 
 ### Footnote 23.2 — rejected
 

@@ -15,7 +15,7 @@ chapter_num: 7
 
 **Verse:** [[Exodus-07#v1|Exodus 7:1]]
 
-A prophet is not mainly one who predicts the future but one who speaks for another, as Aaron spoke for Moses ([[Exodus-07#v2|v. 2]]). On prophesying, see [[1 Corinthians-14#v1|1 Cor. 14:1]], [[1 Corinthians-14#v3|3-5]], [[1 Corinthians-14#v24|24-25]], 31 and notes 13, 241, 251, and 311.
+A prophet is not mainly one who predicts the future but one who speaks for another, as Aaron spoke for Moses ([[Exodus-07#v2|v. 2]]). On prophesying, see [[1 Corinthians-14#v1|1 Cor. 14:1]], [[1 Corinthians-14#v3|3-5]], [[1 Corinthians-14#v24|24-25]], [[1 Corinthians-13#v31|31]] and notes [[1 Corinthians-14.fn#Footnote 1.3 — prophesy|1³]], [[1 Corinthians-14.fn#Footnote 24.1 — all|24¹]], [[1 Corinthians-14.fn#Footnote 25.1 — God|25¹]], and [[1 Corinthians-14.fn#Footnote 31.1 — you|31¹]].
 
 ## Footnotes for verse 9
 
@@ -31,7 +31,7 @@ The significance of this miracle was to expose the true nature of the Egyptian l
 
 **Verse:** [[Exodus-07#v11|Exodus 7:11]]
 
-The magicians of Egypt can be compared to the philosophers of the world. The worldly philosophers may teach things similar to what is preached in the gospel and may also expose that life in the world issues in death ([[Exodus-07#v22|v. 22]]; see note 171), but they are not able to remove the death; only the gospel can do this (cf. [[Exodus-08#v8|8:8-13]]). Just as Aaron’s staff swallowed up the magicians’ staffs ([[Exodus-07#v12|v. 12]]), the gospel swallows up all the philosophies of the world.
+The magicians of Egypt can be compared to the philosophers of the world. The worldly philosophers may teach things similar to what is preached in the gospel and may also expose that life in the world issues in death ([[Exodus-07#v22|v. 22]]; see [note 17¹](<Exodus-07.fn#Footnote 17.1 — blood>)), but they are not able to remove the death; only the gospel can do this (cf. [[Exodus-08#v8|8:8-13]]). Just as Aaron’s staff swallowed up the magicians’ staffs ([[Exodus-07#v12|v. 12]]), the gospel swallows up all the philosophies of the world.
 
 ## Footnotes for verse 15
 

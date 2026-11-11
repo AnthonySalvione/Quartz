@@ -23,4 +23,4 @@ Or, as the thread runs out.
 
 **Verse:** [[Job-07#v16|Job 7:16]]
 
-See note 11¹ in [[Job-03|Job 3]].
+See [note 11¹](<Job-03.fn#Footnote 11.1 — die>) in [[Job-03|Job 3]].

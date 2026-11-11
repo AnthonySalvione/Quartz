@@ -15,7 +15,7 @@ chapter_num: 4
 
 **Verse:** [[Ezra-04#v1|Ezra 4:1]]
 
-These were people brought from Babylon and Assyria by the king of Assyria to inhabit Samaria ([[2 Kings-17#v24|2 Kings 17:24]] and note; [[John-04#v9|John 4:9]] and note). Imitating Israel in seeking God and sacrificing to God, they pretended to help the rebuilding of the house of Jehovah, but they were rejected by Zerubbabel, Joshua, and the rest of the heads of the fathers’ houses ([[Ezra-04#v1|vv. 1-3]]).
+These were people brought from Babylon and Assyria by the king of Assyria to inhabit Samaria ([[2 Kings-17#v24|2 Kings 17:24]] and [note](<2 Kings-17.fn#Footnote 24.1 — Samaria>); [[John-04#v9|John 4:9]] and [note](<John-04.fn#Footnote 9.1 — Samaritans>)). Imitating Israel in seeking God and sacrificing to God, they pretended to help the rebuilding of the house of Jehovah, but they were rejected by Zerubbabel, Joshua, and the rest of the heads of the fathers’ houses ([[Ezra-04#v1|vv. 1-3]]).
 
 ## Footnotes for verse 8
 

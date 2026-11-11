@@ -39,7 +39,7 @@ Concerning the cleansing of the Levites, sprinkling the water of purification up
 
 **Verse:** [[Numbers-08#v10|Numbers 8:10]]
 
-The services of the tabernacle should have been taken care of by the sons of Israel, yet God chose the Levites to replace the sons of Israel ([[Numbers-08#v16|vv. 16-18]]; [[Numbers-03#v12|3:12]] and note; see note 271 in [[Exodus-32|Exo. 32]]). The laying on of hands here signifies that the sons of Israel identified themselves with the Levites, meaning that in the presenting of the Levites, all the sons of Israel were presented to God.
+The services of the tabernacle should have been taken care of by the sons of Israel, yet God chose the Levites to replace the sons of Israel ([[Numbers-08#v16|vv. 16-18]]; [[Numbers-03#v12|3:12]] and [note](<Numbers-03.fn#Footnote 12.1 — Levites>); see [note 27¹](<Exodus-32.fn#Footnote 27.1 — brother>) in [[Exodus-32|Exo. 32]]). The laying on of hands here signifies that the sons of Israel identified themselves with the Levites, meaning that in the presenting of the Levites, all the sons of Israel were presented to God.
 
 ## Footnotes for verse 11
 
@@ -47,7 +47,7 @@ The services of the tabernacle should have been taken care of by the sons of Isr
 
 **Verse:** [[Numbers-08#v11|Numbers 8:11]]
 
-A wave offering typifies the resurrected Christ (see note 241 in [[Exodus-29|Exo. 29]]). The Levites as living persons were offered as a wave offering that they might do the service of God (cf. [[Romans-12#v1|Rom. 12:1]], [[Romans-12#v4|4-6a]]).
+A wave offering typifies the resurrected Christ (see [note 24¹](<Exodus-29.fn#Footnote 24.1 — wave>) in [[Exodus-29|Exo. 29]]). The Levites as living persons were offered as a wave offering that they might do the service of God (cf. [[Romans-12#v1|Rom. 12:1]], [[Romans-12#v4|4-6a]]).
 
 ## Footnotes for verse 12
 

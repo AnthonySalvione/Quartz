@@ -1,6 +1,6 @@
 ## v1
 
-Oh that You would rend the heavens, that You would come down — /  
+Oh that You would rend the heavens, that You would [[Isaiah-64.fn#Footnote 1.1 — come|come]] down — /  
 That the mountains would shake at Your presence —
 
 ## v2
@@ -38,14 +38,14 @@ And our iniquities, like the wind, carry us away.
 
 ## v7
 
-And there is no one who calls upon Your name, /  
+And there is no one who [[Isaiah-64.fn#Footnote 7.1 — calls|calls]] upon Your name, /  
 Who stirs himself up to lay hold of You; /  
 For You have hidden Your face from us /  
-And have consumed us by our iniquities.
+And have [[Isaiah-64.fn#Footnote 7.2 — consumed|consumed]] us by our iniquities.
 
 ## v8
 
-But now, Jehovah, You are our Father; /  
+But now, Jehovah, You are our [[Isaiah-64.fn#Footnote 8.1 — Father|Father]]; /  
 We are the clay; and You, our Potter; /  
 And all of us are the work of Your hand.
 

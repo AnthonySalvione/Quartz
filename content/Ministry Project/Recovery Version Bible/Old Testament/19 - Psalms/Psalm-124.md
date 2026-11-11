@@ -1,31 +1,34 @@
-### v1
+> *A Song of Ascents. Of David*
 
-If it had not been Jehovah who was on our side, / Let Israel say,
+---
+## v1
 
-### v2
+[[Psalm-124.fn#Footnote 1.1 — If|If]] it had not been Jehovah who was on our side, / Let Israel say,
+
+## v2
 
 If it had not been Jehovah who was on our side / When men rose up against us;
 
-### v3
+## v3
 
 Then they would have swallowed us up alive / When their anger burned against us;
 
-### v4
+## v4
 
 Then the waters would have washed us away; / The stream would have passed over our soul;
 
-### v5
+## v5
 
-Then the proud waters / Would have passed over our soul.
+Then the [[Psalm-124.fn#Footnote 5.1 — proud|proud]] waters / Would have passed over our soul.
 
-### v6
+## v6
 
 Blessed be Jehovah, who has not given us / As prey to their teeth.
 
-### v7
+## v7
 
 Our soul has escaped like a bird, / Out of the snare of the fowlers; / The snare is broken, / And we have escaped.
 
-### v8
+## v8
 
 Our help is in the name of Jehovah, / Who made heaven and earth.

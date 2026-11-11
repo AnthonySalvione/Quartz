@@ -15,4 +15,4 @@ chapter_num: 18
 
 **Verse:** [[1 Chronicles-18#v7|1 Chronicles 18:7]]
 
-David consecrated to God the spoils of his victories for the building up of the temple, God’s dwelling place on earth ([[1 Chronicles-18#v7|vv. 7-11]]). See note 31 in [[1 Chronicles-22|1 Chronicles 22]].
+David consecrated to God the spoils of his victories for the building up of the temple, God’s dwelling place on earth ([[1 Chronicles-18#v7|vv. 7-11]]). See [note 3¹](<1 Chronicles-22.fn#Footnote 3.1 — prepared>) in [[1 Chronicles-22|1 Chronicles 22]].

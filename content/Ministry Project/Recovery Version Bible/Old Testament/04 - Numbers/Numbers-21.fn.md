@@ -15,13 +15,13 @@ chapter_num: 21
 
 **Verse:** [[Numbers-21#v1|Numbers 21:1]]
 
-In the typology of the Old Testament, Canaan has two aspects: on the positive side Canaan, a land of riches ([[Deuteronomy-08#v7|Deut. 8:7-10]] and note 71), typifies the all-inclusive Christ with His unsearchable riches ([[Colossians-01#v12|Col. 1:12]]; [[Ephesians-03#v8|Eph. 3:8]]), and on the negative side, it signifies the aerial part, the heavenly part, of the dark kingdom of Satan. As the ruler of this world ([[John-12#v31|John 12:31]]) and as the ruler of the authority of the air ([[Ephesians-02#v2|Eph. 2:2]]), Satan has his authority ([[Acts-26#v18|Acts 26:18]]) and his angels ([[Matthew-25#v41|Matt. 25:41]]), who are his subordinates as principalities, powers, and rulers of the darkness of this world ([[Ephesians-06#v12|Eph. 6:12]]). Hence, he has his kingdom ([[Matthew-12#v26|Matt. 12:26]]), the authority of darkness ([[Colossians-01#v13|Col. 1:13]]). The Canaanites typify the fallen angels, the rebellious angels who follow Satan ([[Revelation-12#v4|Rev. 12:4]], [[Revelation-12#v7|7]]), who have become the powers, rulers, and authorities in Satan’s kingdom (cf. [[Daniel-10#v13|Dan. 10:13]], [[Daniel-10#v20|20]]). The fighting of the children of Israel against the Canaanites that they might possess and enjoy the good land typifies the spiritual warfare of the church as a whole, including all the members, against “the spiritual forces of evil in the heavenlies” ([[Ephesians-06#v12|Eph. 6:12]]) that the saints may enjoy Christ as the all-inclusive land. The church must be such a corporate warrior, fighting against Satan’s aerial forces so that God’s people may gain more of Christ for the building up of the Body of Christ, establishing and spreading the kingdom of God so that Christ can come back to inherit the earth.
+In the typology of the Old Testament, Canaan has two aspects: on the positive side Canaan, a land of riches ([[Deuteronomy-08#v7|Deut. 8:7-10]] and [[Deuteronomy-08.fn#Footnote 7.1 — good|note 7¹]]), typifies the all-inclusive Christ with His unsearchable riches ([[Colossians-01#v12|Col. 1:12]]; [[Ephesians-03#v8|Eph. 3:8]]), and on the negative side, it signifies the aerial part, the heavenly part, of the dark kingdom of Satan. As the ruler of this world ([[John-12#v31|John 12:31]]) and as the ruler of the authority of the air ([[Ephesians-02#v2|Eph. 2:2]]), Satan has his authority ([[Acts-26#v18|Acts 26:18]]) and his angels ([[Matthew-25#v41|Matt. 25:41]]), who are his subordinates as principalities, powers, and rulers of the darkness of this world ([[Ephesians-06#v12|Eph. 6:12]]). Hence, he has his kingdom ([[Matthew-12#v26|Matt. 12:26]]), the authority of darkness ([[Colossians-01#v13|Col. 1:13]]). The Canaanites typify the fallen angels, the rebellious angels who follow Satan ([[Revelation-12#v4|Rev. 12:4]], [[Revelation-12#v7|7]]), who have become the powers, rulers, and authorities in Satan’s kingdom (cf. [[Daniel-10#v13|Dan. 10:13]], [[Daniel-10#v20|20]]). The fighting of the children of Israel against the Canaanites that they might possess and enjoy the good land typifies the spiritual warfare of the church as a whole, including all the members, against “the spiritual forces of evil in the heavenlies” ([[Ephesians-06#v12|Eph. 6:12]]) that the saints may enjoy Christ as the all-inclusive land. The church must be such a corporate warrior, fighting against Satan’s aerial forces so that God’s people may gain more of Christ for the building up of the Body of Christ, establishing and spreading the kingdom of God so that Christ can come back to inherit the earth.
 
 ### Footnote 1.2 — Arad
 
 **Verse:** [[Numbers-21#v1|Numbers 21:1]]
 
-The kings of Arad, of the Amorites ([[Numbers-21#v21|v. 21]]), and of Bashan ([[Numbers-21#v33|v. 33]]) were the “gate guards” on the east of the Jordan, guarding the land of Canaan, the kingdom of darkness, for Satan. In order for the children of Israel to enter into the good land, they had to pass through the territory controlled by these kings and had to fight against them, destroy them, and take over their territory. This signifies that in order to enjoy the unsearchably rich Christ, the church must defeat and take over the territory of the enemies signified by these kings. See note 11.
+The kings of Arad, of the Amorites ([[Numbers-21#v21|v. 21]]), and of Bashan ([[Numbers-21#v33|v. 33]]) were the “gate guards” on the east of the Jordan, guarding the land of Canaan, the kingdom of darkness, for Satan. In order for the children of Israel to enter into the good land, they had to pass through the territory controlled by these kings and had to fight against them, destroy them, and take over their territory. This signifies that in order to enjoy the unsearchably rich Christ, the church must defeat and take over the territory of the enemies signified by these kings. See [note 1¹](<Numbers-21.fn#Footnote 1.1 — Canaanite>).
 
 ## Footnotes for verse 3
 
@@ -61,7 +61,7 @@ Or, standard. So also in [[Numbers-21#v9|v. 9]]. The pole, or standard, here sig
 
 **Verse:** [[Numbers-21#v9|Numbers 21:9]]
 
-Bronze signifies judgment. The bronze serpent is a type of the Lord Jesus, who was crucified in the likeness of the flesh of sin as our Substitute and Replacement that we might “look at” (believe into) Him and have eternal life ([[John-03#v14|John 3:14-15]] and notes; [[Romans-08#v3|Rom. 8:3]] and note 3).
+Bronze signifies judgment. The bronze serpent is a type of the Lord Jesus, who was crucified in the likeness of the flesh of sin as our Substitute and Replacement that we might “look at” (believe into) Him and have eternal life ([[John-03#v14|John 3:14-15]] and notes; [[Romans-08#v3|Rom. 8:3]] and [note 3](<Romans-08.fn#Footnote 3.3 — likeness>)).
 
 ## Footnotes for verse 16
 
@@ -85,7 +85,7 @@ Those who seek after the Spirit and take the lead to dig the well are noble and 
 
 **Verse:** [[Numbers-21#v21|Numbers 21:21]]
 
-See note 1².
+See [note 1²](<Numbers-21.fn#Footnote 1.2 — Arad>).
 
 ## Footnotes for verse 28
 
@@ -109,4 +109,4 @@ According to the Septuagint; the Hebrew text reads, Which.
 
 **Verse:** [[Numbers-21#v33|Numbers 21:33]]
 
-Bashan, mentioned in [[Psalm-22#v12|Psa. 22:12]]; [[Psalm-68#v15|68:15]], [[Psalm-68#v22|22]]; [[Psalm-135#v11|135:11]]; and 136:20, is a mountain standing in opposition to God’s dwelling place. Thus, Bashan is a type of the satanic authority in the air. See note 12.
+Bashan, mentioned in [[Psalm-22#v12|Psa. 22:12]]; [[Psalm-68#v15|68:15]], [[Psalm-68#v22|22]]; [[Psalm-135#v11|135:11]]; and 136:20, is a mountain standing in opposition to God’s dwelling place. Thus, Bashan is a type of the satanic authority in the air. See [note 1²](<Numbers-21.fn#Footnote 1.2 — Arad>).

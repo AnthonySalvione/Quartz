@@ -4,7 +4,7 @@ Hear the word of Jehovah,
 O children of Israel;  
 For Jehovah has a controversy  
 With the inhabitants of the land.  
-For there is no faithfulness or kindness  
+For there is no [[Hosea-04.fn#Footnote 1.1 — faithfulness|faithfulness]] or kindness  
 And no knowledge of God in the land.
 
 ## v2
@@ -30,7 +30,7 @@ For your people are like those who contend with the priest.
 
 ## v5
 
-And you will stumble in the day,  
+And [[Hosea-04.fn#Footnote 5.1 — you|you]] will stumble in the day,  
 And the prophet also will stumble  
 With you in the night;  
 And I will destroy your mother.
@@ -38,25 +38,25 @@ And I will destroy your mother.
 ## v6
 
 My people are destroyed  
-Because of a lack of that knowledge.  
-For you have rejected that knowledge,  
+Because of a lack of [[Hosea-04.fn#Footnote 6.1 — that|that]] knowledge.  
+For you have rejected [[Hosea-04.fn#Footnote 6.1 — that|that]] knowledge,  
 And I will reject you, so that you will not be a priest to Me;  
 Since you have forgotten the law of your God,  
 I also will forget your children.
 
 ## v7
 
-The more they were multiplied, the more they sinned against Me;  
+The more [[Hosea-04.fn#Footnote 7.1 — they|they]] were multiplied, the more they sinned against Me;  
 I will change their glory into shame.
 
 ## v8
 
 They feed on the sin of My people,  
-And their soul desires their iniquity.
+And [[Hosea-04.fn#Footnote 8.1 — their|their]] soul desires their iniquity.
 
 ## v9
 
-And it will be that as it is with the people, so it will be with the priest;  
+And it will be that as it is with the people, [[Hosea-04.fn#Footnote 9.1 — so|so]] it will be with the priest;  
 Thus I will visit their ways upon them,  
 And I will recompense their doings to them.
 
@@ -69,11 +69,11 @@ For they have ceased giving heed to Jehovah.
 ## v11
 
 Fornication and wine  
-And new wine take away their heart.
+And new wine [[Hosea-04.fn#Footnote 11.1 — take|take]] away their heart.
 
 ## v12
 
-My people inquire at their wooden post,  
+My people inquire at their [[Hosea-04.fn#Footnote 12.1 — wooden|wooden]] post,  
 And their rod informs them of things;  
 For a spirit of harlotries makes them err,  
 And they have gone about as harlots away from their God.
@@ -89,18 +89,18 @@ And your brides commit adultery.
 
 ## v14
 
-I will not punish your daughters when they go about as harlots  
+I will not [[Hosea-04.fn#Footnote 14.1 — punish|punish]] your daughters when they go about as harlots  
 Nor your brides when they commit adultery;  
 For the men themselves go off with harlots,  
-And they offer sacrifices with the prostitutes;  
+And they offer sacrifices with the [[Hosea-04.fn#Footnote 14.2 — prostitutes|prostitutes]];  
 And the people who have no understanding will be cast down.
 
 ## v15
 
 Though you, Israel, go about as a harlot,  
 Let not Judah trespass;  
-And do not come to Gilgal,  
-Nor go up to Beth-aven,  
+And do not come to [[Hosea-04.fn#Footnote 15.1 — Gilgal|Gilgal]],  
+Nor go up to [[Hosea-04.fn#Footnote 15.2 — Beth-aven|Beth-aven]],  
 Nor swear, As Jehovah lives.
 
 ## v16
@@ -119,7 +119,7 @@ Leave him alone.
 
 Their liquor has ended;  
 They have given themselves up to harlotry;  
-Her rulers dearly love shame.
+Her [[Hosea-04.fn#Footnote 18.1 — rulers|rulers]] dearly love shame.
 
 ## v19
 

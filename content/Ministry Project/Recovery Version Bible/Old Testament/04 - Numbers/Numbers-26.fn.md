@@ -21,7 +21,7 @@ The renumbering of God’s people in this chapter took place immediately after t
 
 **Verse:** [[Numbers-26#v2|Numbers 26:2]]
 
-See note 2¹ in [[Numbers-01|Numbers 1]].
+See [note 2¹](<Numbers-01.fn#Footnote 2.1 — families>) in [[Numbers-01|Numbers 1]].
 
 ## Footnotes for verse 3
 
@@ -29,7 +29,7 @@ See note 2¹ in [[Numbers-01|Numbers 1]].
 
 **Verse:** [[Numbers-26#v3|Numbers 26:3]]
 
-See note 17¹ in [[Numbers-01|Numbers 1]].
+See [note 17¹](<Numbers-01.fn#Footnote 17.1 — Moses>) in [[Numbers-01|Numbers 1]].
 
 ## Footnotes for verse 11
 
@@ -37,7 +37,7 @@ See note 17¹ in [[Numbers-01|Numbers 1]].
 
 **Verse:** [[Numbers-26#v11|Numbers 26:11]]
 
-See note 33¹, par. 2, in [[Numbers-16|Numbers 16]].
+See [note 33¹](<Numbers-16.fn#Footnote 33.1 — descended>), par. 2, in [[Numbers-16|Numbers 16]].
 
 ## Footnotes for verse 33
 
@@ -53,7 +53,7 @@ The numbering of some of the daughters ([[Numbers-26#v33|vv. 33]], [[Numbers-26#
 
 **Verse:** [[Numbers-26#v55|Numbers 26:55]]
 
-The distributing of the land by lot ([[Numbers-26#v55|vv. 55-56]]) was according to the blessing under God’s sovereignty (see note 21 in [[Joshua-14|Josh. 14]]), whereas the distributing of the land according to the number of people ([[Numbers-26#v53|vv. 53-54]]) was a matter of human responsibility. Therefore, the distribution of the land depended both on human responsibility and on divine sovereignty.
+The distributing of the land by lot ([[Numbers-26#v55|vv. 55-56]]) was according to the blessing under God’s sovereignty (see [note 2¹](<Joshua-14.fn#Footnote 2.1 — lot>) in [[Joshua-14|Josh. 14]]), whereas the distributing of the land according to the number of people ([[Numbers-26#v53|vv. 53-54]]) was a matter of human responsibility. Therefore, the distribution of the land depended both on human responsibility and on divine sovereignty.
 
 ## Footnotes for verse 61
 
@@ -69,7 +69,7 @@ See [[Leviticus-10#v1|Lev. 10:1-2]] and notes.
 
 **Verse:** [[Numbers-26#v62|Numbers 26:62]]
 
-See note 20¹ in [[Numbers-18|Numbers 18]].
+See [note 20¹](<Numbers-18.fn#Footnote 20.1 — no>) in [[Numbers-18|Numbers 18]].
 
 ## Footnotes for verse 64
 

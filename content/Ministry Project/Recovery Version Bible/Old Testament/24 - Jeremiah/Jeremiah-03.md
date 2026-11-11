@@ -8,7 +8,7 @@ Will he return to her again?
 Will not that land be  
 Utterly polluted?  
 But you have committed fornication with many lovers.  
-Yet return to Me, declares Jehovah.
+[[Jeremiah-03.fn#Footnote 1.1 — Yet|Yet]] return to Me, declares Jehovah.
 
 ## v2
 
@@ -41,7 +41,7 @@ That you could.
 ## v6
 
 Then Jehovah said to me in the days of Josiah the king,  
-Have you seen what Israel the apostate has done?  
+Have you seen what [[Jeremiah-03.fn#Footnote 6.1 — Israel|Israel]] the apostate has done?  
 She went up on every high mountain and under every flourishing tree  
 And committed fornication there.
 
@@ -78,8 +78,8 @@ To be more righteous than Judah the treacherous.
 
 ## v12
 
-Go and proclaim these words to the north, and say,  
-Return, O Israel the apostate, declares Jehovah;  
+Go and proclaim these words to the [[Jeremiah-03.fn#Footnote 12.1 — north|north]], and say,  
+[[Jeremiah-03.fn#Footnote 12.2 — Return|Return]], O Israel the apostate, declares Jehovah;  
 And I will not let My countenance fall toward you;  
 For I am merciful, declares Jehovah;  
 I will not keep My anger forever.
@@ -107,7 +107,7 @@ Who will feed you knowledge and understanding.
 ## v16
 
 And when you are multiplied and increased in the land, in those days, declares Jehovah,  
-They will no longer say, The Ark of the Covenant of Jehovah!  
+They will no longer say, The [[Jeremiah-03.fn#Footnote 16.1 — Ark|Ark]] of the Covenant of Jehovah!  
 And it will not come to mind,  
 Nor will they remember it or visit it;  
 And it will not be made again.
@@ -115,14 +115,14 @@ And it will not be made again.
 ## v17
 
 At that time they will call Jerusalem the throne of Jehovah,  
-And all the nations will be gathered to it  
+And all the nations will be [[Jeremiah-03.fn#Footnote 17.1 — gathered|gathered]] to it  
 Because the name of Jehovah is at Jerusalem;  
 And they will no longer walk  
 After the stubbornness of their evil heart.
 
 ## v18
 
-In those days the house of Judah will walk with the house of Israel,  
+In those days the house of [[Jeremiah-03.fn#Footnote 18.1 — Judah|Judah]] will walk with the house of [[Jeremiah-03.fn#Footnote 18.1 — Judah|Israel]],  
 And they will come together from the land of the north  
 To the land which I have given to their fathers as an inheritance.
 

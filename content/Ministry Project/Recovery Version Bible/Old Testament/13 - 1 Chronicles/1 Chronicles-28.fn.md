@@ -15,7 +15,7 @@ chapter_num: 28
 
 **Verse:** [[1 Chronicles-28#v6|1 Chronicles 28:6]]
 
-See note 1³ in [[Matthew-01|Matt. 1]].
+See [note 1³](<Matthew-01.fn#Footnote 1.3 — son>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 11
 

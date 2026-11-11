@@ -21,7 +21,7 @@ Lit., shall be wonderful to vow a vow. A Nazarite was sanctified by making a spe
 
 **Verse:** [[Numbers-06#v2|Numbers 6:2]]
 
-God desires that all His people be Nazarites. To be a Nazarite is to be sanctified, separated, absolutely and ultimately to God, i.e., to be for nothing other than God. Cf. note 192 in [[Romans-06|Rom. 6]]. 
+God desires that all His people be Nazarites. To be a Nazarite is to be sanctified, separated, absolutely and ultimately to God, i.e., to be for nothing other than God. Cf. [note 19²](<Romans-06.fn#Footnote 19.2 — sanctification>) in [[Romans-06|Rom. 6]]. 
 
 According to typology, among the human race the unique Nazarite is the Lord Jesus Christ. Hence, a Nazarite is a type of Christ in His living absolutely for God in His humanity ([[John-05#v30|John 5:30]]; [[Philippians-02#v8|Phil. 2:8]]).
 
@@ -45,7 +45,7 @@ Abstaining from wine and anything related to its source ([[Numbers-06#v3|vv. 3-4
 
 **Verse:** [[Numbers-06#v5|Numbers 6:5]]
 
-Not shaving the head signifies not rejecting but being absolutely subject to the headship of the Lord (cf. [[1 Corinthians-11#v3|1 Cor. 11:3]], [[1 Corinthians-11#v6|6]], [[1 Corinthians-11#v10|10]], [[1 Corinthians-11#v15|15]]) as well as to all deputy authorities appointed by God ([[Romans-13#v1|Rom. 13:1-2a]]; [[Ephesians-05#v21|Eph. 5:21]], [[Ephesians-05#v23|23]]; [[Ephesians-06#v1|6:1]]; [[Hebrews-13#v17|Heb. 13:17]]; [[1 Peter-05#v5|1 Pet. 5:5]]). Cf. note 181 in [[Numbers-05|Numbers 5]].
+Not shaving the head signifies not rejecting but being absolutely subject to the headship of the Lord (cf. [[1 Corinthians-11#v3|1 Cor. 11:3]], [[1 Corinthians-11#v6|6]], [[1 Corinthians-11#v10|10]], [[1 Corinthians-11#v15|15]]) as well as to all deputy authorities appointed by God ([[Romans-13#v1|Rom. 13:1-2a]]; [[Ephesians-05#v21|Eph. 5:21]], [[Ephesians-05#v23|23]]; [[Ephesians-06#v1|6:1]]; [[Hebrews-13#v17|Heb. 13:17]]; [[1 Peter-05#v5|1 Pet. 5:5]]). Cf. [note 18¹](<Numbers-05.fn#Footnote 18.1 — hair>) in [[Numbers-05|Numbers 5]].
 
 ## Footnotes for verse 6
 
@@ -53,7 +53,7 @@ Not shaving the head signifies not rejecting but being absolutely subject to the
 
 **Verse:** [[Numbers-06#v6|Numbers 6:6]]
 
-The most hateful thing in the eyes of God is death. A Nazarite must not touch anything dead so that he might not be defiled. See note 312 in [[Leviticus-11|Lev. 11]].
+The most hateful thing in the eyes of God is death. A Nazarite must not touch anything dead so that he might not be defiled. See [note 31²](<Leviticus-11.fn#Footnote 31.2 — until>) in [[Leviticus-11|Lev. 11]].
 
 ## Footnotes for verse 7
 
@@ -101,7 +101,7 @@ This was a new vow of consecration for the Nazarite to separate himself to God a
 
 **Verse:** [[Numbers-06#v13|Numbers 6:13]]
 
-The Nazarite’s separation lasted for seven days ([[Acts-21#v27|Acts 21:27]]), signifying a full course, even a lifetime (cf. note 81 in [[1 Corinthians-05|1 Cor. 5]]). Each of the offerings brought to God by the Nazarite was a type of Christ. The enjoyment of Christ as these offerings indicates the overcoming of natural affection, earthly pleasure, rebellion, and death (see notes 31 through 71).
+The Nazarite’s separation lasted for seven days ([[Acts-21#v27|Acts 21:27]]), signifying a full course, even a lifetime (cf. [note 8¹](<1 Corinthians-05.fn#Footnote 8.1 — feast>) in [[1 Corinthians-05|1 Cor. 5]]). Each of the offerings brought to God by the Nazarite was a type of Christ. The enjoyment of Christ as these offerings indicates the overcoming of natural affection, earthly pleasure, rebellion, and death (see notes [3¹](<Numbers-06.fn#Footnote 3.1 — wine>) through 71).
 
 ## Footnotes for verse 14
 
@@ -121,7 +121,7 @@ Here a female lamb signifies submission. It typifies Christ as our sin offering 
 
 **Verse:** [[Numbers-06#v14|Numbers 6:14]]
 
-The ram here signifies being strong for enjoyment. It typifies Christ as our peace offering for our mutual enjoyment with God in fellowship with peace. The result of the burnt offering and the sin offering is the peace offering. Cf. note 372 in [[Leviticus-07|Lev. 7]].
+The ram here signifies being strong for enjoyment. It typifies Christ as our peace offering for our mutual enjoyment with God in fellowship with peace. The result of the burnt offering and the sin offering is the peace offering. Cf. [note 37²](<Leviticus-07.fn#Footnote 37.2 — peace>) in [[Leviticus-07|Lev. 7]].
 
 ## Footnotes for verse 15
 
@@ -135,7 +135,7 @@ In this verse a basket signifies fullness, unleavened signifies without sin, bre
 
 **Verse:** [[Numbers-06#v15|Numbers 6:15]]
 
-See note 13² in [[Leviticus-23|Lev. 23]].
+See [note 13²](<Leviticus-23.fn#Footnote 13.2 — drink>) in [[Leviticus-23|Lev. 23]].
 
 ## Footnotes for verse 18
 
@@ -191,4 +191,4 @@ Jehovah’s face shining on us and His being gracious to us are equivalent to Go
 
 **Verse:** [[Numbers-06#v26|Numbers 6:26]]
 
-The face ([[Numbers-06#v25|v. 25]]) denotes the presence of the person, and the countenance denotes the expression of the person. To lift up one’s countenance upon a person means to confirm, assure, promise, and give everything to that person. Jesus, the Son, came as the face of God (see note 251), and the Holy Spirit comes as the countenance of God (cf. [[Ephesians-04#v30|Eph. 4:30]]). When the Triune God is dispensed into us, we have the face of the Triune God and also His countenance. Eventually, we are kept in the Triune God, the Triune God becomes grace to us, and we have peace.
+The face ([[Numbers-06#v25|v. 25]]) denotes the presence of the person, and the countenance denotes the expression of the person. To lift up one’s countenance upon a person means to confirm, assure, promise, and give everything to that person. Jesus, the Son, came as the face of God (see [note 25¹](<Numbers-06.fn#Footnote 25.1 — face>)), and the Holy Spirit comes as the countenance of God (cf. [[Ephesians-04#v30|Eph. 4:30]]). When the Triune God is dispensed into us, we have the face of the Triune God and also His countenance. Eventually, we are kept in the Triune God, the Triune God becomes grace to us, and we have peace.

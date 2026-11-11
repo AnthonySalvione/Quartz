@@ -15,7 +15,7 @@ chapter_num: 26
 
 **Verse:** [[Deuteronomy-26#v2|Deuteronomy 26:2]]
 
-This offering was something in addition to the tithes ([[Deuteronomy-14#v22|14:22-27]]). Like the tithes, a portion of the first of all the fruit was to be offered to God and enjoyed with God in the place which God would choose. See note 51 in [[Deuteronomy-12|Deuteronomy 12]].
+This offering was something in addition to the tithes ([[Deuteronomy-14#v22|14:22-27]]). Like the tithes, a portion of the first of all the fruit was to be offered to God and enjoyed with God in the place which God would choose. See [note 5¹](<Deuteronomy-12.fn#Footnote 5.1 — choose>) in [[Deuteronomy-12|Deuteronomy 12]].
 
 ## Footnotes for verse 5
 
@@ -31,7 +31,7 @@ Or, wandering.
 
 **Verse:** [[Deuteronomy-26#v12|Deuteronomy 26:12]]
 
-See note 281 in [[Deuteronomy-14|Deuteronomy 14]].
+See [note 28¹](<Deuteronomy-14.fn#Footnote 28.1 — tithe>) in [[Deuteronomy-14|Deuteronomy 14]].
 
 ## Footnotes for verse 15
 
@@ -61,4 +61,4 @@ In this section of the rehearsal of the law ([[Deuteronomy-14#v1|14:1]]—[[Deut
 
 **Verse:** [[Deuteronomy-26#v18|Deuteronomy 26:18]]
 
-See note 51 in [[Exodus-19|Exo. 19]].
+See [note 5¹](<Exodus-19.fn#Footnote 5.1 — personal>) in [[Exodus-19|Exo. 19]].

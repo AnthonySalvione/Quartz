@@ -55,7 +55,7 @@ And nothing that you desire compares with her.
 
 ## v12
 
-I, wisdom, dwell with prudence,  
+[[Proverbs-08.fn#Footnote 12.1 — I|I]], wisdom, dwell with prudence,  
 And I find knowledge and discretion.
 
 ## v13

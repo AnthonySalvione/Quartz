@@ -55,7 +55,7 @@ Lit., your heart.
 
 **Verse:** [[Exodus-09#v16|Exodus 9:16]]
 
-On the one hand, God hardened Pharaoh’s heart; on the other hand, He made Pharaoh stand. Because God hardened Pharaoh’s heart, Pharaoh would not submit to God’s dealings. Furthermore, realizing that Pharaoh, in himself, was not strong enough to stand against Him, God made him stand that He might have the opportunity to show His power and have His name proclaimed throughout all the earth (cf. [[Romans-09#v17|Rom. 9:17]]). Pharaoh was never fully subdued by God; however, he was sovereignly used by God to fulfill God’s purpose. See note 41 in [[Exodus-14|Exodus 14]].
+On the one hand, God hardened Pharaoh’s heart; on the other hand, He made Pharaoh stand. Because God hardened Pharaoh’s heart, Pharaoh would not submit to God’s dealings. Furthermore, realizing that Pharaoh, in himself, was not strong enough to stand against Him, God made him stand that He might have the opportunity to show His power and have His name proclaimed throughout all the earth (cf. [[Romans-09#v17|Rom. 9:17]]). Pharaoh was never fully subdued by God; however, he was sovereignly used by God to fulfill God’s purpose. See [note 4¹](<Exodus-14.fn#Footnote 4.1 — harden>) in [[Exodus-14|Exodus 14]].
 
 ## Footnotes for verse 18
 
@@ -71,4 +71,4 @@ In the third group of three plagues, God altered some of the principles of natur
 
 **Verse:** [[Exodus-09#v28|Exodus 9:28]]
 
-See note 2¹ in [[Exodus-05|Exodus 5]].
+See [note 2¹](<Exodus-05.fn#Footnote 2.1 — Who>) in [[Exodus-05|Exodus 5]].

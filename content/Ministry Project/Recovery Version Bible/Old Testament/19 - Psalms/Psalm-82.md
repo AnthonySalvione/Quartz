@@ -1,7 +1,10 @@
+> *A Psalm of Asaph*
+
+---
 ## v1
 
 God stands in the congregation of God;  
-He judges in the midst of the gods.
+He judges in the midst of the [[Psalm-82.fn#Footnote 1.1 — gods|gods]].
 
 ## v2
 
@@ -20,7 +23,7 @@ Deliver them from the hand of the wicked.
 
 ## v5
 
-You do not know, nor do you understand;  
+[[Psalm-82.fn#Footnote 5.1 — You|You]] do not know, nor do you understand;  
 You go about in darkness;  
 All the foundations of the earth are shaken.
 
@@ -36,5 +39,5 @@ And fall like one of the princes.
 
 ## v8
 
-Arise, O God; judge the earth;  
-For You will inherit all the nations.
+Arise, O God; [[Psalm-82.fn#Footnote 8.1 — judge|judge]] the earth;  
+For You will [[Psalm-82.fn#Footnote 8.1 — judge|inherit]] all the nations.

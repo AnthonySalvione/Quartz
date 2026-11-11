@@ -21,7 +21,7 @@ The negative situation involving Nadab and Abihu, Aaron’s sons, took place not
 
 **Verse:** [[Leviticus-10#v1|Leviticus 10:1]]
 
-The strange fire offered by Nadab and Abihu was common fire, not holy fire. It was not fire from the altar ([[Leviticus-16#v12|16:12]]), which came forth from God, from heaven ([[Leviticus-09#v24|9:24]]), but fire from man, from the earth, with no base of expiation. Strange fire signifies man’s natural enthusiasm, natural affection, natural strength, and natural ability offered to God. Nadab and Abihu did something for God, but they did it in a natural way. Hence, God judged this offering by consuming the two priests ([[Leviticus-10#v2|v. 2]]). This is a strong warning showing us that in touching the divine things we need to apply the cross to our natural life. Otherwise, our careless touching of the holy things of God will bring in spiritual deadness, and may even result in physical death ([[Acts-05#v1|Acts 5:1-11]]; [[1 Corinthians-11#v27|1 Cor. 11:27-32]]; [[1 John-05#v16|1 John 5:16]]), as a judgment from the holy God. See notes 72 in [[2 Samuel-06|2 Sam. 6]] and 291 in [[Hebrews-12|Heb. 12]].
+The strange fire offered by Nadab and Abihu was common fire, not holy fire. It was not fire from the altar ([[Leviticus-16#v12|16:12]]), which came forth from God, from heaven ([[Leviticus-09#v24|9:24]]), but fire from man, from the earth, with no base of expiation. Strange fire signifies man’s natural enthusiasm, natural affection, natural strength, and natural ability offered to God. Nadab and Abihu did something for God, but they did it in a natural way. Hence, God judged this offering by consuming the two priests ([[Leviticus-10#v2|v. 2]]). This is a strong warning showing us that in touching the divine things we need to apply the cross to our natural life. Otherwise, our careless touching of the holy things of God will bring in spiritual deadness, and may even result in physical death ([[Acts-05#v1|Acts 5:1-11]]; [[1 Corinthians-11#v27|1 Cor. 11:27-32]]; [[1 John-05#v16|1 John 5:16]]), as a judgment from the holy God. See notes [7²](<2 Samuel-06.fn#Footnote 7.2 — died>) in [[2 Samuel-06|2 Sam. 6]] and [29¹](<Hebrews-12.fn#Footnote 29.1 — consuming>) in [[Hebrews-12|Heb. 12]].
 
 ## Footnotes for verse 2
 
@@ -53,7 +53,7 @@ This signifies that the deadness of unholiness should be kept away from the sphe
 
 **Verse:** [[Leviticus-10#v6|Leviticus 10:6]]
 
-This signifies that even God’s judgment of death upon the relatives should not be an excuse for His serving ones to be disorderly in their subjection to the headship of Christ (cf. [[1 Corinthians-11#v10|1 Cor. 11:10]], [[1 Corinthians-11#v15|15]]) and to break the perfection of their conduct (cf. notes 21 and 22 in [[Exodus-28|Exo. 28]]), that they might not suffer deadness in their spiritual life and cause God to be unhappy with His people.
+This signifies that even God’s judgment of death upon the relatives should not be an excuse for His serving ones to be disorderly in their subjection to the headship of Christ (cf. [[1 Corinthians-11#v10|1 Cor. 11:10]], [[1 Corinthians-11#v15|15]]) and to break the perfection of their conduct (cf. notes [2¹](<Exodus-28.fn#Footnote 2.1 — garments>) and [2²](<Exodus-28.fn#Footnote 2.2 — for>) in [[Exodus-28|Exo. 28]]), that they might not suffer deadness in their spiritual life and cause God to be unhappy with His people.
 
 ### Footnote 6.2 — weep
 
@@ -85,7 +85,7 @@ The judgment of God on Aaron’s two sons did not terminate God’s mercy on His
 
 **Verse:** [[Leviticus-10#v14|Leviticus 10:14]]
 
-See note 29¹ in [[Leviticus-07|Leviticus 7]].
+See [note 29¹](<Leviticus-07.fn#Footnote 29.1 — Speak>) in [[Leviticus-07|Leviticus 7]].
 
 ## Footnotes for verse 17
 
@@ -99,7 +99,7 @@ The priests’ partaking of the sin offering to bear the iniquity of the people 
 
 **Verse:** [[Leviticus-10#v17|Leviticus 10:17]]
 
-See note 1¹ in [[Leviticus-16|Leviticus 16]].
+See [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Leviticus 16]].
 
 ## Footnotes for verse 19
 

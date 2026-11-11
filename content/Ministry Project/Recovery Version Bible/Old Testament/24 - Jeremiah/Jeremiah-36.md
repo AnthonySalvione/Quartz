@@ -84,11 +84,11 @@ Then the king sent Jehudi to get the scroll, and he took it from the chamber of 
 
 ## v22
 
-Now the king was sitting in the winter house in the ninth month, and the fire of the brazier was burning before him.
+Now the king was sitting in the winter house in the ninth month, and the [[Jeremiah-36.fn#Footnote 22.1 — fire|fire]] of the brazier was burning before him.
 
 ## v23
 
-And as Jehudi would read three or four columns, the king would cut it with a scribe’s knife and throw the pieces into the fire which was in the brazier, until the whole scroll was consumed in the fire which was in the brazier.
+And as Jehudi would read three or four columns, [[Jeremiah-36.fn#Footnote 23.1 — the|the]] king would cut it with a scribe’s knife and throw the pieces into the fire which was in the brazier, until the whole scroll was consumed in the fire which was in the brazier.
 
 ## v24
 
@@ -124,4 +124,4 @@ And I will punish him and his offspring and his servants for their iniquity, and
 
 ## v32
 
-Then Jeremiah took another scroll and gave it to Baruch the son of Neriah, the scribe, and he wrote on it from the mouth of Jeremiah all the words of the book which Jehoiakim the king of Judah had burned in the fire; and many more words like those were added to them.
+Then [[Jeremiah-36.fn#Footnote 32.1 — Jeremiah|Jeremiah]] took another scroll and gave it to Baruch the son of Neriah, the scribe, and he wrote on it from the mouth of Jeremiah all the words of the book which Jehoiakim the king of Judah had burned in the fire; and many more words like those were added to them.

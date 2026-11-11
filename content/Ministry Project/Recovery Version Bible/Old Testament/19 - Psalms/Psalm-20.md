@@ -1,6 +1,9 @@
+> *To the choir director. A Psalm of David*
+
+---
 ## v1
 
-May Jehovah answer you in the day of trouble; / May the name of the God of Jacob set you on high.
+[[Psalm-20.fn#Footnote 1.1 — May|May]] Jehovah answer you in the day of trouble; / May the name of the God of Jacob set you on high.
 
 ## v2
 
@@ -32,4 +35,4 @@ They are humbled and fallen, / But we have risen and stand upright.
 
 ## v9
 
-Save, O Jehovah! / May the king answer us when we call.
+[[Psalm-20.fn#Footnote 9.1 — Save|Save]], O Jehovah! / May the king answer us when we call.

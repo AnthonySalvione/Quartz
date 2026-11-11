@@ -1,10 +1,15 @@
+> *To the choir director. Of the sons of Korah. A Maschil*
+
+> [!light] Note on Maschil:
+> See note on the superscription of Psa. 32.
+---
 ## v1
 
-O God, we have heard with our ears; / Our fathers have recounted it to us, / The work You did in their days, / In the days of old.
+[[Psalm-44.fn#Footnote 1.1 — O|O]] God, we have heard with our ears; / Our fathers have recounted it to us, / The work You did in their days, / In the days of old.
 
 ## v2
 
-You, by Your hand, / Have dispossessed nations, but You have planted our fathers; / You afflicted peoples, but You spread our fathers forth.
+You, by Your hand, / Have dispossessed nations, but You have planted [[Psalm-44.fn#Footnote 2.1 — our|our]] fathers; / You afflicted peoples, but You spread [[Psalm-44.fn#Footnote 2.1 — our|our]] fathers forth.
 
 ## v3
 
@@ -32,7 +37,7 @@ In God we boast all day long, / And we praise Your name forever. Selah
 
 ## v9
 
-Nevertheless You have rejected us and humiliated us, / And You have not gone forth with our armies.
+[[Psalm-44.fn#Footnote 9.1 — Nevertheless|Nevertheless]] You have rejected us and humiliated us, / And You have not gone forth with our armies.
 
 ## v10
 
@@ -64,7 +69,7 @@ Because of the voice of him who reproaches and reviles, / Because of the presenc
 
 ## v17
 
-All this has come upon us; but we have not forgotten You, / Nor have we been false to Your covenant.
+All this has come upon us; but we have [[Psalm-44.fn#Footnote 17.1 — not|not]] forgotten You, / Nor have we been false to Your covenant.
 
 ## v18
 
@@ -88,7 +93,7 @@ But for Your sake we are slain all day long; / We are considered as sheep for sl
 
 ## v23
 
-Awake! Why are You sleeping, O Lord? / Arise! Do not reject us forever.
+Awake! Why are You sleeping, O [[Psalm-44.fn#Footnote 23.1 — Lord|Lord]]? / Arise! Do not reject us forever.
 
 ## v24
 

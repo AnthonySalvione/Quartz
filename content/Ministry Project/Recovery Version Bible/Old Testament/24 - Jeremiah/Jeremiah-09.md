@@ -2,7 +2,7 @@
 
 Oh that my head were waters,  
 And my eye a fountain of tears,  
-That I might weep day and night  
+That I might [[Jeremiah-09.fn#Footnote 1.1 — weep|weep]] day and night  
 For the slain of the daughter of my people!
 
 ## v2
@@ -63,7 +63,7 @@ Shall My soul not avenge itself?
 
 ## v10
 
-For the mountains I will take up a weeping and wailing,  
+For the mountains I will take up a [[Jeremiah-09.fn#Footnote 10.1 — weeping|weeping]] and wailing,  
 And for the pastures of the wilderness, a lamentation;  
 Because they have been burned up so that no one passes through,  
 And the sound of cattle is not heard;  
@@ -90,7 +90,7 @@ So that no one passes through?
 And Jehovah said,  
 Because they have forsaken My law, which I set before them,  
 And have not listened to My voice  
-Or walked in My law,
+Or walked in [[Jeremiah-09.fn#Footnote 13.1 — My|My]] law,
 
 ## v14
 
@@ -119,9 +119,9 @@ And send for the skillful women to come;
 
 ## v18
 
-Let them hasten and take up a wailing for us,  
-That our eyes may shed tears  
-And our eyelids may pour forth water.
+Let them hasten and take up a wailing for [[Jeremiah-09.fn#Footnote 18.1 — us|us]],  
+That [[Jeremiah-09.fn#Footnote 18.1 — us|our]] eyes may shed tears  
+And [[Jeremiah-09.fn#Footnote 18.1 — us|our]] eyelids may pour forth water.
 
 ## v19
 
@@ -173,7 +173,7 @@ For in these things I delight, declares Jehovah.
 
 Indeed, days are coming, declares Jehovah,  
 When I will punish all those  
-Who are circumcised and yet uncircumcised:
+Who are [[Jeremiah-09.fn#Footnote 25.1 — circumcised|circumcised]] and yet [[Jeremiah-09.fn#Footnote 25.1 — circumcised|uncircumcised]]:
 
 ## v26
 

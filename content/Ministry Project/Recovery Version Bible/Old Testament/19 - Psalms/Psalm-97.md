@@ -1,12 +1,12 @@
 ## v1
 
-Jehovah reigns! Let the earth be glad;  
+Jehovah [[Psalm-97.fn#Footnote 1.1 — reigns|reigns]]! Let the earth be glad;  
 Let the many islands rejoice.
 
 ## v2
 
 Clouds and deep darkness surround Him;  
-Righteousness and justice are the foundation of His throne.
+[[Psalm-97.fn#Footnote 2.1 — Righteousness|Righteousness]] and justice are the foundation of His throne.
 
 ## v3
 
@@ -32,7 +32,7 @@ And all the peoples see His glory.
 
 Let all who serve a graven image be ashamed,  
 Who make their boast in idols;  
-Worship Him, all you gods.
+Worship Him, all you [[Psalm-97.fn#Footnote 7.1 — gods|gods]].
 
 ## v8
 
@@ -59,4 +59,4 @@ And rejoicing for the upright in heart.
 ## v12
 
 Rejoice in Jehovah, O righteous ones;  
-And praise His holy memorial.
+And [[Psalm-97.fn#Footnote 12.1 — praise|praise]] [[Psalm-97.fn#Footnote 12.2 — His|His]] holy memorial.

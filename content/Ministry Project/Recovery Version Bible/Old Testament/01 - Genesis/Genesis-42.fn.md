@@ -15,7 +15,7 @@ chapter_num: 42
 
 **Verse:** [[Genesis-42#v2|Genesis 42:2]]
 
-God used the famine and Jacob’s sending of his sons to Egypt to deal with Jacob for his maturity in life. During his long wait for the return of his sons, Jacob was emptied of all his preoccupations ([[Genesis-42#v36|v. 36]]; [[Genesis-43#v13|43:13-14]]) that God might fill Jacob with the element of the divine life. See note 261 in [[Genesis-45|Genesis 45]].
+God used the famine and Jacob’s sending of his sons to Egypt to deal with Jacob for his maturity in life. During his long wait for the return of his sons, Jacob was emptied of all his preoccupations ([[Genesis-42#v36|v. 36]]; [[Genesis-43#v13|43:13-14]]) that God might fill Jacob with the element of the divine life. See [note 26¹](<Genesis-45.fn#Footnote 26.1 — numb>) in [[Genesis-45|Genesis 45]].
 
 ## Footnotes for verse 3
 

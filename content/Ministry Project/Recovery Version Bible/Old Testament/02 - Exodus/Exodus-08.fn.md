@@ -23,7 +23,7 @@ The plague of frogs revealed to the Egyptians that everything they gained from t
 
 **Verse:** [[Exodus-08#v15|Exodus 8:15]]
 
-See note 12¹ in [[Exodus-09|Exodus 9]].
+See [note 12¹](<Exodus-09.fn#Footnote 12.1 — hardened>) in [[Exodus-09|Exodus 9]].
 
 ## Footnotes for verse 16
 
@@ -41,7 +41,7 @@ In the first group of three plagues God exposed the nature of the fallen life of
 
 **Verse:** [[Exodus-08#v19|Exodus 8:19]]
 
-See note 20¹ in [[Luke-11|Luke 11]].
+See [note 20¹](<Luke-11.fn#Footnote 20.1 — finger>) in [[Luke-11|Luke 11]].
 
 ## Footnotes for verse 21
 
@@ -57,7 +57,7 @@ The second group of three plagues dealt mainly with the air, another necessity f
 
 **Verse:** [[Exodus-08#v23|Exodus 8:23]]
 
-The redemption in this verse looks forward to the redemption accomplished by Christ. According to His righteousness God should have judged the heavens and the earth immediately after the fall of Adam. However, in order to fulfill His purpose to have a dwelling place among men, God put the universe under the redemption of Christ, which in His eternal view was foreordained before the foundation of the world ([[1 Peter-01#v19|1 Pet. 1:19-20]] and note 201; [[Hebrews-02#v9|Heb. 2:9]] and note 3). Hence, God has the freedom to either preserve the universe or to judge it and destroy it. Today, God extends His mercy by viewing all the people of the world under the redemption of Christ so that they might have the opportunity to repent and receive His redemption (cf. [[John-03#v18|John 3:18]]). Pharaoh and the Egyptians rejected the redemption ordained by God and thus exposed themselves to God’s judgment (cf. [[1 John-02#v2|1 John 2:2]] and note 2). Because God covered the children of Israel with Christ’s redemption, God’s judgment did not touch them ([[Exodus-12#v23|12:23]]).
+The redemption in this verse looks forward to the redemption accomplished by Christ. According to His righteousness God should have judged the heavens and the earth immediately after the fall of Adam. However, in order to fulfill His purpose to have a dwelling place among men, God put the universe under the redemption of Christ, which in His eternal view was foreordained before the foundation of the world ([[1 Peter-01#v19|1 Pet. 1:19-20]] and [[1 Peter-01.fn#Footnote 20.1 — foreknown|note 20¹]]; [[Hebrews-02#v9|Heb. 2:9]] and [note 3](<Hebrews-02.fn#Footnote 9.3 — everything>)). Hence, God has the freedom to either preserve the universe or to judge it and destroy it. Today, God extends His mercy by viewing all the people of the world under the redemption of Christ so that they might have the opportunity to repent and receive His redemption (cf. [[John-03#v18|John 3:18]]). Pharaoh and the Egyptians rejected the redemption ordained by God and thus exposed themselves to God’s judgment (cf. [[1 John-02#v2|1 John 2:2]] and [note 2](<1 John-02.fn#Footnote 2.2 — whole>)). Because God covered the children of Israel with Christ’s redemption, God’s judgment did not touch them ([[Exodus-12#v23|12:23]]).
 
 ## Footnotes for verse 25
 
@@ -65,4 +65,4 @@ The redemption in this verse looks forward to the redemption accomplished by Chr
 
 **Verse:** [[Exodus-08#v25|Exodus 8:25]]
 
-I.e., in Egypt. See note 21 in [[Exodus-05|Exodus 5]].
+I.e., in Egypt. See [note 2¹](<Exodus-05.fn#Footnote 2.1 — Who>) in [[Exodus-05|Exodus 5]].

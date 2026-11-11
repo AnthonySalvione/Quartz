@@ -1,6 +1,6 @@
 ## v1
 
-In the second year of Darius the king, in the sixth month, on the first day of the month, the word of Jehovah came through Haggai the prophet unto Zerubbabel the son of Shealtiel, the governor of Judah, and unto Joshua the son of Jehozadak, the high priest, saying,
+In the second year of [[Haggai-01.fn#Footnote 1.1 — Darius|Darius]] the king, in the sixth month, on the first day of the month, the word of Jehovah came through [[Haggai-01.fn#Footnote 1.2 — Haggai|Haggai]] the prophet unto [[Haggai-01.fn#Footnote 1.3 — Zerubbabel|Zerubbabel]] the son of Shealtiel, the governor of Judah, and unto Joshua the son of Jehozadak, the high priest, saying,
 
 ## v2
 
@@ -18,11 +18,11 @@ Is it time for you yourselves to dwell in your paneled-up houses, while this hou
 ## v5
 
 Now therefore thus says Jehovah of hosts,  
-Consider your ways.
+[[Haggai-01.fn#Footnote 5.1 — Consider|Consider]] your ways.
 
 ## v6
 
-You have sown much, but you bring in little;  
+You have sown much, but you bring in [[Haggai-01.fn#Footnote 6.1 — little|little]];  
 You eat, but there is no satisfaction;  
 You drink, but there is no being filled with drink;  
 You dress yourselves, but there is no warmth in doing so;  
@@ -35,7 +35,7 @@ Consider your ways.
 
 ## v8
 
-Go up to the mountain and bring wood and build the house,  
+Go up to the mountain and [[Haggai-01.fn#Footnote 8.1 — bring|bring]] wood and build the house,  
 And I will take pleasure in it and will be glorified,  
 Says Jehovah.
 
@@ -45,7 +45,7 @@ You looked for much, and yet it amounted to little;
 And when you brought it home, I blew on it.  
 Why? declares Jehovah of hosts.  
 Because of My house that lies waste  
-While you each run to your own house.
+While you each [[Haggai-01.fn#Footnote 9.1 — run|run]] to your own house.
 
 ## v10
 
@@ -77,10 +77,10 @@ I am with you, declares Jehovah.
 
 ## v14
 
-And Jehovah stirred up the spirit of Zerubbabel the son of Shealtiel, the governor of Judah,  
-And the spirit of Joshua the son of Jehozadak, the high priest,  
-And the spirit of all the remnant of the people;  
-And they came and did work in the house of Jehovah of hosts their God,
+And Jehovah stirred up the [[Haggai-01.fn#Footnote 14.1 — spirit|spirit]] of Zerubbabel the son of Shealtiel, the governor of Judah,  
+And the [[Haggai-01.fn#Footnote 14.1 — spirit|spirit]] of Joshua the son of Jehozadak, the high priest,  
+And the [[Haggai-01.fn#Footnote 14.1 — spirit|spirit]] of all the remnant of the people;  
+And they came and did [[Haggai-01.fn#Footnote 14.2 — work|work]] in the house of Jehovah of hosts their God,
 
 ## v15
 

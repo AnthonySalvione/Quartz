@@ -8,11 +8,11 @@ And Jehovah said to me, This gate will remain shut; it will not be opened, nor w
 
 ## v3
 
-As for the Prince, He will sit in it as a prince to eat food before Jehovah; He will enter through the porch of the gate and go out the same way.
+As for the [[Ezekiel-44.fn#Footnote 3.1 — Prince|Prince]], He will sit in it as a prince to eat food before Jehovah; He will enter through the porch of the gate and go out the same way.
 
 ## v4
 
-Then He brought me through the north gate to the front of the house; and I looked, and just then the glory of Jehovah filled the house of Jehovah, and I fell upon my face.
+Then He brought me through the north gate to the front of the house; and I looked, and just then the glory of Jehovah filled the [[Ezekiel-44.fn#Footnote 4.1 — house|house]] of Jehovah, and I fell upon my face.
 
 ## v5
 
@@ -24,7 +24,7 @@ And you shall say to the rebellious, to the house of Israel, Thus says the Lord 
 
 ## v7
 
-Inasmuch as you have brought in foreigners, uncircumcised in heart and uncircumcised in flesh, to be in My sanctuary, to profane it, My house, when you presented My bread, the fat and the blood. And in addition to all your abominations, you broke My covenant.
+Inasmuch as you have brought in foreigners, uncircumcised in heart and uncircumcised in flesh, to be in My sanctuary, to profane it, My house, when you presented My bread, the fat and the blood. And in addition to all your abominations, [[Ezekiel-44.fn#Footnote 7.1 — you|you]] broke My covenant.
 
 ## v8
 
@@ -32,11 +32,11 @@ And you have not kept the charge of My holy things, but you have set your own ke
 
 ## v9
 
-Thus says the Lord Jehovah, No foreigner, uncircumcised in heart and uncircumcised in flesh, of any of the foreigners who are among the children of Israel shall enter into My sanctuary.
+Thus says the Lord Jehovah, No foreigner, [[Ezekiel-44.fn#Footnote 9.1 — uncircumcised|uncircumcised]] in heart and [[Ezekiel-44.fn#Footnote 9.1 — uncircumcised|uncircumcised]] in flesh, of any of the foreigners who are among the children of Israel shall enter into My sanctuary.
 
 ## v10
 
-But the Levites who went far from Me, when Israel went astray, who went astray from Me after their idols, shall bear their iniquity.
+But the Levites [[Ezekiel-44.fn#Footnote 10.1 — who|who]] went far from Me, when Israel went astray, who went astray from Me after their idols, shall bear their iniquity.
 
 ## v11
 
@@ -56,7 +56,7 @@ Yet I will appoint them keepers of the charge of the house, for all its service 
 
 ## v15
 
-But the Levitical priests, the sons of Zadok, who kept the charge of My sanctuary when the children of Israel went astray from Me, they shall come near to Me to minister to Me; and they shall stand before Me to present to Me the fat and the blood, declares the Lord Jehovah.
+But the Levitical priests, the sons of Zadok, who kept the charge of My sanctuary when the children of Israel went astray from Me, they shall come near to Me to minister to Me; and they shall stand before Me to present to Me the [[Ezekiel-44.fn#Footnote 15.1 — fat|fat]] and the [[Ezekiel-44.fn#Footnote 15.1 — fat|blood]], declares the Lord Jehovah.
 
 ## v16
 
@@ -64,7 +64,7 @@ It is they who will enter My sanctuary, and it is they who will come near to My 
 
 ## v17
 
-And when they enter the gates of the inner court they shall be clothed with linen garments, and no wool will come upon them while they minister in the gates of the inner court and inside it.
+And when they enter the gates of the inner court they shall be clothed with [[Ezekiel-44.fn#Footnote 17.1 — linen|linen]] garments, and no [[Ezekiel-44.fn#Footnote 17.1 — linen|wool]] will come upon them while they minister in the gates of the inner court and inside it.
 
 ## v18
 
@@ -72,19 +72,19 @@ They shall have linen turbans on their heads and have linen trousers over their 
 
 ## v19
 
-And when they go out into the outer court, into the outer court to the people, they shall take off their garments with which they minister and lay them in the holy chambers, and they shall put on other garments so that they do not sanctify the people with their garments.
+And when they go out into the outer court, into the outer court to the people, they shall [[Ezekiel-44.fn#Footnote 19.1 — take|take]] off their garments with which they minister and lay them in the holy chambers, and they shall put on other garments so that they do not sanctify the people with their garments.
 
 ## v20
 
-They shall neither shave their heads, nor let their locks grow long; they shall only trim the hair of their heads.
+They shall neither [[Ezekiel-44.fn#Footnote 20.1 — shave|shave]] their heads, nor let their locks grow long; they shall only trim the hair of their heads.
 
 ## v21
 
-And none of the priests shall drink wine when they enter the inner court.
+And none of the priests shall drink [[Ezekiel-44.fn#Footnote 21.1 — wine|wine]] when they enter the inner court.
 
 ## v22
 
-And they shall not take as their wives a widow or a divorced woman, but rather they shall take virgins of the seed of the house of Israel or a widow who is the widow of a priest.
+And they shall not [[Ezekiel-44.fn#Footnote 22.1 — take|take]] as their wives a widow or a divorced woman, but rather they shall take virgins of the seed of the house of Israel or a widow who is the widow of a priest.
 
 ## v23
 
@@ -92,27 +92,27 @@ And they shall teach My people the difference between the holy and the profane a
 
 ## v24
 
-And in a dispute they shall stand as a judge; according to My ordinances they shall give judgment concerning it. They shall also keep My laws and My statutes in all My appointed feasts, and they shall sanctify My Sabbaths.
+And in a dispute they shall stand as a judge; according to My ordinances they shall give judgment concerning it. They shall also keep My laws and My statutes in all My appointed [[Ezekiel-44.fn#Footnote 24.1 — feasts|feasts]], and they shall sanctify My [[Ezekiel-44.fn#Footnote 24.2 — Sabbaths|Sabbaths]].
 
 ## v25
 
-And they shall not go to any dead person to defile themselves. Only for a father, a mother, a son, a daughter, a brother, or a sister who has had no husband may they defile themselves.
+And they shall not go to any [[Ezekiel-44.fn#Footnote 25.1 — dead|dead]] person to defile themselves. Only for a father, a mother, a son, a daughter, a brother, or a sister who has had no husband may they defile themselves.
 
 ## v26
 
-And after he has been cleansed, they shall number seven days for him.
+And after he has been cleansed, they shall number [[Ezekiel-44.fn#Footnote 26.1 — seven|seven]] days for him.
 
 ## v27
 
-And on the day he enters the sanctuary, into the inner court to minister in the sanctuary, he shall present his sin offering, declares the Lord Jehovah.
+And on the day he enters the sanctuary, into the inner court to minister in the sanctuary, he shall present his [[Ezekiel-44.fn#Footnote 27.1 — sin|sin]] offering, declares the Lord Jehovah.
 
 ## v28
 
-And they shall have an inheritance: I am their inheritance. And you shall not give them a possession in Israel — I am their possession.
+And they shall have an inheritance: [[Ezekiel-44.fn#Footnote 28.1 — I|I]] am their inheritance. And you shall not give them a possession in Israel — [[Ezekiel-44.fn#Footnote 28.1 — I|I]] am their possession.
 
 ## v29
 
-They shall eat the meal offering, the sin offering, and the trespass offering; and every devoted thing in Israel shall be theirs.
+They shall [[Ezekiel-44.fn#Footnote 29.1 — eat|eat]] the meal offering, the sin offering, and the trespass offering; and every devoted thing in Israel shall be theirs.
 
 ## v30
 

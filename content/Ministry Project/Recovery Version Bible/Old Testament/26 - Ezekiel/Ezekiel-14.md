@@ -8,7 +8,7 @@ And the word of Jehovah came to me, saying,
 
 ## v3
 
-Son of man, these men have set up their idols in their hearts and have put the stumbling block of their iniquity before their faces. Should I be inquired of at all by them?
+Son of man, these men have [[Ezekiel-14.fn#Footnote 3.1 — set|set]] up their idols in their hearts and have put the stumbling block of their iniquity before their faces. Should I be inquired of at all by them?
 
 ## v4
 
@@ -56,7 +56,7 @@ Though these three men, Noah, Daniel, and Job, were in the midst of it, they wou
 
 ## v15
 
-If I were to cause wild beasts to pass through the land so that they destroyed its inhabitants and it became so desolate that no one would pass through it because of the beasts,
+If I were to cause wild beasts to pass through the land so that they [[Ezekiel-14.fn#Footnote 15.1 — destroyed|destroyed]] its inhabitants and it became so desolate that no one would pass through it because of the beasts,
 
 ## v16
 
@@ -80,7 +80,7 @@ Though Noah, Daniel, and Job were in the midst of it, as I live, declares the Lo
 
 ## v21
 
-For thus says the Lord Jehovah, How much more then when I send My four severe judgments upon Jerusalem, sword and famine and wild beasts and pestilence, to cut off man and beast from it!
+For thus says the Lord Jehovah, How much more then when I send My [[Ezekiel-14.fn#Footnote 21.1 — four|four]] severe judgments upon Jerusalem, sword and famine and wild beasts and pestilence, to cut off man and beast from it!
 
 ## v22
 

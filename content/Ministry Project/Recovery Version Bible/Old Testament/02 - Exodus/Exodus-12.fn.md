@@ -15,7 +15,7 @@ chapter_num: 12
 
 **Verse:** [[Exodus-12#v2|Exodus 12:2]]
 
-The Hebrew people had two calendars, a civil calendar and a sacred calendar related to God’s salvation. This corresponds with the fact that God’s people have two births, two beginnings: a physical birth with a physical beginning and a spiritual birth with a spiritual beginning (cf. [[John-03#v3|John 3:3-6]]). The Passover, a new beginning for the children of Israel, was held in the first month of the sacred year, the month of Abib ([[Exodus-13#v4|13:4]] and note).
+The Hebrew people had two calendars, a civil calendar and a sacred calendar related to God’s salvation. This corresponds with the fact that God’s people have two births, two beginnings: a physical birth with a physical beginning and a spiritual birth with a spiritual beginning (cf. [[John-03#v3|John 3:3-6]]). The Passover, a new beginning for the children of Israel, was held in the first month of the sacred year, the month of Abib ([[Exodus-13#v4|13:4]] and [note](<Exodus-13.fn#Footnote 4.1 — Abib>)).
 
 ## Footnotes for verse 3
 
@@ -23,13 +23,13 @@ The Hebrew people had two calendars, a civil calendar and a sacred calendar rela
 
 **Verse:** [[Exodus-12#v3|Exodus 12:3]]
 
-Exodus is a book of pictures that portray God’s salvation as revealed in the New Testament. The passover portrayed in this chapter is an all-inclusive type of Christ as our redemption to begin our experience of God’s salvation. It is a full development of Christ’s redemption first indicated in [[Genesis-03#v21|Gen. 3:21]] (see notes there). The entire passover is a type of Christ ([[1 Corinthians-05#v7|1 Cor. 5:7]]); Christ is not only the lamb of the passover ([[John-01#v29|John 1:29]]) but also every aspect of the passover. See notes in this chapter and notes 41 in [[John-06|John 6]] and 72 in [[1 Corinthians-05|1 Cor. 5]].
+Exodus is a book of pictures that portray God’s salvation as revealed in the New Testament. The passover portrayed in this chapter is an all-inclusive type of Christ as our redemption to begin our experience of God’s salvation. It is a full development of Christ’s redemption first indicated in [[Genesis-03#v21|Gen. 3:21]] (see notes there). The entire passover is a type of Christ ([[1 Corinthians-05#v7|1 Cor. 5:7]]); Christ is not only the lamb of the passover ([[John-01#v29|John 1:29]]) but also every aspect of the passover. See notes in this chapter and notes [4¹](<John-06.fn#Footnote 4.1 — Passover>) in [[John-06|John 6]] and [7²](<1 Corinthians-05.fn#Footnote 7.2 — Passover>) in [[1 Corinthians-05|1 Cor. 5]].
 
 ### Footnote 3.2 — household
 
 **Verse:** [[Exodus-12#v3|Exodus 12:3]]
 
-See note 31¹ in [[Acts-16|Acts 16]].
+See [note 31¹](<Acts-16.fn#Footnote 31.1 — household>) in [[Acts-16|Acts 16]].
 
 ## Footnotes for verse 4
 
@@ -65,7 +65,7 @@ According to [[Matthew-25#v32|Matt. 25:32-46]], sheep signify those who are good
 
 **Verse:** [[Exodus-12#v6|Exodus 12:6]]
 
-The passover lamb was taken on the tenth day of the month ([[Exodus-12#v3|v. 3]]) and was examined for four days to confirm that it was unblemished ([[Exodus-12#v5|v. 5]]); then it was killed on the fourteenth day. In the same way, the Lord Jesus as the real Passover lamb was examined for four days and was found to be perfect, without fault ([[John-08#v46|John 8:46]]; [[John-18#v38|18:38]]; [[John-19#v4|19:4]], [[John-19#v6|6]]), before He was killed on the day of the Passover ([[Luke-22#v7|Luke 22:7-8]], [[Luke-22#v14|14-15]]; [[John-18#v28|John 18:28]]). See notes 11 in [[Mark-10|Mark 10]], 371 in [[Mark-12|Mark 12]], and 122 in [[Mark-14|Mark 14]]. 
+The passover lamb was taken on the tenth day of the month ([[Exodus-12#v3|v. 3]]) and was examined for four days to confirm that it was unblemished ([[Exodus-12#v5|v. 5]]); then it was killed on the fourteenth day. In the same way, the Lord Jesus as the real Passover lamb was examined for four days and was found to be perfect, without fault ([[John-08#v46|John 8:46]]; [[John-18#v38|18:38]]; [[John-19#v4|19:4]], [[John-19#v6|6]]), before He was killed on the day of the Passover ([[Luke-22#v7|Luke 22:7-8]], [[Luke-22#v14|14-15]]; [[John-18#v28|John 18:28]]). See notes [1¹](<Mark-10.fn#Footnote 1.1 — borders>) in [[Mark-10|Mark 10]], [37¹](<Mark-12.fn#Footnote 37.1 — son>) in [[Mark-12|Mark 12]], and [12²](<Mark-14.fn#Footnote 12.2 — sacrificed>) in [[Mark-14|Mark 14]]. 
 
 In the Bible seven days signifies a period of completion, and the end of a week denotes the end of life. The fact that the passover lamb was killed on the fourteenth day of the month, the end of two complete weeks, signifies that Christ’s death terminated the entire history of our old life.
 
@@ -73,7 +73,7 @@ In the Bible seven days signifies a period of completion, and the end of a week 
 
 **Verse:** [[Exodus-12#v6|Exodus 12:6]]
 
-As the Passover lamb, Christ was killed by all God’s people. Cf. note 201 in [[John-19|John 19]].
+As the Passover lamb, Christ was killed by all God’s people. Cf. [note 20¹](<John-19.fn#Footnote 20.1 — Hebrew>) in [[John-19|John 19]].
 
 ### Footnote 6.3 — at
 
@@ -93,7 +93,7 @@ The blood put on the doorposts and the lintel of the houses typifies the redeemi
 
 **Verse:** [[Exodus-12#v7|Exodus 12:7]]
 
-The houses in which the children of Israel ate the passover lamb typify Christ. The lamb was the means of redemption, and the house was the means of preserving the redeemed ones. As the redeeming one, Christ is the lamb, and as the keeping one, He is the house. The blood of the lamb was on the door, and the flesh of the lamb was in the house. The lamb, the house, and those who enjoyed the passover thus became one. This is a picture of the identification of the redeemed ones with Christ. See note 222.
+The houses in which the children of Israel ate the passover lamb typify Christ. The lamb was the means of redemption, and the house was the means of preserving the redeemed ones. As the redeeming one, Christ is the lamb, and as the keeping one, He is the house. The blood of the lamb was on the door, and the flesh of the lamb was in the house. The lamb, the house, and those who enjoyed the passover thus became one. This is a picture of the identification of the redeemed ones with Christ. See [note 22²](<Exodus-12.fn#Footnote 22.2 — outside>).
 
 ## Footnotes for verse 8
 
@@ -107,7 +107,7 @@ The blood of the passover lamb was for redemption, to redeem the children of Isr
 
 **Verse:** [[Exodus-12#v8|Exodus 12:8]]
 
-In the Scriptures leaven signifies what is sinful, evil, corrupt, and unclean in the eyes of God ([[1 Corinthians-05#v6|1 Cor. 5:6]], [[1 Corinthians-05#v8|8]]). To eat with unleavened bread means to eliminate all sinful things (see note 152). To eat with bitter herbs means to regret and repent, to experience a bitter taste regarding sinful things.
+In the Scriptures leaven signifies what is sinful, evil, corrupt, and unclean in the eyes of God ([[1 Corinthians-05#v6|1 Cor. 5:6]], [[1 Corinthians-05#v8|8]]). To eat with unleavened bread means to eliminate all sinful things (see [note 15²](<Exodus-12.fn#Footnote 15.2 — unleavened>)). To eat with bitter herbs means to regret and repent, to experience a bitter taste regarding sinful things.
 
 ## Footnotes for verse 9
 
@@ -151,7 +151,7 @@ The noun passover, from the verb pass over ([[Exodus-12#v13|v. 13]]), indicates 
 
 **Verse:** [[Exodus-12#v12|Exodus 12:12]]
 
-The firstborn here signifies the natural man, the old man in Adam. Since Adam was the first man ([[1 Corinthians-15#v45|1 Cor. 15:45a]]), the firstborn includes everyone who is in Adam (cf. [[1 Corinthians-15#v22|1 Cor. 15:22a]]). The redeeming blood of Christ is not effective for those who remain in Adam (see note 22 in [[1 John-02|1 John 2]]; cf. note 222 in this chapter). Furthermore, to apply Christ as the Passover in a complete and adequate way, we must condemn everything within us that is related to the firstborn, that is, to Adam ([[1 Corinthians-05#v6|1 Cor. 5:6-8]]; [[Ephesians-04#v22|Eph. 4:22]]).
+The firstborn here signifies the natural man, the old man in Adam. Since Adam was the first man ([[1 Corinthians-15#v45|1 Cor. 15:45a]]), the firstborn includes everyone who is in Adam (cf. [[1 Corinthians-15#v22|1 Cor. 15:22a]]). The redeeming blood of Christ is not effective for those who remain in Adam (see [note 2²](<1 John-02.fn#Footnote 2.2 — whole>) in [[1 John-02|1 John 2]]; cf. [note 22²](<Exodus-12.fn#Footnote 22.2 — outside>) in this chapter). Furthermore, to apply Christ as the Passover in a complete and adequate way, we must condemn everything within us that is related to the firstborn, that is, to Adam ([[1 Corinthians-05#v6|1 Cor. 5:6-8]]; [[Ephesians-04#v22|Eph. 4:22]]).
 
 ### Footnote 12.2 — gods
 
@@ -179,13 +179,13 @@ The Passover was to be kept as a feast to Jehovah; i.e., it was to be eaten with
 
 **Verse:** [[Exodus-12#v15|Exodus 12:15]]
 
-The Passover itself, held on the fourteenth day of the first month ([[Exodus-12#v2|vv. 2]], [[Exodus-12#v6|6]]), lasted only one day. Continuing from the Passover, the Feast of Unleavened Bread lasted seven days ([[Exodus-12#v15|vv. 15-20]]; [[Exodus-13#v6|13:6-7]]). See notes 171 in [[Matthew-26|Matt. 26]] and 81 in [[1 Corinthians-05|1 Cor. 5]].
+The Passover itself, held on the fourteenth day of the first month ([[Exodus-12#v2|vv. 2]], [[Exodus-12#v6|6]]), lasted only one day. Continuing from the Passover, the Feast of Unleavened Bread lasted seven days ([[Exodus-12#v15|vv. 15-20]]; [[Exodus-13#v6|13:6-7]]). See notes [17¹](<Matthew-26.fn#Footnote 17.1 — Feast>) in [[Matthew-26|Matt. 26]] and [8¹](<1 Corinthians-05.fn#Footnote 8.1 — feast>) in [[1 Corinthians-05|1 Cor. 5]].
 
 ### Footnote 15.2 — unleavened
 
 **Verse:** [[Exodus-12#v15|Exodus 12:15]]
 
-In the Feast of the Passover the lamb was to be eaten with unleavened bread ([[Exodus-12#v8|v. 8]] and note 2). In the continuation of the Passover the eating of unleavened bread for seven days (a full course of time) signifies that for our entire Christian life, from the time we receive Christ and are saved, we should continue our enjoyment by eliminating everything sinful. During the seven days of the Feast of Unleavened Bread, no leaven was to be found in the houses ([[Exodus-12#v19|v. 19]]), and no leaven was to be seen among the people of Israel ([[Exodus-13#v7|13:7]]). This signifies that, although it is impossible for us to be completely without sin, we must eliminate any sin that is seen; i.e., we must forsake the sin of which we are conscious (cf. [[Hebrews-12#v1|Heb. 12:1]]). To deal with manifested sin is to keep the Feast of Unleavened Bread ([[1 Corinthians-05#v7|1 Cor. 5:7-8]]). If we tolerate sin once it is exposed, we will lose the enjoyment of the fellowship of God’s people ([[Exodus-12#v19|v. 19]]; [[1 Corinthians-05#v13|1 Cor. 5:13]]). The only way to eliminate sin is to daily eat Christ as the crucified, resurrected, and sinless life, signified by the unleavened bread.
+In the Feast of the Passover the lamb was to be eaten with unleavened bread ([[Exodus-12#v8|v. 8]] and [note 2](<Exodus-12.fn#Footnote 8.2 — unleavened>)). In the continuation of the Passover the eating of unleavened bread for seven days (a full course of time) signifies that for our entire Christian life, from the time we receive Christ and are saved, we should continue our enjoyment by eliminating everything sinful. During the seven days of the Feast of Unleavened Bread, no leaven was to be found in the houses ([[Exodus-12#v19|v. 19]]), and no leaven was to be seen among the people of Israel ([[Exodus-13#v7|13:7]]). This signifies that, although it is impossible for us to be completely without sin, we must eliminate any sin that is seen; i.e., we must forsake the sin of which we are conscious (cf. [[Hebrews-12#v1|Heb. 12:1]]). To deal with manifested sin is to keep the Feast of Unleavened Bread ([[1 Corinthians-05#v7|1 Cor. 5:7-8]]). If we tolerate sin once it is exposed, we will lose the enjoyment of the fellowship of God’s people ([[Exodus-12#v19|v. 19]]; [[1 Corinthians-05#v13|1 Cor. 5:13]]). The only way to eliminate sin is to daily eat Christ as the crucified, resurrected, and sinless life, signified by the unleavened bread.
 
 ### Footnote 15.3 — person
 
@@ -213,7 +213,7 @@ Hyssop was among the smallest of the plants ([[1 Kings-04#v33|1 Kings 4:33]]). H
 
 **Verse:** [[Exodus-12#v22|Exodus 12:22]]
 
-To participate in the passover, the children of Israel had to enter into and remain in the houses that had been sprinkled with the blood ([[Exodus-12#v13|vv. 13]], [[Exodus-12#v22|22-23]]). In the same principle, to participate in Christ and His redemption, we must be identified with Christ by entering into Him and remaining in Him ([[Ephesians-01#v7|Eph. 1:7]]; [[1 Corinthians-01#v30|1 Cor. 1:30]]; [[John-15#v4|John 15:4]]; cf. [[Galatians-05#v2|Gal. 5:2]], [[Galatians-05#v4|4]]). The house and the blood were inseparable; likewise, Christ and His redemption are one. See notes 212 in [[Genesis-03|Gen. 3]], 143 in [[Genesis-06|Gen. 6]], and 181, par. 2, in [[Genesis-08|Gen. 8]].
+To participate in the passover, the children of Israel had to enter into and remain in the houses that had been sprinkled with the blood ([[Exodus-12#v13|vv. 13]], [[Exodus-12#v22|22-23]]). In the same principle, to participate in Christ and His redemption, we must be identified with Christ by entering into Him and remaining in Him ([[Ephesians-01#v7|Eph. 1:7]]; [[1 Corinthians-01#v30|1 Cor. 1:30]]; [[John-15#v4|John 15:4]]; cf. [[Galatians-05#v2|Gal. 5:2]], [[Galatians-05#v4|4]]). The house and the blood were inseparable; likewise, Christ and His redemption are one. See notes [21²](<Genesis-03.fn#Footnote 21.2 — clothed>) in [[Genesis-03|Gen. 3]], [14³](<Genesis-06.fn#Footnote 14.3 — pitch>) in [[Genesis-06|Gen. 6]], and [18¹](<Genesis-08.fn#Footnote 18.1 — went>), par. 2, in [[Genesis-08|Gen. 8]].
 
 ## Footnotes for verse 29
 
@@ -221,7 +221,7 @@ To participate in the passover, the children of Israel had to enter into and rem
 
 **Verse:** [[Exodus-12#v29|Exodus 12:29]]
 
-In the tenth and final plague, the firstborn of the Egyptians and even the firstborn of their beasts were killed (see note 121). This was done by God to display His sovereignty, i.e., His absolute right, authority, and power, in relation to Pharaoh and His mercy in relation to Israel ([[Romans-09#v14|Rom. 9:14-24]]). By this last plague Pharaoh was subdued ([[Exodus-11#v1|11:1]]; [[Exodus-12#v21|12:21-30]], [[Exodus-12#v33|33]]), albeit only temporarily.
+In the tenth and final plague, the firstborn of the Egyptians and even the firstborn of their beasts were killed (see [note 12¹](<Exodus-12.fn#Footnote 12.1 — firstborn>)). This was done by God to display His sovereignty, i.e., His absolute right, authority, and power, in relation to Pharaoh and His mercy in relation to Israel ([[Romans-09#v14|Rom. 9:14-24]]). By this last plague Pharaoh was subdued ([[Exodus-11#v1|11:1]]; [[Exodus-12#v21|12:21-30]], [[Exodus-12#v33|33]]), albeit only temporarily.
 
 ## Footnotes for verse 33
 
@@ -237,7 +237,7 @@ In order to accomplish the salvation of His people, God subdued Pharaoh and all 
 
 **Verse:** [[Exodus-12#v34|Exodus 12:34]]
 
-Because the children of Israel were driven out of Egypt, they had no time to bring leavened food ([[Exodus-12#v34|vv. 34]], [[Exodus-12#v39|39]]). Thus, they left Egypt in a pure way, with no leaven. See note 82.
+Because the children of Israel were driven out of Egypt, they had no time to bring leavened food ([[Exodus-12#v34|vv. 34]], [[Exodus-12#v39|39]]). Thus, they left Egypt in a pure way, with no leaven. See [note 8²](<Exodus-12.fn#Footnote 8.2 — unleavened>).
 
 ## Footnotes for verse 36
 
@@ -267,7 +267,7 @@ The Septuagint adds, and in the land of Canaan.
 
 **Verse:** [[Exodus-12#v40|Exodus 12:40]]
 
-See note 17³ in [[Galatians-03|Gal. 3]].
+See [note 17³](<Galatians-03.fn#Footnote 17.3 — four>) in [[Galatians-03|Gal. 3]].
 
 ## Footnotes for verse 42
 
@@ -283,7 +283,7 @@ During the night of the passover God was watching over His people in order to br
 
 **Verse:** [[Exodus-12#v43|Exodus 12:43]]
 
-A foreigner signifies both an unbeliever and the natural man, who is no different from an unbeliever. A hired servant ([[Exodus-12#v45|v. 45]]) signifies the natural man who works for God in the natural life in order to receive compensation ([[Romans-04#v4|Rom. 4:4-5]] and notes 41 and 42). A purchased servant ([[Exodus-12#v44|v. 44]]) signifies one who has been redeemed by the Lord and serves Him as a slave ([[Romans-01#v1|Rom. 1:1]] and note 2). Such a redeemed one must also be circumcised ([[Exodus-12#v44|vv. 44]], [[Exodus-12#v48|48]]); i.e., his natural life must be cut off through the cross ([[Philippians-03#v3|Phil. 3:3]]; [[Colossians-02#v11|Col. 2:11]]). Only the redeemed and circumcised ones are qualified to partake of Christ as God’s Passover.
+A foreigner signifies both an unbeliever and the natural man, who is no different from an unbeliever. A hired servant ([[Exodus-12#v45|v. 45]]) signifies the natural man who works for God in the natural life in order to receive compensation ([[Romans-04#v4|Rom. 4:4-5]] and [[Romans-04.fn#Footnote 4.1 — one|notes 4¹]] and [[Romans-04.fn#Footnote 4.2 — wages|4²]]). A purchased servant ([[Exodus-12#v44|v. 44]]) signifies one who has been redeemed by the Lord and serves Him as a slave ([[Romans-01#v1|Rom. 1:1]] and [note 2](<Romans-01.fn#Footnote 1.2 — slave>)). Such a redeemed one must also be circumcised ([[Exodus-12#v44|vv. 44]], [[Exodus-12#v48|48]]); i.e., his natural life must be cut off through the cross ([[Philippians-03#v3|Phil. 3:3]]; [[Colossians-02#v11|Col. 2:11]]). Only the redeemed and circumcised ones are qualified to partake of Christ as God’s Passover.
 
 ## Footnotes for verse 46
 
@@ -291,7 +291,7 @@ A foreigner signifies both an unbeliever and the natural man, who is no differen
 
 **Verse:** [[Exodus-12#v46|Exodus 12:46]]
 
-When Christ was crucified, His legs were not broken ([[John-19#v33|John 19:33]], [[John-19#v36|36]]). Christ’s unbroken bone signifies His unbreakable and indestructible eternal life that imparts life into us. See notes 212 in [[Genesis-02|Gen. 2]] and 362 in [[John-19|John 19]].
+When Christ was crucified, His legs were not broken ([[John-19#v33|John 19:33]], [[John-19#v36|36]]). Christ’s unbroken bone signifies His unbreakable and indestructible eternal life that imparts life into us. See notes [21²](<Genesis-02.fn#Footnote 21.2 — ribs>) in [[Genesis-02|Gen. 2]] and [36²](<John-19.fn#Footnote 36.2 — bone>) in [[John-19|John 19]].
 
 ## Footnotes for verse 51
 

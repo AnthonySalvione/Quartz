@@ -1,6 +1,14 @@
+> *To the choir director: according to the dove on the distant terebinths. Of David. A Michtam, when the Philistines seized him in Gath*
+
+> [!light] Note on dove:
+> Perhaps a reference to a melody common at the time.
+
+> [!light] Note on Michtam:
+> See note on the superscription of [[Psalm-16|Psa. 16]].
+---
 ## v1
 
-Be gracious to me, O God; for man tramples me;  
+[[Psalm-56.fn#Footnote 1.1 — Be|Be]] gracious to me, O God; for man tramples me;  
 All day long he, fighting, oppresses me.
 
 ## v2

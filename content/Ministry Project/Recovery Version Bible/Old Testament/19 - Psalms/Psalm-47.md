@@ -1,3 +1,6 @@
+> *To the choir director. Of the sons of Korah. A Psalm*
+
+---
 ## v1
 
 Clap your hands, all you peoples;  
@@ -6,7 +9,7 @@ Shout to God with the voice of a triumphant sound.
 ## v2
 
 For Jehovah Most High is awesome:  
-A great King over all the earth.
+A great [[Psalm-47.fn#Footnote 2.1 — King|King]] over all the earth.
 
 ## v3
 

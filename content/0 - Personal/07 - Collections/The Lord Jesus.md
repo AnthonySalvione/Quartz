@@ -23,9 +23,11 @@ Ruth 2:12 ➤ Jehovah the God of Israel.
 2 Samuel 22:14 ➤ The Most High.
 2 Samuel 23:2 ➤ The Rock of Israel, who is the Spirit of Jehovah.
 
-
-
-
+Nahum 1:8, footnote 1 ➤ Jehovah, the majestic Judge
+Haggai 2:7 ➤ the Desire of all the nations
+Zechariah 6:12 ➤ "whose name is the Shoot"
+Zechariah 13:7 & footnote 1 ➤ Christ, the Fellow of Jehovah
+Malachi 3:1 ➤ the Angel of the covenant, or, the Messenger of the covenant.
 
 King of Grace
 Prince of Peace

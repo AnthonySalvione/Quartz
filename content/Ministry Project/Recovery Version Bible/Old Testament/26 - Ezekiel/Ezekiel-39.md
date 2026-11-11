@@ -1,6 +1,6 @@
 ## v1
 
-And you, son of man, prophesy against Gog and say, Thus says the Lord Jehovah, Indeed I am against you, O Gog, prince of Rosh, Meshech, and Tubal.
+And you, son of man, prophesy against [[Ezekiel-39.fn#Footnote 1.1 — Gog|Gog]] and say, Thus says the Lord Jehovah, Indeed I am against you, O Gog, prince of Rosh, Meshech, and Tubal.
 
 ## v2
 

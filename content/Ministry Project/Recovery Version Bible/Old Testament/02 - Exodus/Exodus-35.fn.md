@@ -15,7 +15,7 @@ chapter_num: 35
 
 **Verse:** [[Exodus-35#v2|Exodus 35:2]]
 
-This word concerning the keeping of the Sabbath, coming before the commandments concerning the making of the tabernacle with its furniture and the garments for the priests, indicates that before God’s people work for Him, they must rest with Him. The way of first working for God and then enjoying grace and rest is according to the law. According to grace, we first enjoy grace and rest with the Lord; then we work for Him (cf. [[1 Corinthians-15#v10|1 Cor. 15:10]]). See note 131 in [[Exodus-31|Exodus 31]].
+This word concerning the keeping of the Sabbath, coming before the commandments concerning the making of the tabernacle with its furniture and the garments for the priests, indicates that before God’s people work for Him, they must rest with Him. The way of first working for God and then enjoying grace and rest is according to the law. According to grace, we first enjoy grace and rest with the Lord; then we work for Him (cf. [[1 Corinthians-15#v10|1 Cor. 15:10]]). See [note 13¹](<Exodus-31.fn#Footnote 13.1 — Sabbaths>) in [[Exodus-31|Exodus 31]].
 
 ## Footnotes for verse 5
 
@@ -29,7 +29,7 @@ For [[Exodus-35#v5|vv. 5-9]], see notes in [[Exodus-25#v2|25:2-7]].
 
 **Verse:** [[Exodus-35#v5|Exodus 35:5]]
 
-Although they were gained by the children of Israel while they were in Egypt ([[Exodus-12#v35|12:35-36]]), the materials offered to God for the building of the tabernacle were called heave offerings, wave offerings, and freewill offerings ([[Exodus-35#v5|vv. 5]], [[Exodus-35#v21|21-22]], [[Exodus-35#v24|24]], [[Exodus-35#v29|29]]; [[Exodus-36#v3|36:3]]). All these offerings are types of Christ in different aspects experienced, enjoyed, and gained by God’s people in their practical daily lives, and then offered by them to God. See note 21, par. 1, in [[Exodus-25|Exodus 25]].
+Although they were gained by the children of Israel while they were in Egypt ([[Exodus-12#v35|12:35-36]]), the materials offered to God for the building of the tabernacle were called heave offerings, wave offerings, and freewill offerings ([[Exodus-35#v5|vv. 5]], [[Exodus-35#v21|21-22]], [[Exodus-35#v24|24]], [[Exodus-35#v29|29]]; [[Exodus-36#v3|36:3]]). All these offerings are types of Christ in different aspects experienced, enjoyed, and gained by God’s people in their practical daily lives, and then offered by them to God. See [note 2¹](<Exodus-25.fn#Footnote 2.1 — heave>), par. 1, in [[Exodus-25|Exodus 25]].
 
 ## Footnotes for verse 10
 

@@ -1,12 +1,15 @@
+> *Of Solomon*
+
+---
 ## v1
 
-O God, give Your judgments to the king,  
+O God, give Your judgments to the [[Psalm-72.fn#Footnote 1.1 — king|king]],  
 And Your righteousness to the son of the king.
 
 ## v2
 
-He will judge Your people in righteousness,  
-And Your poor with justice.
+He will judge Your people in [[Psalm-72.fn#Footnote 2.1 — righteousness|righteousness]],  
+And Your poor with [[Psalm-72.fn#Footnote 2.1 — righteousness|justice]].
 
 ## v3
 
@@ -27,7 +30,7 @@ Throughout the generations.
 
 ## v6
 
-He will drop like rain upon mown grass,  
+He will [[Psalm-72.fn#Footnote 6.1 — drop|drop]] like rain upon mown grass,  
 Like abundant showers dripping on the earth.
 
 ## v7
@@ -39,7 +42,7 @@ Until the moon is no more.
 ## v8
 
 And He will have dominion from sea to sea  
-And from the River unto the ends of the earth.
+And from the [[Psalm-72.fn#Footnote 8.1 — River|River]] unto the ends of the earth.
 
 ## v9
 
@@ -48,7 +51,7 @@ And His enemies will lick the dust.
 
 ## v10
 
-The kings of Tarshish and of the coastlands  
+The kings of Tarshish and of the [[Psalm-72.fn#Footnote 10.1 — coastlands|coastlands]]  
 Will pay tribute;  
 The kings of Sheba and Seba  
 Will present gifts.
@@ -97,7 +100,7 @@ All the nations will call Him blessed.
 
 ## v18
 
-Blessed be Jehovah God, the God of Israel,  
+[[Psalm-72.fn#Footnote 18.1 — Blessed|Blessed]] be Jehovah God, the God of Israel,  
 Who alone does wondrous deeds;
 
 ## v19

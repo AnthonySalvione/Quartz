@@ -15,7 +15,7 @@ chapter_num: 28
 
 **Verse:** [[Genesis-28#v3|Genesis 28:3]]
 
-Heb. El Shaddai. See note 12 in [[Genesis-17|Genesis 17]].
+Heb. El Shaddai. See [note 1²](<Genesis-17.fn#Footnote 1.2 — All-sufficient>) in [[Genesis-17|Genesis 17]].
 
 ## Footnotes for verse 11
 
@@ -37,13 +37,13 @@ Jacob’s dream is a most crucial point in this book, and [[Genesis-28#v10|vv. 1
 
 **Verse:** [[Genesis-28#v12|Genesis 28:12]]
 
-This ladder is the center, the focus, of Jacob’s dream. This dream is a revelation of Christ, for Christ is the reality of the ladder that Jacob saw ([[John-01#v51|John 1:51]] and notes). Christ as the Son of Man, in His humanity, is the ladder that brings heaven (God) to earth (man) and joins earth and heaven as one (cf. [[John-14#v6|John 14:6]]). Our regenerated spirit, which is God’s dwelling place today ([[Ephesians-02#v22|Eph. 2:22]]), is the base on earth where Christ as the heavenly ladder has been set up ([[2 TImothy-04#v22|2 Tim. 4:22]]). Hence, whenever we turn to our spirit, we experience Christ as the ladder bringing God to us and us to God (see note 191 in [[Hebrews-10|Heb. 10]]). Where this ladder is, there are an open heaven, the transformed man, the anointing upon this man, and the building up of the house of God with this man. The issue of Christ as the heavenly ladder is Bethel, the church, the Body of Christ, and the consummation of this ladder is the New Jerusalem.
+This ladder is the center, the focus, of Jacob’s dream. This dream is a revelation of Christ, for Christ is the reality of the ladder that Jacob saw ([[John-01#v51|John 1:51]] and notes). Christ as the Son of Man, in His humanity, is the ladder that brings heaven (God) to earth (man) and joins earth and heaven as one (cf. [[John-14#v6|John 14:6]]). Our regenerated spirit, which is God’s dwelling place today ([[Ephesians-02#v22|Eph. 2:22]]), is the base on earth where Christ as the heavenly ladder has been set up ([[2 TImothy-04#v22|2 Tim. 4:22]]). Hence, whenever we turn to our spirit, we experience Christ as the ladder bringing God to us and us to God (see [note 19¹](<Hebrews-10.fn#Footnote 19.1 — entering>) in [[Hebrews-10|Heb. 10]]). Where this ladder is, there are an open heaven, the transformed man, the anointing upon this man, and the building up of the house of God with this man. The issue of Christ as the heavenly ladder is Bethel, the church, the Body of Christ, and the consummation of this ladder is the New Jerusalem.
 
 ### Footnote 12.3 — angels
 
 **Verse:** [[Genesis-28#v12|Genesis 28:12]]
 
-The angels are ministering spirits sent forth to serve the heirs of God’s salvation ([[Hebrews-01#v14|Heb. 1:14]] and note 1, par. 3).
+The angels are ministering spirits sent forth to serve the heirs of God’s salvation ([[Hebrews-01#v14|Heb. 1:14]] and [note 1](<Hebrews-01.fn#Footnote 14.1 — those>), par. 3).
 
 ## Footnotes for verse 13
 
@@ -57,7 +57,7 @@ God’s referring to Himself as the God of Abraham and the God of Isaac implies 
 
 **Verse:** [[Genesis-28#v13|Genesis 28:13]]
 
-God promised Jacob that He would give him the seed, the land, and the blessing ([[Genesis-28#v13|vv. 13-14]]), as He had promised Abraham ([[Genesis-12#v3|12:3]], [[Genesis-12#v7|7]]; [[Genesis-13#v14|13:14-16]]; [[Genesis-15#v18|15:18]]; [[Genesis-22#v17|22:17-18]]) and Isaac ([[Genesis-26#v3|26:3-4]]). The land is for the kingdom of God, and the seed is for the expression of God and for the spreading of God’s image. Both the land and the seed are Christ (see note 31 in [[Genesis-15|Genesis 15]]), who also becomes the blessing ([[Genesis-28#v14|v. 14]]) with which we bless others ([[Romans-15#v29|Rom. 15:29]]).
+God promised Jacob that He would give him the seed, the land, and the blessing ([[Genesis-28#v13|vv. 13-14]]), as He had promised Abraham ([[Genesis-12#v3|12:3]], [[Genesis-12#v7|7]]; [[Genesis-13#v14|13:14-16]]; [[Genesis-15#v18|15:18]]; [[Genesis-22#v17|22:17-18]]) and Isaac ([[Genesis-26#v3|26:3-4]]). The land is for the kingdom of God, and the seed is for the expression of God and for the spreading of God’s image. Both the land and the seed are Christ (see [note 3¹](<Genesis-15.fn#Footnote 3.1 — seed>) in [[Genesis-15|Genesis 15]]), who also becomes the blessing ([[Genesis-28#v14|v. 14]]) with which we bless others ([[Romans-15#v29|Rom. 15:29]]).
 
 ## Footnotes for verse 17
 
@@ -65,7 +65,7 @@ God promised Jacob that He would give him the seed, the land, and the blessing (
 
 **Verse:** [[Genesis-28#v17|Genesis 28:17]]
 
-This was a place on earth, but it was joined to heaven; hence, Jacob called it the gate of heaven. While we are in the church, the house of God, on earth, we can enter the gate of heaven, and through Christ as the heavenly ladder we can see and experience the things of heaven. See [[Hebrews-04#v16|Heb. 4:16]] and note 1.
+This was a place on earth, but it was joined to heaven; hence, Jacob called it the gate of heaven. While we are in the church, the house of God, on earth, we can enter the gate of heaven, and through Christ as the heavenly ladder we can see and experience the things of heaven. See [[Hebrews-04#v16|Heb. 4:16]] and [note 1](<Hebrews-04.fn#Footnote 16.1 — throne>).
 
 ## Footnotes for verse 19
 
@@ -73,4 +73,4 @@ This was a place on earth, but it was joined to heaven; hence, Jacob called it t
 
 **Verse:** [[Genesis-28#v19|Genesis 28:19]]
 
-Meaning house of God. See note 11, par. 2, in [[Genesis-35|Genesis 35]].
+Meaning house of God. See [note 1¹](<Genesis-35.fn#Footnote 1.1 — Bethel>), par. 2, in [[Genesis-35|Genesis 35]].

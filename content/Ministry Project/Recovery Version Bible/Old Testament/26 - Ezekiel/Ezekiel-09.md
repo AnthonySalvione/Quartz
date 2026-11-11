@@ -1,6 +1,6 @@
 ## v1
 
-Then He cried out in my ears with a loud voice, saying, Draw near, you who oversee the city, each with his destroying weapon in his hand.
+Then He cried out in my ears with a loud voice, saying, Draw near, you who [[Ezekiel-09.fn#Footnote 1.1 — oversee|oversee]] the city, each with his destroying weapon in his hand.
 
 ## v2
 
@@ -8,11 +8,11 @@ And then six men came from the direction of the upper gate, which faces north, e
 
 ## v3
 
-And the glory of the God of Israel went up from the cherub on which it had been to the threshold of the house. And He called out to the man clothed in linen, who had the scribe’s inkhorn by his side.
+And the glory of the God of Israel [[Ezekiel-09.fn#Footnote 3.1 — went|went]] up from the cherub on which it had been to the threshold of the house. And He called out to the man clothed in linen, who had the scribe’s inkhorn by his side.
 
 ## v4
 
-And Jehovah said to him, Pass through the midst of the city, through the midst of Jerusalem, and put a mark on the foreheads of the men who sigh and groan because of all the abominations that are committed in its midst.
+And Jehovah said to him, Pass through the midst of the city, through the midst of Jerusalem, and put a [[Ezekiel-09.fn#Footnote 4.1 — mark|mark]] on the foreheads of the men who sigh and groan because of all the abominations that are committed in its midst.
 
 ## v5
 

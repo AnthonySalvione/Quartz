@@ -1,6 +1,6 @@
 ## v1
 
-The proverbs of Solomon the son of David, the king of Israel:
+The [[Proverbs-01.fn#Footnote 1.1 — proverbs|proverbs]] of Solomon the son of David, the king of Israel:
 
 ## v2
 
@@ -29,13 +29,13 @@ The words of the wise and their difficult sayings.
 
 ## v7
 
-The fear of Jehovah is the beginning of knowledge;  
+The [[Proverbs-01.fn#Footnote 7.1 — fear|fear]] of Jehovah is the beginning of knowledge;  
 Fools despise wisdom and instruction.
 
 ## v8
 
-Hear, my son, the instruction of your father,  
-And do not reject the teaching of your mother;
+Hear, my son, the instruction of your [[Proverbs-01.fn#Footnote 8.1 — father|father]],  
+And do not reject the teaching of your [[Proverbs-01.fn#Footnote 8.1 — father|mother]];
 
 ## v9
 
@@ -54,7 +54,7 @@ Let us ambush the innocent without cause;
 
 ## v12
 
-Let us swallow them alive like Sheol,  
+Let us swallow them alive like [[Proverbs-01.fn#Footnote 12.1 — Sheol|Sheol]],  
 And whole, like those who go down into the pit.
 
 ## v13
@@ -94,8 +94,8 @@ It takes away the life of its owners.
 
 ## v20
 
-Wisdom cries out in the street;  
-She utters her voice in the open squares.
+[[Proverbs-01.fn#Footnote 20.1 — Wisdom|Wisdom]] cries out in the street;  
+[[Proverbs-01.fn#Footnote 20.2 — She|She]] utters her voice in the open squares.
 
 ## v21
 

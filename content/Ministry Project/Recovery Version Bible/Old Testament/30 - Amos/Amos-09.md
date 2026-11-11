@@ -1,6 +1,6 @@
 ## v1
 
-I saw the Lord standing upon the altar. And He said,  
+I saw the Lord [[Amos-09.fn#Footnote 1.1 — standing|standing]] upon the altar. And He said,  
 Strike the capitals of the pillars /  
 That the thresholds may shake. /  
 And break them off upon the heads of them all, /  
@@ -10,7 +10,7 @@ And any one of them who escapes will not slip by.
 
 ## v2
 
-Though they dig into Sheol, /  
+Though they dig into [[Amos-09.fn#Footnote 2.1 — Sheol|Sheol]], /  
 From there My hand will take them; /  
 And though they go up into heaven, /  
 From there I will bring them down.
@@ -34,7 +34,7 @@ For evil and not for good.
 For the Lord Jehovah of hosts /  
 Is the One who touches the land and it melts, /  
 And all those who dwell in it mourn; /  
-And all of it rises like the River, /  
+And all of it rises like the [[Amos-09.fn#Footnote 5.1 — River|River]], /  
 And it sinks like the river of Egypt.
 
 ## v6
@@ -47,13 +47,13 @@ Jehovah is His name.
 
 ## v7
 
-Are you not like the children of the Cushites /  
+Are you not like the children of the [[Amos-09.fn#Footnote 7.1 — Cushites|Cushites]] /  
 To Me, O children of Israel? /  
 Declares Jehovah. /  
 Have I not brought up Israel /  
 Out from the land of Egypt, /  
-And the Philistines out from Caphtor, /  
-And Aram out from Kir?
+And the Philistines out from [[Amos-09.fn#Footnote 7.2 — Caphtor|Caphtor]], /  
+And [[Amos-09.fn#Footnote 7.3 — Aram|Aram]] out from Kir?
 
 ## v8
 
@@ -61,7 +61,7 @@ Yes, the eyes of the Lord Jehovah /
 Are on the sinful kingdom, /  
 And I will destroy it /  
 From off the face of the earth, /  
-Except that I will not utterly destroy the house of Jacob, /  
+Except that I will not [[Amos-09.fn#Footnote 8.1 — utterly|utterly]] destroy the house of Jacob, /  
 Declares Jehovah.
 
 ## v9
@@ -81,7 +81,7 @@ Nor come before us on all sides.
 ## v11
 
 In that day I will raise up /  
-The fallen tabernacle of David, /  
+The fallen [[Amos-09.fn#Footnote 11.1 — tabernacle|tabernacle]] of David, /  
 And I will wall up its breaches /  
 And raise up its ruins /  
 And build it up as it was in the days of old;

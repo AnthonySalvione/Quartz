@@ -23,7 +23,7 @@ When Joseph’s brothers sold him, they hated him and did not care for their fat
 
 **Verse:** [[Genesis-45#v5|Genesis 45:5]]
 
-Joseph did not need to forgive his brothers, because he did not blame them (cf. note 281). He received as from God all that his brothers had done to him, and he comforted those who had offended him ([[Genesis-45#v5|vv. 5-8]]; [[Genesis-50#v15|50:15-21]]). What grace, and what an excellent spirit, he had!
+Joseph did not need to forgive his brothers, because he did not blame them (cf. [note 28¹](<Genesis-45.fn#Footnote 28.1 — It>)). He received as from God all that his brothers had done to him, and he comforted those who had offended him ([[Genesis-45#v5|vv. 5-8]]; [[Genesis-50#v15|50:15-21]]). What grace, and what an excellent spirit, he had!
 
 ## Footnotes for verse 7
 

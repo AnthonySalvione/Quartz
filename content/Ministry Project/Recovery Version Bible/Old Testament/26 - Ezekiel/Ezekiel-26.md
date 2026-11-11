@@ -1,10 +1,10 @@
 ## v1
 
-And in the eleventh year, on the first of the month, the word of Jehovah came to me, saying,
+And in the [[Ezekiel-26.fn#Footnote 1.1 — eleventh|eleventh]] year, on the first of the month, the word of Jehovah came to me, saying,
 
 ## v2
 
-Son of man, because Tyre has spoken against Jerusalem, saying, Aha! She is broken, the gateway of the peoples! She has been turned over to me; I will be filled; now she has been desolated.
+Son of man, because [[Ezekiel-26.fn#Footnote 2.1 — Tyre|Tyre]] has spoken against Jerusalem, saying, Aha! She is broken, the gateway of the peoples! She has been turned over to me; I will be filled; now she has been desolated.
 
 ## v3
 
@@ -24,7 +24,7 @@ And her daughters who are in the field will be slain by the sword that they migh
 
 ## v7
 
-For thus says the Lord Jehovah, I am about to bring against Tyre from the north Nebuchadrezzar the king of Babylon, the king of kings, with horses, chariots, horsemen, a company, and many people.
+For thus says the Lord Jehovah, I am about to bring against Tyre from the north [[Ezekiel-26.fn#Footnote 7.1 — Nebuchadrezzar|Nebuchadrezzar]] the king of Babylon, the king of kings, with horses, chariots, horsemen, a company, and many people.
 
 ## v8
 

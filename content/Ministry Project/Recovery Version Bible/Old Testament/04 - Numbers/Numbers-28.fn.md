@@ -39,7 +39,7 @@ Although the burnt offering was to be wholly and absolutely burned for God’s s
 
 **Verse:** [[Numbers-28#v7|Numbers 28:7]]
 
-See note 13² in [[Leviticus-23|Lev. 23]].
+See [note 13²](<Leviticus-23.fn#Footnote 13.2 — drink>) in [[Leviticus-23|Lev. 23]].
 
 ## Footnotes for verse 11
 

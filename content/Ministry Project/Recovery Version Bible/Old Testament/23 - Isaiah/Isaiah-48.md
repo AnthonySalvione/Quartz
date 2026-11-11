@@ -2,7 +2,7 @@
 
 Hear this, O house of Jacob, /  
 Who are called by the name of Israel; /  
-And who came out from the waters of Judah, /  
+And who came out from the [[Isaiah-48.fn#Footnote 1.1 — waters|waters]] of Judah, /  
 Who swear by the name of Jehovah /  
 And make mention of the God of Israel, /  
 But not in truth nor in righteousness.
@@ -86,7 +86,7 @@ They stand together.
 
 Assemble yourselves, all of you, and hear! /  
 Who among them has declared these things? /  
-Jehovah loves him; he will do His pleasure /  
+Jehovah loves [[Isaiah-48.fn#Footnote 14.1 — him|him]]; he will do His pleasure /  
 On Babylon, and His arm will be upon the Chaldeans.
 
 ## v15
@@ -100,7 +100,7 @@ Draw near to Me and listen to this: /
 From the beginning I have not spoken in secret; /  
 From the time it took place, I was there. /  
 And now the Lord Jehovah /  
-Has sent me and His Spirit.
+Has sent [[Isaiah-48.fn#Footnote 16.1 — me|me]] and His [[Isaiah-48.fn#Footnote 16.2 — Spirit|Spirit]].
 
 ## v17
 
@@ -125,7 +125,7 @@ Or destroyed before Me.
 
 ## v20
 
-Come out from Babylon; /  
+Come out from [[Isaiah-48.fn#Footnote 20.1 — Babylon|Babylon]]; /  
 Flee from the Chaldeans; /  
 With a voice of shouting declare; /  
 Let them hear this, /  

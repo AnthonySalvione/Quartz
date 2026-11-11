@@ -15,4 +15,4 @@ chapter_num: 21
 
 **Verse:** [[1 Samuel-21#v6|1 Samuel 21:6]]
 
-See [[Matthew-12#v1|Matt. 12:1-4]] and note 32.
+See [[Matthew-12#v1|Matt. 12:1-4]] and [[Matthew-12.fn#Footnote 3.2 — David|note 3²]].

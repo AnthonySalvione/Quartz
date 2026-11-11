@@ -59,7 +59,7 @@ Or, in peace.
 
 **Verse:** [[Genesis-33#v18|Genesis 33:18]]
 
-See note 11, par. 1, in [[Genesis-35|Genesis 35]].
+See [note 1¹](<Genesis-35.fn#Footnote 1.1 — Bethel>), par. 1, in [[Genesis-35|Genesis 35]].
 
 ## Footnotes for verse 20
 

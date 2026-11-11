@@ -1,6 +1,6 @@
 ## v1
 
-Moreover when you divide the land for inheritance by lot, you shall offer a heave offering of land to Jehovah, a holy portion of the land; its length shall be twenty-five thousand reeds long, and its width twenty thousand reeds; it shall be holy within all its surrounding border.
+Moreover when you divide the land for inheritance by lot, you shall offer a heave offering of land to Jehovah, a holy portion of the land; its length shall be twenty-five thousand reeds long, and its width [[Ezekiel-45.fn#Footnote 1.1 — twenty|twenty]] thousand reeds; it shall be holy within all its surrounding border.
 
 ## v2
 
@@ -16,7 +16,7 @@ It is a holy portion of the land; it shall be for the priests, the ministers of 
 
 ## v5
 
-And an area twenty-five thousand reeds in length and ten thousand reeds in width shall be for the Levites, the ministers of the house, for their own possession, for cities to live in.
+And an area twenty-five thousand reeds in length and ten thousand reeds in width shall be for the Levites, the ministers of the house, for their own possession, for [[Ezekiel-45.fn#Footnote 5.1 — cities|cities]] to live in.
 
 ## v6
 
@@ -48,7 +48,7 @@ And the shekel shall be twenty gerahs; twenty shekels, twenty-five shekels, and 
 
 ## v13
 
-This is the heave offering which you shall offer: a sixth of an ephah from a homer of wheat, and a sixth of an ephah from a homer of barley;
+This is the heave offering which you shall offer: a sixth of an ephah from a homer of [[Ezekiel-45.fn#Footnote 13.1 — wheat|wheat]], and a sixth of an ephah from a homer of barley;
 
 ## v14
 
@@ -64,11 +64,11 @@ All the people of the land shall be bound to give this heave offering to the pri
 
 ## v17
 
-But it will be the prince’s portion to provide the burnt offerings, the meal offerings, and the drink offerings in the feasts, on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the sin offering, the meal offering, the burnt offering, and the peace offerings to make expiation for the house of Israel.
+But it will be the prince’s portion to provide the [[Ezekiel-45.fn#Footnote 17.1 — burnt|burnt]] offerings, the meal offerings, and the drink offerings in the feasts, on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel. He shall prepare the sin offering, the meal offering, the burnt offering, and the peace offerings to make [[Ezekiel-45.fn#Footnote 17.2 — expiation|expiation]] for the house of Israel.
 
 ## v18
 
-Thus says the Lord Jehovah, In the first month, on the first day of the month, you shall take a bull of the herd without blemish, and you shall purify the sanctuary.
+Thus says the Lord Jehovah, In the [[Ezekiel-45.fn#Footnote 18.1 — first|first]] month, on the first day of the month, you shall take a bull of the herd without blemish, and you shall purify the sanctuary.
 
 ## v19
 
@@ -80,7 +80,7 @@ And so you shall do on the seventh day of the month for everyone who sins uninte
 
 ## v21
 
-In the first month, on the fourteenth day of the month, you shall have the Passover, a feast of seven days; unleavened bread shall be eaten.
+In the first month, on the fourteenth day of the month, you shall have the [[Ezekiel-45.fn#Footnote 21.1 — Passover|Passover]], a feast of seven days; unleavened bread shall be eaten.
 
 ## v22
 
@@ -96,4 +96,4 @@ And he shall prepare a meal offering, an ephah for a bull, an ephah for a ram, a
 
 ## v25
 
-In the seventh month, on the fifteenth day of the month, at the feast, he shall make the same provision seven days for the sin offering, for the burnt offering, for the meal offering, and for the oil.
+In the seventh month, on the fifteenth day of the month, at the [[Ezekiel-45.fn#Footnote 25.1 — feast|feast]], he shall make the same provision seven days for the sin offering, for the burnt offering, for the meal offering, and for the oil.

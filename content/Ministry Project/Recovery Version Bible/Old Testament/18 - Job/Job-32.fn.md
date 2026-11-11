@@ -29,7 +29,7 @@ Meaning He is God, or He is my God.
 
 **Verse:** [[Job-32#v8|Job 32:8]]
 
-Or, it is the spirit in man, indeed the breath of the Almighty, that gives them understanding. In this verse a spirit in man and the breath of the Almighty are in apposition, indicating that the spirit of man is the breath of God (see note 75 in [[Genesis-02|Gen. 2]]).
+Or, it is the spirit in man, indeed the breath of the Almighty, that gives them understanding. In this verse a spirit in man and the breath of the Almighty are in apposition, indicating that the spirit of man is the breath of God (see [note 7⁵](<Genesis-02.fn#Footnote 7.5 — breath>) in [[Genesis-02|Gen. 2]]).
 
 ### Footnote 8.2 — spirit
 

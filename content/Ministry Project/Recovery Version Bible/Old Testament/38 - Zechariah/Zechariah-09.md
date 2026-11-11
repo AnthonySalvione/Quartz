@@ -1,6 +1,6 @@
 ## v1
 
-The burden of the word of Jehovah against the land of Hadrach, /  
+[[Zechariah-09.fn#Footnote 1.1 — The|The]] burden of the word of Jehovah against the [[Zechariah-09.fn#Footnote 1.2 — land|land]] of Hadrach, /  
 And Damascus will be its resting place /  
 (For Jehovah has an eye on man, /  
 Especially on the tribes of Israel),
@@ -45,14 +45,14 @@ And Ekron will be like a Jebusite.
 
 ## v8
 
-And I will encamp around My house because of an army, /  
+And I will encamp around My [[Zechariah-09.fn#Footnote 8.1 — house|house]] because of an army, /  
 Because of him who passes by and returns; /  
 And no oppressor will pass over them anymore; /  
 For now I see with My eyes.
 
 ## v9
 
-Exult greatly, O daughter of Zion; /  
+[[Zechariah-09.fn#Footnote 9.1 — Exult|Exult]] greatly, O daughter of Zion; /  
 Shout, O daughter of Jerusalem! /  
 Now your King comes to you. /  
 He is righteous and bears salvation, /  
@@ -61,16 +61,16 @@ Even upon a colt, the foal of a donkey.
 
 ## v10
 
-And I will cut off the chariot from Ephraim /  
+[[Zechariah-09.fn#Footnote 10.1 — And|And]] I will cut off the chariot from Ephraim /  
 And the horse from Jerusalem, /  
 And the battle bow will be cut off; /  
 And He will speak peace unto the nations, /  
 And His dominion will be from sea to sea /  
-And from the River unto the ends of the earth.
+And from the [[Zechariah-09.fn#Footnote 10.2 — River|River]] unto the ends of the earth.
 
 ## v11
 
-As for you also, because of the blood of your covenant, /  
+[[Zechariah-09.fn#Footnote 11.1 — As|As]] for you also, because of the blood of your covenant, /  
 I have released your captives from the pit, where there is no water.
 
 ## v12
@@ -83,12 +83,12 @@ This very day I am declaring that I will restore double to you.
 For I will bend Judah for Myself, /  
 And I will fill a bow with Ephraim; /  
 And I will stir up your sons, O Zion, /  
-Against your sons, O Javan; /  
+Against your sons, O [[Zechariah-09.fn#Footnote 13.1 — Javan|Javan]]; /  
 And I will make you like a warrior’s sword.
 
 ## v14
 
-And Jehovah will appear above them, /  
+And Jehovah will appear above [[Zechariah-09.fn#Footnote 14.1 — them|them]], /  
 And His arrow will go forth like lightning; /  
 And the Lord Jehovah will blow the trumpet, /  
 And He will go in the whirlwinds of the south.
@@ -103,11 +103,11 @@ Like the corners of the altar.
 
 ## v16
 
-And Jehovah their God will save them in that day as the flock of His people, /  
+And Jehovah their God will save them in [[Zechariah-09.fn#Footnote 16.1 — that|that]] day as the flock of His people, /  
 For they will be like the stones of a crown, sparkling in His land.
 
 ## v17
 
-For how great is their goodness, and how great their beauty! /  
+For how [[Zechariah-09.fn#Footnote 17.1 — great|great]] is their goodness, and how great their beauty! /  
 Grain will make the young men flourish, /  
 And new wine, the virgins.

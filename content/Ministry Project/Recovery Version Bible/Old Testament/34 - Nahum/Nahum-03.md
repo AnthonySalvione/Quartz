@@ -53,18 +53,18 @@ Some to comfort you?
 
 ## v8
 
-Are you better than No-amon,  
+Are you better than [[Nahum-03.fn#Footnote 8.1 — No-amon|No-amon]],  
 Who sat beside the canals  
 With waters all around her,  
-Whose bulwark was the sea  
+Whose bulwark was the [[Nahum-03.fn#Footnote 8.2 — sea|sea]]  
 And water was her wall?
 
 ## v9
 
-Cush was her strength,  
+[[Nahum-03.fn#Footnote 9.1 — Cush|Cush]] was her strength,  
 As well as Egypt, and it was without end;  
-Put and the Libyans  
-Were among her helpers.
+[[Nahum-03.fn#Footnote 9.2 — Put|Put]] and the Libyans  
+Were among [[Nahum-03.fn#Footnote 9.3 — her|her]] helpers.
 
 ## v10
 
@@ -105,7 +105,7 @@ Draw for yourself water for the siege!
 Strengthen your fortresses!  
 Go into the clay,  
 And tread in the mortar!  
-Make the brick kiln ready!
+Make the brick kiln [[Nahum-03.fn#Footnote 14.1 — ready|ready]]!
 
 ## v15
 
@@ -124,7 +124,7 @@ The locust strips everything and flies away.
 ## v17
 
 Your princes are like the locust swarm,  
-And your officials are like hordes of locusts,  
+And your officials are like hordes of [[Nahum-03.fn#Footnote 17.1 — locusts|locusts]],  
 Which camp in the hedges  
 On a cold day,  
 But when the sun arises, they flee away,  

@@ -1,6 +1,6 @@
 ## v1
 
-The Spirit of the Lord Jehovah is upon Me, /  
+[[Isaiah-61.fn#Footnote 1.1 — The|The]] Spirit of the [[Isaiah-61.fn#Footnote 1.2 — Lord|Lord]] Jehovah is upon Me, /  
 Because Jehovah has anointed Me /  
 To bring good news to the afflicted; /  
 He has sent Me to bind up the wounds of the brokenhearted, /  
@@ -9,8 +9,8 @@ And the opening of the eyes to those who are bound;
 
 ## v2
 
-To proclaim the acceptable year of Jehovah /  
-And the day of vengeance of our God; /  
+To proclaim the [[Isaiah-61.fn#Footnote 2.1 — acceptable|acceptable]] year of Jehovah /  
+And the [[Isaiah-61.fn#Footnote 2.1 — acceptable|day]] of vengeance of our God; /  
 To comfort all who mourn;
 
 ## v3
@@ -36,7 +36,7 @@ And the sons of the foreigner will be your plowmen and vinedressers.
 
 ## v6
 
-But you will be called the priests of Jehovah; /  
+But you will be called the [[Isaiah-61.fn#Footnote 6.1 — priests|priests]] of Jehovah; /  
 People will speak of you as the ministers of our God. /  
 You will eat the wealth of nations, /  
 And you will boast in their glory.
@@ -51,7 +51,7 @@ Eternal joy will be theirs.
 ## v8
 
 For I, Jehovah, love justice; /  
-I hate robbery with wrong; /  
+I hate robbery [[Isaiah-61.fn#Footnote 8.1 — with|with]] wrong; /  
 And I will faithfully give them their recompense, /  
 And I will make an eternal covenant with them.
 

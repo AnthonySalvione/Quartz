@@ -9,9 +9,9 @@ The Judge of Israel.
 
 (But you, O Bethlehem Ephrathah,  
 So little to be among the thousands of Judah,  
-From you there will come forth to Me  
-He who is to be Ruler in Israel;  
-And His goings forth are from ancient times,  
+From you there will [[Micah-05.fn#Footnote 2.1 — come|come]] forth to Me  
+He who is to be [[Micah-05.fn#Footnote 2.2 — Ruler|Ruler]] in Israel;  
+And His [[Micah-05.fn#Footnote 2.1 — come|goings]] forth are from ancient times,  
 From the days of eternity.)
 
 ## v3
@@ -40,13 +40,13 @@ And eight princes of men.
 
 And they will waste the land of Assyria with the sword  
 And the land of Nimrod at its entrances.  
-And He will save us from Assyria,  
+And [[Micah-05.fn#Footnote 6.1 — He|He]] will save us from Assyria,  
 When he comes into our land  
 And when he treads in our border.
 
 ## v7
 
-And the remnant of Jacob will be  
+And the [[Micah-05.fn#Footnote 7.1 — remnant|remnant]] of Jacob will be  
 In the midst of many peoples  
 Like dew from Jehovah,  
 Like abundant showers upon the herbage,  
@@ -69,7 +69,7 @@ And all your enemies will be cut off.
 
 ## v10
 
-In that day,  
+In that [[Micah-05.fn#Footnote 10.1 — day|day]],  
 Declares Jehovah,  
 I will cut off your horses from the midst of you  
 And will destroy your chariots.

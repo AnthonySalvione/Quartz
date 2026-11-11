@@ -23,7 +23,7 @@ The eighth day, the first day of a new week, signifies resurrection ([[Mark-16#v
 
 **Verse:** [[Leviticus-09#v2|Leviticus 9:2]]
 
-Aaron’s offering the sin offering and the burnt offering to make expiation for himself first ([[Leviticus-09#v7|v. 7]]) signifies that he, as a sinful person, needed to take Christ as his sin offering and burnt offering so that his situation with God might be appeased and he might serve God as a priest. See notes 141 and 181 in [[Leviticus-08|Leviticus 8]]. 
+Aaron’s offering the sin offering and the burnt offering to make expiation for himself first ([[Leviticus-09#v7|v. 7]]) signifies that he, as a sinful person, needed to take Christ as his sin offering and burnt offering so that his situation with God might be appeased and he might serve God as a priest. See notes [14¹](<Leviticus-08.fn#Footnote 14.1 — bull>) and [18¹](<Leviticus-08.fn#Footnote 18.1 — ram>) in [[Leviticus-08|Leviticus 8]]. 
 
 Aaron’s preparing the sin offering and the burnt offering also typifies Christ’s offering Himself as a sin offering for the redemption of God’s people and as a burnt offering for God’s people to be God’s satisfaction ([[Hebrews-09#v14|Heb. 9:14]]; [[Hebrews-10#v5|10:5-10]]). Moreover, it signifies that whatever Christ as our High Priest did, He did for us, that we might be redeemed from sin and made God’s satisfaction. By our being one with Christ in His death, we are redeemed in Him ([[Ephesians-01#v7|Eph. 1:7]]), and by Christ’s being one with us in His resurrection, He lives in us that we may live Him for God’s satisfaction ([[Galatians-02#v20|Gal. 2:20]]; [[Philippians-01#v20|Phil. 1:20-21a]]).
 
@@ -41,7 +41,7 @@ Aaron’s offering of the sin offering, the burnt offering, and the meal offerin
 
 **Verse:** [[Leviticus-09#v18|Leviticus 9:18]]
 
-Aaron’s offering of the peace offering for the people ([[Leviticus-09#v18|vv. 18-21]]) signifies that Christ offered Himself as our peace offering that we and God may enjoy Him as peace. When we apply Christ as our sin offering (including the trespass offering), burnt offering, and meal offering ([[Leviticus-09#v15|vv. 15-17]]), we enter into peace, which is Christ Himself ([[Ephesians-02#v14|Eph. 2:14]]). We enjoy this peace primarily at the Lord’s table (see note 11 in [[Leviticus-03|Leviticus 3]]).
+Aaron’s offering of the peace offering for the people ([[Leviticus-09#v18|vv. 18-21]]) signifies that Christ offered Himself as our peace offering that we and God may enjoy Him as peace. When we apply Christ as our sin offering (including the trespass offering), burnt offering, and meal offering ([[Leviticus-09#v15|vv. 15-17]]), we enter into peace, which is Christ Himself ([[Ephesians-02#v14|Eph. 2:14]]). We enjoy this peace primarily at the Lord’s table (see [note 1¹](<Leviticus-03.fn#Footnote 1.1 — peace>) in [[Leviticus-03|Leviticus 3]]).
 
 ## Footnotes for verse 22
 
@@ -71,4 +71,4 @@ The appearing of God (God’s presence) and of God’s glory (God’s expression
 
 **Verse:** [[Leviticus-09#v24|Leviticus 9:24]]
 
-The fire signifies that God’s holiness as a consuming fire ([[Hebrews-12#v29|Heb. 12:29]]) accepts our offerings by burning. The consuming fire of suffering always follows God’s blessing ([[Leviticus-09#v23|v. 23]]), as a sign that God has accepted what we have offered to Him in Christ and with Christ (cf. [[Acts-07#v55|Acts 7:55-59]]; [[2 TImothy-04#v6|2 Tim. 4:6]]). Cf. [[Leviticus-10#v1|10:1-2]] and note 21.
+The fire signifies that God’s holiness as a consuming fire ([[Hebrews-12#v29|Heb. 12:29]]) accepts our offerings by burning. The consuming fire of suffering always follows God’s blessing ([[Leviticus-09#v23|v. 23]]), as a sign that God has accepted what we have offered to Him in Christ and with Christ (cf. [[Acts-07#v55|Acts 7:55-59]]; [[2 TImothy-04#v6|2 Tim. 4:6]]). Cf. [[Leviticus-10#v1|10:1-2]] and [[Leviticus-10.fn#Footnote 2.1 — fire|note 2¹]].

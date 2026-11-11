@@ -3,8 +3,8 @@
 Seek refuge, O children of Benjamin,  
 From the midst of Jerusalem;  
 And blow the trumpet in Tekoa  
-And raise up a signal on Beth-haccherem;  
-For evil looks down from the north,  
+And raise up a signal on [[Jeremiah-06.fn#Footnote 1.1 — Beth-haccherem|Beth-haccherem]];  
+For evil looks down from the [[Jeremiah-06.fn#Footnote 1.2 — north|north]],  
 And great destruction.
 
 ## v2
@@ -21,7 +21,7 @@ They will feed each one in his place.
 
 ## v4
 
-Prepare war against her;  
+[[Jeremiah-06.fn#Footnote 4.1 — Prepare|Prepare]] war against her;  
 Rise up, and let us go up at noon.  
 Woe to us, for the day has declined,  
 For the shadows of evening are lengthening.
@@ -56,7 +56,7 @@ An uninhabited land.
 ## v9
 
 Thus says Jehovah of hosts,  
-They will thoroughly glean like a vine  
+They will thoroughly [[Jeremiah-06.fn#Footnote 9.1 — glean|glean]] like a vine  
 The remnant of Israel;  
 Pass your hand again over the branches  
 Like a grape gatherer.

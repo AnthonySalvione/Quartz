@@ -20,7 +20,7 @@ Then Jonah went out from the city and sat to the east of the city. And he made a
 
 ## v6
 
-And Jehovah God prepared a castor-oil tree; and it came up over Jonah to be a shade over his head, that it might deliver him from his misfortune. And Jonah was exceedingly glad because of the tree.
+And Jehovah God prepared a [[Jonah-04.fn#Footnote 6.1 — castor-oil|castor-oil]] tree; and it came up over Jonah to be a shade over his head, that it might deliver him from his misfortune. And Jonah was exceedingly glad because of the tree.
 
 ## v7
 
@@ -40,4 +40,4 @@ And Jehovah said, You had pity on the tree that you did not labor for nor cause 
 
 ## v11
 
-And I, should I not have pity on Nineveh, the great city, in which are more than a hundred and twenty thousand people who cannot discern between their right hand and their left, and many cattle?
+And I, should I not have [[Jonah-04.fn#Footnote 11.1 — pity|pity]] on Nineveh, the great city, in which are more than a hundred and twenty thousand people who cannot discern between their right hand and their left, and many [[Jonah-04.fn#Footnote 11.2 — cattle|cattle]]?

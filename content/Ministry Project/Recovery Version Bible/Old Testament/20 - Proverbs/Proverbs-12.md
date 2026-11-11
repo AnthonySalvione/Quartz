@@ -75,7 +75,7 @@ But a wise man listens to counsel.
 
 ## v16
 
-A fool’s anger is known at once,  
+A fool’s anger is known [[Proverbs-12.fn#Footnote 16.1 — at|at]] once,  
 But a prudent man conceals shame.
 
 ## v17

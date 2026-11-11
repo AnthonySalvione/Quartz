@@ -12,7 +12,7 @@ All the princes of the king of Babylon came and sat down in the middle gate: Ner
 
 ## v4
 
-And when Zedekiah the king of Judah and all the men of war saw them, they fled and went out from the city by night by way of the king’s garden through the gate between the two walls; and he went out by the way toward the Arabah.
+And when Zedekiah the king of Judah and all the men of war saw them, they fled and went out from the city by night by way of the king’s garden through the gate between the two walls; and he went out by the way toward the [[Jeremiah-39.fn#Footnote 4.1 — Arabah|Arabah]].
 
 ## v5
 
@@ -24,7 +24,7 @@ Then the king of Babylon slaughtered the sons of Zedekiah before his eyes at Rib
 
 ## v7
 
-And he put out Zedekiah’s eyes and bound him with bronze fetters to bring him to Babylon.
+And he [[Jeremiah-39.fn#Footnote 7.1 — put|put]] out Zedekiah’s eyes and bound him with bronze fetters to bring him to Babylon.
 
 ## v8
 

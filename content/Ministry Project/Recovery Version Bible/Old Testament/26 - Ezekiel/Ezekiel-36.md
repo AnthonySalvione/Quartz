@@ -20,7 +20,7 @@ Therefore thus says the Lord Jehovah, Surely in the fire of My jealousy I have s
 
 ## v6
 
-Therefore prophesy concerning the land of Israel, and say to the mountains and to the hills, to the ravines and to the valleys, Thus says the Lord Jehovah, Indeed I am speaking in My jealousy and in My wrath because you have borne the disgrace of the nations.
+Therefore prophesy concerning the land of Israel, and say to the [[Ezekiel-36.fn#Footnote 6.1 — mountains|mountains]] and to the hills, to the ravines and to the valleys, Thus says the Lord Jehovah, Indeed I am speaking in My jealousy and in My wrath because you have borne the disgrace of the nations.
 
 ## v7
 
@@ -84,7 +84,7 @@ But I had regard for My holy name, which the house of Israel had profaned among 
 
 ## v22
 
-Therefore say to the house of Israel, Thus says the Lord Jehovah, I am not doing this for your sake, O house of Israel, but for My holy name, which you have profaned among the nations where you went.
+Therefore say to the house of Israel, Thus says the Lord Jehovah, I am not doing this for your sake, O house of Israel, but for [[Ezekiel-36.fn#Footnote 22.1 — My|My]] holy name, which you have profaned among the nations where you went.
 
 ## v23
 
@@ -96,15 +96,15 @@ And I will take you from the nations and gather you from all the countries and b
 
 ## v25
 
-And I will sprinkle clean water upon you, and you will be clean; from all your filthiness and from all your idols I will cleanse you.
+And I will sprinkle [[Ezekiel-36.fn#Footnote 25.1 — clean|clean]] water upon you, and you will be clean; from all your filthiness and from all your idols I will cleanse you.
 
 ## v26
 
-I will also give you a new heart, and a new spirit I will put within you; and I will take away the heart of stone out of your flesh, and I will give you a heart of flesh.
+I will also give you a [[Ezekiel-36.fn#Footnote 26.1 — new|new]] heart, and a [[Ezekiel-36.fn#Footnote 26.1 — new|new]] spirit I will put within you; and I will take away the heart of stone out of your flesh, and I will give you a heart of flesh.
 
 ## v27
 
-And I will put My Spirit within you and cause you to walk in My statutes, and My ordinances you shall keep and do.
+And I will put [[Ezekiel-36.fn#Footnote 27.1 — My|My]] Spirit within you and cause you to [[Ezekiel-36.fn#Footnote 27.2 — walk|walk]] in My statutes, and My ordinances you shall keep and do.
 
 ## v28
 
@@ -136,7 +136,7 @@ And the land that was desolate will be tilled instead of being desolate in the s
 
 ## v35
 
-And they will say, This land that was desolate has become like the garden of Eden, and the waste and desolate and ruined cities are fortified and inhabited.
+And they will say, This land that was desolate has become like the [[Ezekiel-36.fn#Footnote 35.1 — garden|garden]] of Eden, and the waste and desolate and ruined cities are fortified and inhabited.
 
 ## v36
 
@@ -144,7 +144,7 @@ Then the nations that are left all around you will know that I, Jehovah, have re
 
 ## v37
 
-Thus says the Lord Jehovah, Moreover for this I will be inquired of by the house of Israel to do it for them; I will increase them with men like a flock.
+Thus says the Lord Jehovah, Moreover for this I will be [[Ezekiel-36.fn#Footnote 37.1 — inquired|inquired]] of by the house of Israel to do it for them; I will increase them with men like a flock.
 
 ## v38
 

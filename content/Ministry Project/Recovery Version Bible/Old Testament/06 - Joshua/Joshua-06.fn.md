@@ -15,7 +15,7 @@ chapter_num: 6
 
 **Verse:** [[Joshua-06#v1|Joshua 6:1]]
 
-The shutting up of Jericho, with no traffic, no coming in or going out, signifies that the powers of darkness, the spiritual forces of evil in the heavenlies, were bound ([[Matthew-12#v29|Matt. 12:29]]; [[Ephesians-06#v12|Eph. 6:12]]). See note 231, par. 1, in [[Exodus-23|Exo. 23]].
+The shutting up of Jericho, with no traffic, no coming in or going out, signifies that the powers of darkness, the spiritual forces of evil in the heavenlies, were bound ([[Matthew-12#v29|Matt. 12:29]]; [[Ephesians-06#v12|Eph. 6:12]]). See [note 23¹](<Exodus-23.fn#Footnote 23.1 — Amorites>), par. 1, in [[Exodus-23|Exo. 23]].
 
 ## Footnotes for verse 6
 
@@ -47,7 +47,7 @@ The victory over Jericho in Israel’s first battle after crossing the Jordan wa
 
 **Verse:** [[Joshua-06#v23|Joshua 6:23]]
 
-See notes 11, 111 and 181 in [[Joshua-02|Joshua 2]].
+See notes [1¹](<Joshua-02.fn#Footnote 1.1 — Rahab>), [11¹](<Joshua-02.fn#Footnote 11.1 — He>) and [18¹](<Joshua-02.fn#Footnote 18.1 — scarlet>) in [[Joshua-02|Joshua 2]].
 
 ## Footnotes for verse 26
 

@@ -8,11 +8,11 @@ Son of man, put forth a riddle, and utter a parable to the house of Israel;
 
 ## v3
 
-And say, Thus says the Lord Jehovah, A great eagle with great wings, long pinions, and full plumage of many colors came to Lebanon and took away the top of the cedar.
+And say, Thus says the Lord Jehovah, A great [[Ezekiel-17.fn#Footnote 3.1 — eagle|eagle]] with great wings, long pinions, and full plumage of many colors came to Lebanon and took away the top of the cedar.
 
 ## v4
 
-He cropped off its topmost young twig and brought it to a land of merchants; he set it in a city of traders.
+He cropped off its topmost young [[Ezekiel-17.fn#Footnote 4.1 — twig|twig]] and brought it to a land of merchants; he set it in a city of traders.
 
 ## v5
 
@@ -24,7 +24,7 @@ That it might sprout and become a low, running vine with its branches turned tow
 
 ## v7
 
-And there was another great eagle with great wings and much plumage; and then this vine bent its roots toward him, and from the beds where it was planted it sent out its branches toward him that he might water it.
+And there was another great [[Ezekiel-17.fn#Footnote 7.1 — eagle|eagle]] with great wings and much plumage; and then this vine bent its roots toward him, and from the beds where it was planted it sent out its branches toward him that he might water it.
 
 ## v8
 
@@ -44,11 +44,11 @@ Moreover the word of Jehovah came to me, saying,
 
 ## v12
 
-Say now to the rebellious house, Do you not know what these things mean? Say, Indeed the king of Babylon came to Jerusalem, and he took its king and its rulers and brought them to him at Babylon.
+Say now to the rebellious house, Do you not know what these things mean? Say, Indeed the king of Babylon came to Jerusalem, and he took its [[Ezekiel-17.fn#Footnote 12.1 — king|king]] and its rulers and brought them to him at Babylon.
 
 ## v13
 
-And he took someone of the royal seed and made a covenant with him and put him under an oath. He also took the mighty men of the land,
+And he took [[Ezekiel-17.fn#Footnote 13.1 — someone|someone]] of the royal seed and made a covenant with him and put him under an oath. He also took the mighty men of the land,
 
 ## v14
 
@@ -80,11 +80,11 @@ And I will spread My net over him, and he will be caught in My snare; and I will
 
 ## v21
 
-And all his choice men with all his armies will fall by the sword, and those who are left will be scattered into every wind; and you will know that I, Jehovah, have spoken.
+And all his [[Ezekiel-17.fn#Footnote 21.1 — choice|choice]] men with all his armies will fall by the sword, and those who are left will be scattered into every wind; and you will know that I, Jehovah, have spoken.
 
 ## v22
 
-Thus says the Lord Jehovah, I will also take a twig from the lofty top of the cedar and will set it out; from the topmost of its young twigs I will crop off a tender one, and I will transplant it upon a high and prominent mountain.
+Thus says the Lord Jehovah, I will also take a [[Ezekiel-17.fn#Footnote 22.1 — twig|twig]] from the lofty top of the cedar and will set it out; from the topmost of its young twigs I will crop off a tender one, and I will transplant it upon a high and prominent mountain.
 
 ## v23
 

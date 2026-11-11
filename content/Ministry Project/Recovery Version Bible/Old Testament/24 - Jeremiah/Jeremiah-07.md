@@ -16,7 +16,7 @@ And I will cause you to dwell in this place.
 ## v4
 
 Do not trust in the words of falsehood that say,  
-The temple of Jehovah, the temple of Jehovah,  
+The [[Jeremiah-07.fn#Footnote 4.1 — temple|temple]] of Jehovah, the temple of Jehovah,  
 These buildings are the temple of Jehovah.
 
 ## v5
@@ -26,7 +26,7 @@ If you truly execute justice between a man and his neighbor,
 
 ## v6
 
-If you do not oppress the sojourner, the orphan, and the widow,  
+If you do not [[Jeremiah-07.fn#Footnote 6.1 — oppress|oppress]] the sojourner, the orphan, and the widow,  
 And do not shed innocent blood in this place,  
 Nor go after other gods to your own ruin;
 
@@ -63,7 +63,7 @@ Yet I, even I, have seen it, declares Jehovah.
 
 ## v12
 
-But go now to My place which was in Shiloh,  
+But go now to My place which was in [[Jeremiah-07.fn#Footnote 12.1 — Shiloh|Shiloh]],  
 Where I caused My name to dwell at first,  
 And see what I did to it  
 Because of the wickedness of My people Israel.
@@ -105,7 +105,7 @@ In the cities of Judah and in the streets of Jerusalem?
 The children gather wood,  
 And the fathers light the fire,  
 And the women knead the dough,  
-To make cakes for the queen of heaven  
+To make cakes for the [[Jeremiah-07.fn#Footnote 18.1 — queen|queen]] of heaven  
 And to pour out drink offerings to other gods  
 To provoke Me to anger.
 
@@ -181,7 +181,7 @@ And is cut off from their mouth.
 
 ## v29
 
-Cut off your hair and throw it away,  
+Cut off your [[Jeremiah-07.fn#Footnote 29.1 — hair|hair]] and throw it away,  
 And take up a lamentation on the bare heights;  
 For Jehovah has rejected and forsaken  
 The generation of His overflowing wrath.

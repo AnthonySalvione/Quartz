@@ -1,6 +1,14 @@
+> *To the choir: according to mahalath. A Maschil of David*
+
+> [!light] Note on mahalath:
+> The meaning of the Hebrew is obscure; it may refer to a kind of sad melody.
+
+> [!light] Note on Maschil:
+> See note on the superscription of [[Psalm-32|Psa. 32]].
+---
 ## v1
 
-The fool has said in his heart,  
+The [[Psalm-53.fn#Footnote 1.1 — fool|fool]] has said in his heart,  
 There is no God.  
 They are corrupt and commit abominable deeds;  
 There is none who does good.
@@ -36,6 +44,6 @@ Because God has rejected them.
 
 ## v6
 
-Oh that the salvation of Israel might come forth from Zion!  
+Oh that the [[Psalm-53.fn#Footnote 6.1 — salvation|salvation]] of Israel might come forth from Zion!  
 When God turns the captivity of His people,  
 Jacob will exult, Israel will rejoice.

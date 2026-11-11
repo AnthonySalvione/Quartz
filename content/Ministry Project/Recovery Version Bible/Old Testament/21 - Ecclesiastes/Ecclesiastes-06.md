@@ -54,7 +54,7 @@ This also is vanity and a chasing after wind.
 
 ## v10
 
-That which is has already been determined,  
+That which is has already been [[Ecclesiastes-06.fn#Footnote 10.1 — determined|determined]],  
 And it is known what man is  
 And that he cannot contend with him who is stronger than he.
 

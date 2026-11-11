@@ -1,6 +1,6 @@
 ## v1
 
-Woe to Ariel, to Ariel,  
+Woe to [[Isaiah-29.fn#Footnote 1.1 — Ariel|Ariel]], to Ariel,  
 The city where David camped!  
 Add year to year; let the feasts run their course.
 
@@ -78,7 +78,7 @@ And he will say, I am illiterate.
 ## v13
 
 And the Lord said,  
-Because this people draws near with their mouth,  
+Because this people [[Isaiah-29.fn#Footnote 13.1 — draws|draws]] near with their mouth,  
 And with their lips they honor Me,  
 Yet they remove their heart far from Me,  
 And their fear for Me  
@@ -93,7 +93,7 @@ And the understanding of those who understand will be hidden.
 
 ## v15
 
-Woe to those who hide deeply  
+Woe to those who [[Isaiah-29.fn#Footnote 15.1 — hide|hide]] deeply  
 Their counsel from Jehovah,  
 And whose deeds are in the dark  
 And who say, Who sees us? And, Who knows us?
@@ -107,7 +107,7 @@ Or what is formed should say of him who formed it, He has no understanding?
 
 ## v17
 
-Is it not yet a little while  
+[[Isaiah-29.fn#Footnote 17.1 — Is|Is]] it not yet a little while  
 Before Lebanon will be turned into a fruitful field,  
 And the fruitful field will be considered to be a forest.
 

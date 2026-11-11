@@ -25,7 +25,7 @@ The temple replaced the tabernacle as God’s dwelling on earth. The temple firs
 
 Solomon and the temple built by him typify Christ and His Body, the church, respectively, as the center, the reality, and the goal of God’s eternal economy. Since Solomon and the temple play the strongest roles in the history of Israel and occupy a wide realm in such a history, they are strong evidence that the history of Israel is very much related to the accomplishing of God’s eternal economy in the Old Testament in the way of typology. This is a clear indication that the books of history were written from the point of view of God’s eternal economy concerning Christ and the church. 
 
-The temple was built on the ground of Mount Zion, called Mount Moriah, where Abraham offered Isaac ([[Genesis-22#v2|Gen. 22:2]]) and David offered his sacrifice to Jehovah ([[1 Chronicles-21#v18|1 Chron. 21:18]]—[[1 Chronicles-22#v1|22:1]]; [[2 Chronicles-03#v1|2 Chron. 3:1]]). This is a further indication that the Bible is a record concerning God’s economy. Isaac was a type of Christ, who was crucified in the same place where Isaac was offered to God (see notes 21 in [[Genesis-22|Gen. 22]] and 11 in [[Mark-10|Mark 10]]).
+The temple was built on the ground of Mount Zion, called Mount Moriah, where Abraham offered Isaac ([[Genesis-22#v2|Gen. 22:2]]) and David offered his sacrifice to Jehovah ([[1 Chronicles-21#v18|1 Chron. 21:18]]—[[1 Chronicles-22#v1|22:1]]; [[2 Chronicles-03#v1|2 Chron. 3:1]]). This is a further indication that the Bible is a record concerning God’s economy. Isaac was a type of Christ, who was crucified in the same place where Isaac was offered to God (see notes [2¹](<Genesis-22.fn#Footnote 2.1 — only>) in [[Genesis-22|Gen. 22]] and [1¹](<Mark-10.fn#Footnote 1.1 — borders>) in [[Mark-10|Mark 10]]).
 
 ## Footnotes for verse 2
 
@@ -33,7 +33,7 @@ The temple was built on the ground of Mount Zion, called Mount Moriah, where Abr
 
 **Verse:** [[1 Kings-06#v2|1 Kings 6:2]]
 
-The dimensions of the temple and the Holy of Holies in the temple were twice those of the tabernacle ([[1 Kings-06#v2|vv. 2]], [[1 Kings-06#v20|20]]; cf. notes 31, 181, and 331 in [[Exodus-26|Exo. 26]]). Furthermore, with the exception of the Ark ([[1 Kings-06#v19|v. 19]]), the size and number of the furnishings and the utensils were greatly enlarged ([[2 Chronicles-04#v1|2 Chron. 4:1-8]]). This indicates that although Christ Himself (signified by the Ark) cannot be enlarged, our experience of Christ in all His riches, as signified by the temple and its furnishings and utensils, should be greatly increased and enlarged ([[Ephesians-03#v8|Eph. 3:8]], [[Ephesians-03#v14|14-19]]; [[Philippians-03#v7|Phil. 3:7-14]]) to match His enlarged expression. See note 11, par. 2, in [[Ezekiel-40|Ezek. 40]].
+The dimensions of the temple and the Holy of Holies in the temple were twice those of the tabernacle ([[1 Kings-06#v2|vv. 2]], [[1 Kings-06#v20|20]]; cf. notes [3¹](<Exodus-26.fn#Footnote 3.1 — Five>), [18¹](<Exodus-26.fn#Footnote 18.1 — twenty>), and [33¹](<Exodus-26.fn#Footnote 33.1 — clasps>) in [[Exodus-26|Exo. 26]]). Furthermore, with the exception of the Ark ([[1 Kings-06#v19|v. 19]]), the size and number of the furnishings and the utensils were greatly enlarged ([[2 Chronicles-04#v1|2 Chron. 4:1-8]]). This indicates that although Christ Himself (signified by the Ark) cannot be enlarged, our experience of Christ in all His riches, as signified by the temple and its furnishings and utensils, should be greatly increased and enlarged ([[Ephesians-03#v8|Eph. 3:8]], [[Ephesians-03#v14|14-19]]; [[Philippians-03#v7|Phil. 3:7-14]]) to match His enlarged expression. See [note 1¹](<Ezekiel-40.fn#Footnote 1.1 — In>), par. 2, in [[Ezekiel-40|Ezek. 40]].
 
 ## Footnotes for verse 4
 
@@ -55,7 +55,7 @@ The fixed lattices were for keeping the windows open and for keeping the negativ
 
 **Verse:** [[1 Kings-06#v5|1 Kings 6:5]]
 
-I.e., the Holy Place. The outer temple, the Holy Place ([[1 Kings-06#v17|v. 17]]), signifies the soul of the believers as God’s temple, which is sanctified unto God, whereas the innermost sanctuary, the Holy of Holies ([[1 Kings-06#v5|vv. 5b]], [[1 Kings-06#v16|16]]), signifies the spirit of the believers as God’s temple ([[Ephesians-02#v22|Eph. 2:22]] and note 4; [[Hebrews-10#v19|Heb. 10:19]] and note). The Holy of Holies was the same in its three dimensions, as is the New Jerusalem, the largest form of the Holy of Holies ([[1 Kings-06#v20|v. 20]]; [[Revelation-21#v16|Rev. 21:16]] and note 4).
+I.e., the Holy Place. The outer temple, the Holy Place ([[1 Kings-06#v17|v. 17]]), signifies the soul of the believers as God’s temple, which is sanctified unto God, whereas the innermost sanctuary, the Holy of Holies ([[1 Kings-06#v5|vv. 5b]], [[1 Kings-06#v16|16]]), signifies the spirit of the believers as God’s temple ([[Ephesians-02#v22|Eph. 2:22]] and [note 4](<Ephesians-02.fn#Footnote 22.4 — spirit>); [[Hebrews-10#v19|Heb. 10:19]] and [note](<Hebrews-10.fn#Footnote 19.1 — entering>)). The Holy of Holies was the same in its three dimensions, as is the New Jerusalem, the largest form of the Holy of Holies ([[1 Kings-06#v20|v. 20]]; [[Revelation-21#v16|Rev. 21:16]] and [note 4](<Revelation-21.fn#Footnote 16.4 — length>)).
 
 ### Footnote 5.2 — innermost
 
@@ -99,7 +99,7 @@ The door of the side chambers signifies the communication, the fellowship, of th
 
 **Verse:** [[1 Kings-06#v15|1 Kings 6:15]]
 
-The different kinds of wood used in constructing the temple signify different aspects of Christ’s humanity. In ancient times the Jews planted cypress trees above their graves; hence, cypress ([[1 Kings-06#v15|vv. 15b]], [[1 Kings-06#v34|34]]) signifies Christ’s humanity in His death, the crucified Jesus (cf. [[Genesis-06#v14|Gen. 6:14]] and note 2). Cedar trees grew on the mountains of Lebanon ([[Psalm-104#v16|Psa. 104:16]]); thus, cedar ([[1 Kings-06#v9|vv. 9]], [[1 Kings-06#v10|10b]], [[1 Kings-06#v15|15a]], [[1 Kings-06#v16|16]], [[1 Kings-06#v36|36]]) signifies Christ’s humanity in resurrection, the resurrected Christ (cf. [[Song-04#v8|S.S. 4:8]] and note 2). Olive oil typifies the Spirit of God; hence, olive wood ([[1 Kings-06#v23|vv. 23]], [[1 Kings-06#v31|31-33]]) signifies Christ’s humanity in the Spirit of God, the anointed Christ ([[Hebrews-01#v9|Heb. 1:9]]). In order to become materials for God’s building ([[1 Corinthians-03#v9|1 Cor. 3:9]], [[1 Corinthians-03#v12|12]]), we need to experience Christ in His death, His resurrection, and His Spirit ([[Philippians-03#v10|Phil. 3:10]]; [[Philippians-01#v19|1:19]]).
+The different kinds of wood used in constructing the temple signify different aspects of Christ’s humanity. In ancient times the Jews planted cypress trees above their graves; hence, cypress ([[1 Kings-06#v15|vv. 15b]], [[1 Kings-06#v34|34]]) signifies Christ’s humanity in His death, the crucified Jesus (cf. [[Genesis-06#v14|Gen. 6:14]] and [note 2](<Genesis-06.fn#Footnote 14.2 — gopher>)). Cedar trees grew on the mountains of Lebanon ([[Psalm-104#v16|Psa. 104:16]]); thus, cedar ([[1 Kings-06#v9|vv. 9]], [[1 Kings-06#v10|10b]], [[1 Kings-06#v15|15a]], [[1 Kings-06#v16|16]], [[1 Kings-06#v36|36]]) signifies Christ’s humanity in resurrection, the resurrected Christ (cf. [[Song-04#v8|S.S. 4:8]] and [note 2](<Song-04.fn#Footnote 8.2 — Lebanon>)). Olive oil typifies the Spirit of God; hence, olive wood ([[1 Kings-06#v23|vv. 23]], [[1 Kings-06#v31|31-33]]) signifies Christ’s humanity in the Spirit of God, the anointed Christ ([[Hebrews-01#v9|Heb. 1:9]]). In order to become materials for God’s building ([[1 Corinthians-03#v9|1 Cor. 3:9]], [[1 Corinthians-03#v12|12]]), we need to experience Christ in His death, His resurrection, and His Spirit ([[Philippians-03#v10|Phil. 3:10]]; [[Philippians-01#v19|1:19]]).
 
 ## Footnotes for verse 17
 
@@ -107,7 +107,7 @@ The different kinds of wood used in constructing the temple signify different as
 
 **Verse:** [[1 Kings-06#v17|1 Kings 6:17]]
 
-See note 5¹.
+See [note 5¹](<1 Kings-06.fn#Footnote 5.1 — temple>).
 
 ## Footnotes for verse 19
 
@@ -129,7 +129,7 @@ Gold signifies God’s divine nature, divinity ([[1 Kings-06#v20|vv. 20-22]]).
 
 **Verse:** [[1 Kings-06#v20|1 Kings 6:20]]
 
-The altar in [[1 Kings-06#v20|vv. 20-22]] is the incense altar ([[Exodus-30#v1|Exo. 30:1-10]] and notes). See note 41 in [[Hebrews-09|Heb. 9]].
+The altar in [[1 Kings-06#v20|vv. 20-22]] is the incense altar ([[Exodus-30#v1|Exo. 30:1-10]] and notes). See [note 4¹](<Hebrews-09.fn#Footnote 4.1 — Having>) in [[Hebrews-09|Heb. 9]].
 
 ## Footnotes for verse 21
 
@@ -145,7 +145,7 @@ Referring probably to the altar of the preceding verse.
 
 **Verse:** [[1 Kings-06#v23|1 Kings 6:23]]
 
-See note 15¹.
+See [note 15¹](<1 Kings-06.fn#Footnote 15.1 — cedar>).
 
 ## Footnotes for verse 29
 
@@ -153,7 +153,7 @@ See note 15¹.
 
 **Verse:** [[1 Kings-06#v29|1 Kings 6:29]]
 
-See note 18¹ in [[Ezekiel-41|Ezek. 41]].
+See [note 18¹](<Ezekiel-41.fn#Footnote 18.1 — cherubim>) in [[Ezekiel-41|Ezek. 41]].
 
 ## Footnotes for verse 36
 

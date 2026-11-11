@@ -23,4 +23,4 @@ Some MSS read, Amana.
 
 **Verse:** [[2 Kings-05#v14|2 Kings 5:14]]
 
-The Lord Jesus also healed lepers in His ministry ([[Matthew-08#v1|Matt. 8:1-3]]; [[Luke-17#v11|Luke 17:11-19]]). See note 262 in [[Luke-04|Luke 4]].
+The Lord Jesus also healed lepers in His ministry ([[Matthew-08#v1|Matt. 8:1-3]]; [[Luke-17#v11|Luke 17:11-19]]). See [note 26²](<Luke-04.fn#Footnote 26.2 — woman>) in [[Luke-04|Luke 4]].

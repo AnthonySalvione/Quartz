@@ -36,7 +36,7 @@ Son of man, prophesy and say, Thus says the Lord, Say: A sword, a sword is sharp
 
 ## v10
 
-It is sharpened to slaughter utterly, polished to flash like lightning. Or shall we rejoice, saying, The scepter of my son despises all other wood?
+It is sharpened to slaughter utterly, polished to flash like lightning. Or shall we rejoice, saying, The [[Ezekiel-21.fn#Footnote 10.1 — scepter|scepter]] of my son despises all other wood?
 
 ## v11
 
@@ -44,7 +44,7 @@ And it is given to be polished, that it may be wielded in the hand. The sword �
 
 ## v12
 
-Cry out and howl, son of man, for it will come against My people. It will come against all the princes of Israel; they are cast at the sword with My people; therefore strike your thigh.
+Cry out and howl, son of man, for it will come against My people. It will come against all the princes of Israel; they are cast at the sword with My people; therefore [[Ezekiel-21.fn#Footnote 12.1 — strike|strike]] your thigh.
 
 ## v13
 
@@ -56,7 +56,7 @@ You therefore, son of man, prophesy and clap your hands together; and let the sw
 
 ## v15
 
-In order that hearts may fail and that occasions of falling may multiply at all their gates, I have given the slaughtering sword. Ah! It has been made to flash like lightning; it is drawn for slaying.
+In order that hearts may fail and that occasions of falling may multiply at all their gates, I have given the [[Ezekiel-21.fn#Footnote 15.1 — slaughtering|slaughtering]] sword. Ah! It has been made to flash like lightning; it is drawn for slaying.
 
 ## v16
 
@@ -80,7 +80,7 @@ You shall appoint a way for the sword to come, either to Rabbah of the children 
 
 ## v21
 
-For the king of Babylon stands at the parting of the road, at the fork in the two roads, using divination; he shakes his arrows, he inquires of the teraphim, he observes the liver.
+For the king of Babylon stands at the parting of the road, at the fork in the two roads, using divination; he shakes his arrows, he inquires of the [[Ezekiel-21.fn#Footnote 21.1 — teraphim|teraphim]], he [[Ezekiel-21.fn#Footnote 21.2 — observes|observes]] the liver.
 
 ## v22
 
@@ -96,7 +96,7 @@ Therefore thus says the Lord Jehovah, Because you have made your iniquity to be 
 
 ## v25
 
-And you, profane, wicked prince of Israel, whose day has come at the time of the iniquity of the end,
+And you, profane, wicked prince of Israel, whose day has come at the time of the [[Ezekiel-21.fn#Footnote 25.1 — iniquity|iniquity]] of the end,
 
 ## v26
 
@@ -104,7 +104,7 @@ Thus says the Lord Jehovah, Remove the turban, and take off the crown; what is w
 
 ## v27
 
-Ruins, ruins, ruins will I make it; and this also will be no more, until He comes whose right it is; and I will give it to Him.
+Ruins, ruins, ruins will I make it; and this also will be no more, until [[Ezekiel-21.fn#Footnote 27.1 — He|He]] comes whose right it is; and I will give it to Him.
 
 ## v28
 

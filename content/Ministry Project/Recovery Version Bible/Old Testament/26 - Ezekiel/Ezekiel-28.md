@@ -4,7 +4,7 @@ The word of Jehovah came again to me, saying,
 
 ## v2
 
-Son of man, say to the prince of Tyre, Thus says the Lord Jehovah, Because your heart is lifted up, and you have said, I am a god — I sit in the seat of God in the midst of the seas; yet you are a man and not a god, although you set your heart as if it were the heart of God.
+Son of man, say to the prince of Tyre, Thus says the Lord Jehovah, Because your heart is lifted up, and you have said, I am [[Ezekiel-28.fn#Footnote 2.1 — a|a]] god — I sit in the seat of [[Ezekiel-28.fn#Footnote 2.2 — God|God]] in the midst of the seas; yet you are a man and not [[Ezekiel-28.fn#Footnote 2.1 — a|a]] god, although you set your heart as if it were the heart of God.
 
 ## v3
 
@@ -44,15 +44,15 @@ Moreover the word of Jehovah came to me, saying,
 
 ## v12
 
-Son of man, take up a lamentation for the king of Tyre, and say to him, Thus says the Lord Jehovah, O you who sealed up perfection, full of wisdom and perfect in beauty,
+Son of man, take up a lamentation for the [[Ezekiel-28.fn#Footnote 12.1 — king|king]] of Tyre, and say to him, Thus says the Lord Jehovah, O you who sealed up [[Ezekiel-28.fn#Footnote 12.2 — perfection|perfection]], full of wisdom and perfect in beauty,
 
 ## v13
 
-You were in Eden, the garden of God. Every precious stone was your covering, sardius, topaz, diamond, chrysolite, onyx, jasper, sapphire, carbuncle, and emerald, with gold. The workmanship of your tambourines and your pipes was prepared with you on the day that you were created.
+You were in [[Ezekiel-28.fn#Footnote 13.1 — Eden|Eden]], the garden of God. Every precious stone was your [[Ezekiel-28.fn#Footnote 13.2 — covering|covering]], sardius, topaz, diamond, [[Ezekiel-28.fn#Footnote 13.3 — chrysolite|chrysolite]], onyx, jasper, sapphire, [[Ezekiel-28.fn#Footnote 13.4 — carbuncle|carbuncle]], and emerald, with gold. The workmanship of your [[Ezekiel-28.fn#Footnote 13.5 — tambourines|tambourines]] and your [[Ezekiel-28.fn#Footnote 13.5 — tambourines|pipes]] was prepared with you on the day that you were created.
 
 ## v14
 
-You were the anointed cherub who covered the Ark; indeed I set you, so that you were upon the holy mountain of God; you walked up and down in the midst of the stones of fire.
+You were the [[Ezekiel-28.fn#Footnote 14.1 — anointed|anointed]] cherub who covered the [[Ezekiel-28.fn#Footnote 14.2 — Ark|Ark]]; indeed I set you, so that you were upon the holy [[Ezekiel-28.fn#Footnote 14.3 — mountain|mountain]] of God; you walked up and down in the midst of the [[Ezekiel-28.fn#Footnote 14.4 — stones|stones]] of fire.
 
 ## v15
 
@@ -60,15 +60,15 @@ You were perfect in your ways from the day that you were created, until unrighte
 
 ## v16
 
-By the abundance of your trading they filled your midst with violence, and you sinned. So I cast you out as profane from the mountain of God, and I destroyed you, O covering cherub, from the midst of the stones of fire.
+By the abundance of your [[Ezekiel-28.fn#Footnote 16.1 — trading|trading]] they filled your midst with violence, and you sinned. So I cast you out as profane from the mountain of God, and I destroyed you, O covering cherub, from the midst of the stones of fire.
 
 ## v17
 
-Your heart was lifted up because of your beauty; you corrupted your wisdom by reason of your brightness. I cast you to the ground; I presented you before kings that they may look at you.
+Your heart was [[Ezekiel-28.fn#Footnote 17.1 — lifted|lifted]] up because of your beauty; you corrupted your wisdom by reason of your brightness. I [[Ezekiel-28.fn#Footnote 17.2 — cast|cast]] you to the ground; I presented you before kings that they may look at you.
 
 ## v18
 
-By the multitude of your iniquities in the unrighteousness of your trading you have profaned your sanctuaries. Therefore I sent forth fire from your midst; it consumed you, and I reduced you to ashes upon the earth in the sight of all those who look at you.
+By the multitude of your iniquities in the unrighteousness of your trading you have profaned your [[Ezekiel-28.fn#Footnote 18.1 — sanctuaries|sanctuaries]]. Therefore I sent forth fire from your midst; it consumed you, and I reduced you to ashes upon the earth in the sight of all those who look at you.
 
 ## v19
 
@@ -80,7 +80,7 @@ And the word of Jehovah came to me, saying,
 
 ## v21
 
-Son of man, set your face toward Sidon, and prophesy against it,
+Son of man, set your face toward [[Ezekiel-28.fn#Footnote 21.1 — Sidon|Sidon]], and prophesy against it,
 
 ## v22
 

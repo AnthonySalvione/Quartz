@@ -8,7 +8,7 @@ And Israel, whom I have chosen.
 Thus says Jehovah your Maker /  
 And the One who formed you from the womb, who will help you, /  
 Do not fear, O Jacob, My servant, /  
-And Jeshurun whom I have chosen,
+And [[Isaiah-44.fn#Footnote 2.1 — Jeshurun|Jeshurun]] whom I have chosen,
 
 ## v3
 
@@ -48,7 +48,7 @@ And the things which will take place.
 
 Do not tremble and do not be afraid. /  
 Have I not related to you from that time and declared it? /  
-And you are My witnesses. Is there a God besides Me? /  
+And you are My [[Isaiah-44.fn#Footnote 8.1 — witnesses|witnesses]]. Is there a God besides Me? /  
 Or is there any other Rock? I do not know of any.
 
 ## v9
@@ -72,9 +72,9 @@ Let them be afraid and be put to shame together.
 
 ## v12
 
-The ironsmith sharpens a cutting tool, /  
+The ironsmith [[Isaiah-44.fn#Footnote 12.1 — sharpens|sharpens]] a cutting tool, /  
 And works over the coals, /  
-And forms the idol with hammers, /  
+And forms [[Isaiah-44.fn#Footnote 12.2 — the|the]] idol with hammers, /  
 And he works it with the strength of his arm. /  
 Yet he becomes hungry and has no strength; /  
 If he does not drink water, he faints.
@@ -144,7 +144,7 @@ Nor does he say, Is this not a lie in my right hand?
 ## v21
 
 Remember these things, O Jacob, /  
-And Israel, for you are My servant. /  
+And Israel, for you are My [[Isaiah-44.fn#Footnote 21.1 — servant|servant]]. /  
 I have formed you; you are My servant; /  
 O Israel, you will not be forgotten by Me.
 
@@ -161,7 +161,7 @@ Shout, O lower parts of the earth; /
 Break forth with singing, O mountains, /  
 The forest and every tree in it; /  
 For Jehovah has redeemed Jacob /  
-And is glorified in Israel.
+And is [[Isaiah-44.fn#Footnote 23.1 — glorified|glorified]] in Israel.
 
 ## v24
 
@@ -193,7 +193,7 @@ And I will dry up your rivers;
 
 ## v28
 
-Who says to Cyrus, He is My shepherd, /  
+Who says to Cyrus, He is My [[Isaiah-44.fn#Footnote 28.1 — shepherd|shepherd]], /  
 And he will fulfill all My desire, /  
 Even by saying of Jerusalem, She will be built, /  
 And of the temple, Her foundations will be laid.

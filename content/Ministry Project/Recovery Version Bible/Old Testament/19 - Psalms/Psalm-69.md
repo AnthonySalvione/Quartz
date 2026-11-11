@@ -1,6 +1,11 @@
+> *To the choir director: according to Shoshannim. Of David*
+
+> [!light] Note on Shoshannim:
+> See note on the superscription of [[Psalm-45|Psa. 45]].
+---
 ## v1
 
-Save me, O God; for the waters  
+[[Psalm-69.fn#Footnote 1.1 — Save|Save]] me, O God; for the waters  
 Threaten my life.
 
 ## v2
@@ -122,7 +127,7 @@ And for my thirst they gave me vinegar to drink.
 
 ## v22
 
-May their table become a snare before them  
+[[Psalm-69.fn#Footnote 22.1 — May|May]] their table become a snare before them  
 And a trap when they are at peace.
 
 ## v23

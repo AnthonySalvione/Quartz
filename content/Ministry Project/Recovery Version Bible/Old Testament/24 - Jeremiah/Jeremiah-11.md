@@ -12,7 +12,7 @@ And to the inhabitants of Jerusalem.
 
 And you shall say to them, Thus says Jehovah the God of Israel,  
 Cursed is the man  
-Who does not listen to the words of this covenant,
+Who does not listen to the words of this [[Jeremiah-11.fn#Footnote 3.1 — covenant|covenant]],
 
 ## v4
 
@@ -72,13 +72,13 @@ They have turned back to the iniquities of their forefathers,
 Who refused to listen to My words,  
 And they have gone after other gods to serve them.  
 The house of Israel and the house of Judah  
-Have broken My covenant  
+Have [[Jeremiah-11.fn#Footnote 10.1 — broken|broken]] My covenant  
 Which I made with their fathers.
 
 ## v11
 
 Therefore thus says Jehovah,  
-I am about to bring evil upon them,  
+I am about to bring [[Jeremiah-11.fn#Footnote 11.1 — evil|evil]] upon them,  
 From which they cannot escape;  
 And they will cry to Me,  
 But I will not listen to them.
@@ -153,7 +153,7 @@ That his name be remembered no longer.
 
 But, O Jehovah of hosts, who judges righteously,  
 Who tests the inward parts and the heart,  
-Let me see Your vengeance on them,  
+Let me see Your [[Jeremiah-11.fn#Footnote 20.1 — vengeance|vengeance]] on them,  
 For I have revealed my cause to You.
 
 ## v21

@@ -1,22 +1,22 @@
 ## v1
 
-And I, in the first year of Darius the Mede, stood up to support and strengthen him.
+And [[Daniel-11.fn#Footnote 1.1 — I|I]], in the first year of Darius the Mede, stood up to support and strengthen him.
 
 ## v2
 
-And now I will tell you the truth. There will yet arise three kings in Persia; then the fourth will gain great riches, more than all of them; and once he becomes strong because of his riches, he will stir up the whole empire against the realm of Javan.
+And now I will tell you the [[Daniel-11.fn#Footnote 2.1 — truth|truth]]. There will yet arise three kings in Persia; then the fourth will gain great riches, more than all of them; and once he becomes strong because of his riches, he will stir up the whole empire against the realm of [[Daniel-11.fn#Footnote 2.2 — Javan|Javan]].
 
 ## v3
 
-And a mighty king will arise there, and he will rule with great dominion and do as he pleases.
+And a [[Daniel-11.fn#Footnote 3.1 — mighty|mighty]] king will arise there, and he will rule with great dominion and do as he pleases.
 
 ## v4
 
-But once he arises, his kingdom will be broken and divided toward the four winds of heaven, but not to his posterity, nor according to his dominion with which he ruled; for his kingdom will be plucked up and given to others besides his descendants.
+But once he arises, his kingdom will be [[Daniel-11.fn#Footnote 4.1 — broken|broken]] and divided toward the four winds of heaven, but not to his posterity, nor according to his dominion with which he ruled; for his kingdom will be plucked up and given to others besides [[Daniel-11.fn#Footnote 4.2 — his|his]] descendants.
 
 ## v5
 
-And the king of the south will become strong, as well as one of his princes, who will grow in strength above him and have dominion; his dominion will be a great dominion.
+And the [[Daniel-11.fn#Footnote 5.1 — king|king]] of the south will become strong, as well as one of his princes, who will grow in strength above him and have dominion; his dominion will be a great dominion.
 
 ## v6
 
@@ -32,19 +32,19 @@ And also their gods with their cast images, with their precious vessels of silve
 
 ## v9
 
-And the king of the north will come to the kingdom of the king of the south, but he will return to his own land.
+And [[Daniel-11.fn#Footnote 9.1 — the|the]] king of the north will come to the kingdom of the king of the south, but he will return to his own land.
 
 ## v10
 
-But his sons will stir themselves up to war and will gather a multitude of great forces; and one will come unrelentingly and will overflow and pass through and will return and wage war, even up to the fortress of the king of the south.
+But his sons will stir themselves up to war and will gather a multitude of great forces; and one will come unrelentingly and will overflow and pass through and will return and wage war, even up to the fortress of [[Daniel-11.fn#Footnote 10.1 — the|the]] king of the south.
 
 ## v11
 
-And the king of the south will be enraged and will come forth to fight with him, with the king of the north. Then the king of the north will raise up a great multitude, but the multitude will be given into the hand of the king of the south.
+And the king of the south will be enraged and will come forth to fight with him, with the king of the north. Then [[Daniel-11.fn#Footnote 11.1 — the|the]] king of the north will raise up a great multitude, but the multitude will be given into the hand of [[Daniel-11.fn#Footnote 11.2 — the|the]] king of the south.
 
 ## v12
 
-When the multitude is carried away, the heart of the king of the south will be lifted up; and he will cast down tens of thousands, but he will not prevail.
+When the multitude is carried away, the heart of [[Daniel-11.fn#Footnote 12.1 — the|the]] king of the south will be lifted up; and he will cast down tens of thousands, but he will not prevail.
 
 ## v13
 
@@ -56,35 +56,35 @@ And in those times many will rise up against the king of the south; and the viol
 
 ## v15
 
-Then the king of the north will come and cast up a siege mound and capture the fortified city; and the forces of the south will not stand, nor his choice people, for there will be no strength to stand.
+Then the [[Daniel-11.fn#Footnote 15.1 — king|king]] of the north will come and cast up a siege mound and capture the fortified city; and the forces of the south will not stand, nor his choice people, for there will be no strength to stand.
 
 ## v16
 
-But he who comes against the king of the south will do as he pleases; and no one will stand before him. And he will stand in the beautiful land, and destruction will be in his hand.
+But he who comes against [[Daniel-11.fn#Footnote 16.1 — the|the]] king of the south will do as he pleases; and no one will stand before him. And he will stand in the [[Daniel-11.fn#Footnote 16.2 — beautiful|beautiful]] land, and destruction will be in his hand.
 
 ## v17
 
-And he will set his face to come with the strength of his whole kingdom, and with him there will be terms of peace that he will act upon. And he will give the king of the south a youthful daughter, to destroy it; yet she will not be able to stand for him, but will be of no use to him.
+And he will set his face to come with the strength of his whole kingdom, and with him there will be [[Daniel-11.fn#Footnote 17.1 — terms|terms]] of peace that he will act upon. And he will give [[Daniel-11.fn#Footnote 17.2 — the|the]] king of the south a youthful daughter, to destroy it; yet she will not be able to stand for him, but will be of no use to him.
 
 ## v18
 
-Then he will turn his face to the coastlands and will capture many. But a leader, for his own sake, will put an end to the reproach caused by him; indeed, he will turn his reproach back on him.
+Then he will turn his face to the [[Daniel-11.fn#Footnote 18.1 — coastlands|coastlands]] and will capture many. But a leader, for his own sake, will put an end to the reproach caused by him; indeed, he will turn his reproach back on him.
 
 ## v19
 
-Then the king of the north will turn his face to the fortresses of his own land, but he will stumble and fall and will not be found.
+Then [[Daniel-11.fn#Footnote 19.1 — the|the]] king of the north will turn his face to the fortresses of his own land, but he will stumble and fall and will not be found.
 
 ## v20
 
-Then there will arise in his place one who will cause an oppressor to pass through the splendor of the kingdom; yet within a few days he will be broken, but not while venting his anger nor pursuing battle.
+Then there will arise in his place one who will cause an oppressor to pass through the [[Daniel-11.fn#Footnote 20.1 — splendor|splendor]] of the kingdom; yet within a few days he will be broken, but not while venting his anger nor pursuing battle.
 
 ## v21
 
-Then there will arise in his place a despicable person, to whom the honor of a kingdom will not be given; but he will come in a time of security and will seize the kingdom by smooth and cunning words and actions.
+Then there will arise in his place a [[Daniel-11.fn#Footnote 21.1 — despicable|despicable]] person, to whom the honor of a kingdom will not be given; but he will come in a time of security and will seize the kingdom by smooth and cunning words and actions.
 
 ## v22
 
-And the overflowing forces will be flooded over before him and broken, even also the prince of the covenant.
+And the overflowing forces will be flooded over before him and broken, even also the [[Daniel-11.fn#Footnote 22.1 — prince|prince]] of the covenant.
 
 ## v23
 
@@ -108,7 +108,7 @@ And as for both of these kings, their hearts will be to do evil, and they will s
 
 ## v28
 
-Then the king of the north will return to his land with great riches; but his heart will be set against the holy covenant, and he will take action and will return to his land.
+Then [[Daniel-11.fn#Footnote 28.1 — the|the]] king of the north will return to his land with great riches; but his heart will be set against the holy covenant, and he will take action and will return to his land.
 
 ## v29
 
@@ -116,19 +116,19 @@ At the appointed time he will return and come against the south; but this latter
 
 ## v30
 
-For ships of Kittim will come against him; therefore he will be disheartened and will turn away; and he will be enraged at the holy covenant and will take action. When he turns away, he will focus his attention on those who forsake the holy covenant.
+For ships of [[Daniel-11.fn#Footnote 30.1 — Kittim|Kittim]] will come against him; therefore he will be disheartened and will turn away; and he will be enraged at the holy covenant and will take action. When he turns away, he will focus his attention on those who forsake the holy covenant.
 
 ## v31
 
-And forces from him will arise and profane the sanctuary, establishing the fortress and removing the daily sacrifice; and they will set up the abomination that desolates.
+And forces from him will arise and [[Daniel-11.fn#Footnote 31.1 — profane|profane]] the sanctuary, establishing the fortress and removing the daily sacrifice; and they will set up the [[Daniel-11.fn#Footnote 31.2 — abomination|abomination]] that desolates.
 
 ## v32
 
-And with his smooth words he will cause those who act wickedly toward the covenant to be profane. But the people who know their God will show strength and take action.
+And with his smooth words he will cause those who act wickedly toward the covenant to be profane. But the [[Daniel-11.fn#Footnote 32.1 — people|people]] who know their God will show strength and take action.
 
 ## v33
 
-And those with insight among the people will cause the many to understand; yet they will fall by sword and by flames, by captivity and by plundering for some days.
+And [[Daniel-11.fn#Footnote 33.1 — those|those]] with insight among the people will cause the many to understand; yet they will fall by sword and by flames, by captivity and by plundering for some days.
 
 ## v34
 
@@ -136,11 +136,11 @@ And when they fall, they will be helped with a little help; and many will join t
 
 ## v35
 
-And some of those with insight will fall, in order to refine the people and to purify and cleanse them, until the time of the end, for the end is still at the appointed time.
+And some of those with insight will fall, in order to refine [[Daniel-11.fn#Footnote 35.1 — the|the]] people and to purify and cleanse them, until the time of the end, for the end is still at the appointed time.
 
 ## v36
 
-And the king will do as he pleases; and he will exalt himself and magnify himself above every god, and against the God of gods he will speak extraordinary things; and he will prosper until the indignation is complete; for what has been determined will be done.
+And the king will do as he pleases; and he will [[Daniel-11.fn#Footnote 36.1 — exalt|exalt]] himself and magnify himself above every god, and against the God of gods he will speak extraordinary things; and he will prosper until the indignation is complete; for what has been determined will be done.
 
 ## v37
 
@@ -160,7 +160,7 @@ And at the time of the end the king of the south will push against him, and the 
 
 ## v41
 
-He will also enter the beautiful land, and many countries will fall; but these will slip away from his hand: Edom, Moab, and the foremost of the children of Ammon.
+He will also enter the [[Daniel-11.fn#Footnote 41.1 — beautiful|beautiful]] land, and many countries will fall; but these will slip away from his hand: Edom, Moab, and the foremost of the children of Ammon.
 
 ## v42
 
@@ -168,7 +168,7 @@ Then he will stretch forth his hand against the countries, and for the land of E
 
 ## v43
 
-And he will have control over the hidden stores of gold and silver and over all the precious things of the Egyptians; and the Libyans and Cushites will follow in his steps.
+And he will have control over the hidden stores of gold and silver and over all the precious things of the Egyptians; and the Libyans and [[Daniel-11.fn#Footnote 43.1 — Cushites|Cushites]] will follow in his steps.
 
 ## v44
 
@@ -176,4 +176,4 @@ But news from the east and from the north will trouble him, and he will go forth
 
 ## v45
 
-And he will pitch the tents of his palace between the sea and the beautiful holy mountain; but he will come to his end, and there will be no one to help him.
+And he will pitch the tents of his palace between the sea and the [[Daniel-11.fn#Footnote 45.1 — beautiful|beautiful]] holy mountain; but he will [[Daniel-11.fn#Footnote 45.2 — come|come]] to his end, and there will be no one to help him.

@@ -1,11 +1,16 @@
+> *To the choir director: Do not destroy. A Psalm of Asaph; a Song*
+
+> [!light] Note on Do:
+> See note on the superscription of [[Psalm-57|Psa. 57]].
+---
 ## v1
 
-We give thanks to You, O God; we give thanks,  
+[[Psalm-75.fn#Footnote 1.1 — We|We]] give thanks to You, O God; we give thanks,  
 For Your name is near; men tell of Your wondrous deeds.
 
 ## v2
 
-When I choose the appointed time,  
+When I choose the appointed [[Psalm-75.fn#Footnote 2.1 — time|time]],  
 It is I who judge with equity.
 
 ## v3
@@ -26,7 +31,7 @@ Do not speak arrogantly with a haughty neck.
 ## v6
 
 For neither from the east nor from the west,  
-And neither from the south, does exaltation come;
+And neither from the [[Psalm-75.fn#Footnote 6.1 — south|south]], does exaltation come;
 
 ## v7
 

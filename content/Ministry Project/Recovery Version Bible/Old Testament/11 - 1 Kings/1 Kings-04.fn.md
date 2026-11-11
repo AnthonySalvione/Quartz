@@ -23,7 +23,7 @@ Or, in Aloth.
 
 **Verse:** [[1 Kings-04#v21|1 Kings 4:21]]
 
-I.e., the Euphrates. So also in [[1 Kings-04#v24|v. 24]]. Solomon’s dominion extended from the great river Euphrates to the land of the Philistines (at the seashore of the Mediterranean) and to the border of Egypt ([[2 Chronicles-09#v26|2 Chron. 9:26]]) as the fulfillment of the promise of God to His elect Israel ([[Genesis-15#v18|Gen. 15:18]]; [[Exodus-23#v31|Exo. 23:31]]; [[Deuteronomy-11#v24|Deut. 11:24]]). The ultimate fulfillment of this promise will be in the millennium, at the restoration of Israel, after the second coming of Christ (see note 181 in [[Genesis-15|Gen. 15]]).
+I.e., the Euphrates. So also in [[1 Kings-04#v24|v. 24]]. Solomon’s dominion extended from the great river Euphrates to the land of the Philistines (at the seashore of the Mediterranean) and to the border of Egypt ([[2 Chronicles-09#v26|2 Chron. 9:26]]) as the fulfillment of the promise of God to His elect Israel ([[Genesis-15#v18|Gen. 15:18]]; [[Exodus-23#v31|Exo. 23:31]]; [[Deuteronomy-11#v24|Deut. 11:24]]). The ultimate fulfillment of this promise will be in the millennium, at the restoration of Israel, after the second coming of Christ (see [note 18¹](<Genesis-15.fn#Footnote 18.1 — river>) in [[Genesis-15|Gen. 15]]).
 
 ## Footnotes for verse 22
 

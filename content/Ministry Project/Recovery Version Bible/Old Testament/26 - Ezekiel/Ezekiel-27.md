@@ -25,7 +25,7 @@ They have taken a cedar from Lebanon to make a mast for you.
 ## v6
 
 They have made your oars of the oaks of Bashan; /  
-They have made your boards of cypresses inlaid with ivory from the coasts of Kittim.
+They have made your boards of cypresses inlaid with ivory from the coasts of [[Ezekiel-27.fn#Footnote 6.1 — Kittim|Kittim]].
 
 ## v7
 
@@ -49,7 +49,7 @@ They hung shields and helmets on you; they endowed you with your splendor.
 
 ## v11
 
-The men of Arvad and Helek were on your walls all around, and valiant men were in your towers; they hung their shields on your walls all around; they perfected your beauty.
+The men of Arvad [[Ezekiel-27.fn#Footnote 11.1 — and|and]] Helek were on your walls all around, and valiant men were in your towers; they hung their shields on your walls all around; they perfected your beauty.
 
 ## v12
 

@@ -61,7 +61,7 @@ Plural in Hebrew. The unintentional sin of the whole assembly of Israel signifie
 
 **Verse:** [[Numbers-15#v25|Numbers 15:25]]
 
-See note 11 in [[Leviticus-16|Lev. 16]]. God’s forgiveness is based on the redemption of Christ accomplished for propitiation, without which God has no ground to forgive man ([[Hebrews-09#v22|Heb. 9:22]]) even though He has a heart to do so. Christ’s propitiation affords God the way to fulfill the desire of His forgiving heart. If man takes Christ’s redemptive death as his standing and asks God to forgive him, God must do it based on His righteousness, not on His mercy ([[1 John-01#v9|1 John 1:9]]). This is according to God’s governmental administration.
+See [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Lev. 16]]. God’s forgiveness is based on the redemption of Christ accomplished for propitiation, without which God has no ground to forgive man ([[Hebrews-09#v22|Heb. 9:22]]) even though He has a heart to do so. Christ’s propitiation affords God the way to fulfill the desire of His forgiving heart. If man takes Christ’s redemptive death as his standing and asks God to forgive him, God must do it based on His righteousness, not on His mercy ([[1 John-01#v9|1 John 1:9]]). This is according to God’s governmental administration.
 
 ## Footnotes for verse 30
 
@@ -77,7 +77,7 @@ To do things with a high hand is to do as one wishes without caring for others. 
 
 **Verse:** [[Numbers-15#v35|Numbers 15:35]]
 
-Breaking the Sabbath signifies denying God and all that He has done for us (see notes 21 in [[Genesis-02|Gen. 2]] and 81 in [[Exodus-20|Exo. 20]]). This results in spiritual death.
+Breaking the Sabbath signifies denying God and all that He has done for us (see notes [2¹](<Genesis-02.fn#Footnote 2.1 — rested>) in [[Genesis-02|Gen. 2]] and [8¹](<Exodus-20.fn#Footnote 8.1 — Sabbath>) in [[Exodus-20|Exo. 20]]). This results in spiritual death.
 
 ## Footnotes for verse 38
 
@@ -85,7 +85,7 @@ Breaking the Sabbath signifies denying God and all that He has done for us (see 
 
 **Verse:** [[Numbers-15#v38|Numbers 15:38]]
 
-See note 20⁴ in [[Matthew-09|Matt. 9]].
+See [note 20⁴](<Matthew-09.fn#Footnote 20.4 — fringe>) in [[Matthew-09|Matt. 9]].
 
 ### Footnote 38.2 — cord
 

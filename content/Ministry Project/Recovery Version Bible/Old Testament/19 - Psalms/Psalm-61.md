@@ -1,3 +1,6 @@
+> *To the choir director: on the stringed instruments. Of David*
+
+---
 ## v1
 
 Hear, O God, my cry;  
@@ -33,9 +36,9 @@ May his years be like generation after generation.
 ## v7
 
 May he dwell forever before God;  
-Appoint lovingkindness and faithfulness, that they may preserve him.
+Appoint lovingkindness and [[Psalm-61.fn#Footnote 7.1 — faithfulness|faithfulness]], that they may preserve him.
 
 ## v8
 
 So I will sing psalms to Your name forever,  
-As I repay my vows day by day.
+As I [[Psalm-61.fn#Footnote 8.1 — repay|repay]] my vows day by day.

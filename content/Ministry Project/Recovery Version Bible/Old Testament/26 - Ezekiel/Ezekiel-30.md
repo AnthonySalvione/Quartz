@@ -22,7 +22,7 @@ And her foundations will be broken down.
 
 ## v5
 
-Ethiopia, Put, Lud, all Arabia, Libya, and the children of the land of the covenant will fall by the sword with them.
+Ethiopia, Put, Lud, all Arabia, [[Ezekiel-30.fn#Footnote 5.1 — Libya|Libya]], and the children of the land of the covenant will fall by the sword with them.
 
 ## v6
 

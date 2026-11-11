@@ -21,7 +21,7 @@ Fill it with choice bones.
 ## v5
 
 Take the choice of the flock, /  
-And also put a pile of wood under it; /  
+And also put a pile of [[Ezekiel-24.fn#Footnote 5.1 — wood|wood]] under it; /  
 Bring it to a vigorous boil; /  
 Indeed let its bones be boiled in it.
 
@@ -59,7 +59,7 @@ Because of your lewd filthiness — because I tried to cleanse you, but you did 
 
 ## v14
 
-I, Jehovah, have spoken. The time is coming, and I will do it; I will not refrain, nor will I spare, nor will I repent. According to your ways and according to your doings I will judge you, declares the Lord Jehovah.
+I, Jehovah, have spoken. The time is coming, and I will do it; I will not refrain, nor will I spare, nor will I repent. According to your ways and according to your doings [[Ezekiel-24.fn#Footnote 14.1 — I|I]] will judge you, declares the Lord Jehovah.
 
 ## v15
 

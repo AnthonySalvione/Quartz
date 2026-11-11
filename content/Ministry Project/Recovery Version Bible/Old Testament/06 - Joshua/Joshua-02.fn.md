@@ -15,7 +15,7 @@ chapter_num: 2
 
 **Verse:** [[Joshua-02#v1|Joshua 2:1]]
 
-[[Joshua-01|Joshua 1]] of Joshua concerns the taking of the land, which typifies the gaining of Christ, and [[Joshua-02|Joshua 2]] concerns the gaining of the proper persons to bring forth Christ that Christ might be spread and increased ([[John-03#v30|John 3:30]]). God provided Joshua for the gaining of the land, and He provided a Gentile female, Rahab the harlot, for the spreading of Christ. Rahab was a condemned Canaanite qualified to be destroyed, but she became one of the main ancestors of Christ. By turning to God and His people and by marrying Salmon ([[Matthew-01#v5|Matt. 1:5a]]), the son of a leader of Judah, a leading tribe of Israel ([[1 Chronicles-02#v10|1 Chron. 2:10-11]]), and probably one of the two spies, she became associated with Christ in His incarnation for the fulfillment of God’s eternal economy. This is a strong sign that the history recorded in Joshua is in line with God’s eternal economy concerning Christ. See note 51 in [[Matthew-01|Matt. 1]].
+[[Joshua-01|Joshua 1]] of Joshua concerns the taking of the land, which typifies the gaining of Christ, and [[Joshua-02|Joshua 2]] concerns the gaining of the proper persons to bring forth Christ that Christ might be spread and increased ([[John-03#v30|John 3:30]]). God provided Joshua for the gaining of the land, and He provided a Gentile female, Rahab the harlot, for the spreading of Christ. Rahab was a condemned Canaanite qualified to be destroyed, but she became one of the main ancestors of Christ. By turning to God and His people and by marrying Salmon ([[Matthew-01#v5|Matt. 1:5a]]), the son of a leader of Judah, a leading tribe of Israel ([[1 Chronicles-02#v10|1 Chron. 2:10-11]]), and probably one of the two spies, she became associated with Christ in His incarnation for the fulfillment of God’s eternal economy. This is a strong sign that the history recorded in Joshua is in line with God’s eternal economy concerning Christ. See [note 5¹](<Matthew-01.fn#Footnote 5.1 — Rahab>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 8
 
@@ -55,7 +55,7 @@ Lit., instead of yours for death. The expression is spoken as an oath (cf. [[Jos
 
 **Verse:** [[Joshua-02#v18|Joshua 2:18]]
 
-The line of scarlet thread typifies the blood of Christ, by which the believers are redeemed ([[1 Peter-01#v18|1 Pet. 1:18-19]]), and its being displayed in the open typifies an open confession of the redeeming blood of Christ. Rahab made such an open confession and believed that by this sign she and her household would be delivered. This sign for the salvation of Rahab and her household ([[Joshua-06#v17|6:17]], [[Joshua-06#v22|22-23]], [[Joshua-06#v25|25]]) indicates God’s household salvation to the Gentile sinners. Whereas God’s salvation is for the individual believer, the complete unit of His salvation is the household ([[Acts-16#v30|Acts 16:30-31]] and note 311).
+The line of scarlet thread typifies the blood of Christ, by which the believers are redeemed ([[1 Peter-01#v18|1 Pet. 1:18-19]]), and its being displayed in the open typifies an open confession of the redeeming blood of Christ. Rahab made such an open confession and believed that by this sign she and her household would be delivered. This sign for the salvation of Rahab and her household ([[Joshua-06#v17|6:17]], [[Joshua-06#v22|22-23]], [[Joshua-06#v25|25]]) indicates God’s household salvation to the Gentile sinners. Whereas God’s salvation is for the individual believer, the complete unit of His salvation is the household ([[Acts-16#v30|Acts 16:30-31]] and [[Acts-16.fn#Footnote 31.1 — household|note 31¹]]).
 
 ## Footnotes for verse 24
 
@@ -63,4 +63,4 @@ The line of scarlet thread typifies the blood of Christ, by which the believers 
 
 **Verse:** [[Joshua-02#v24|Joshua 2:24]]
 
-The report of the spies was a right word in faith, yet Israel still needed to take the land by faith in God, sacrificing themselves for God’s interest that they might share in what God had gained for the accomplishing of His eternal economy. Cf. note 111 in [[Numbers-14|Num. 14]].
+The report of the spies was a right word in faith, yet Israel still needed to take the land by faith in God, sacrificing themselves for God’s interest that they might share in what God had gained for the accomplishing of His eternal economy. Cf. [note 11¹](<Numbers-14.fn#Footnote 11.1 — How>) in [[Numbers-14|Num. 14]].

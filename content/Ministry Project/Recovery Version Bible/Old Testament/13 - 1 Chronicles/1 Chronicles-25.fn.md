@@ -15,7 +15,7 @@ chapter_num: 25
 
 **Verse:** [[1 Chronicles-25#v1|1 Chronicles 25:1]]
 
-See note 331, par. 2, in [[Numbers-16|Num. 16]].
+See [note 33¹](<Numbers-16.fn#Footnote 33.1 — descended>), par. 2, in [[Numbers-16|Num. 16]].
 
 ## Footnotes for verse 3
 

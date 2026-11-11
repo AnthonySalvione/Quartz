@@ -1,12 +1,12 @@
 ## v1
 
 Thus says Jehovah,  
-I will stir up against Babylon and against the inhabitants of Leb-kamai /  
+I will stir up against Babylon and against the inhabitants of [[Jeremiah-51.fn#Footnote 1.1 — Leb-kamai|Leb-kamai]] /  
 A destroying wind.
 
 ## v2
 
-And I will send strangers against Babylon, and they will winnow her, /  
+And I will send [[Jeremiah-51.fn#Footnote 2.1 — strangers|strangers]] against Babylon, and they will winnow her, /  
 And they will empty her land /  
 When they come against her from every side /  
 In the evil day.
@@ -27,12 +27,12 @@ And pierced through in her streets.
 
 For neither Israel nor Judah is forsaken /  
 By his God, by Jehovah of hosts; /  
-But their land is full of guilt /  
+But [[Jeremiah-51.fn#Footnote 5.1 — their|their]] land is full of guilt /  
 Against the Holy One of Israel.
 
 ## v6
 
-Flee from the midst of Babylon, /  
+[[Jeremiah-51.fn#Footnote 6.1 — Flee|Flee]] from the midst of Babylon, /  
 And let each man save his life; /  
 Do not be cut off in her iniquity; /  
 For this is a time of vengeance to Jehovah; /  
@@ -70,7 +70,7 @@ The work of Jehovah our God.
 Polish the arrows; take up the shields. /  
 Jehovah has stirred up the spirit of the kings of the Medes, /  
 Because His purpose is against Babylon, to destroy her; /  
-For this is the vengeance of Jehovah, /  
+For this is the [[Jeremiah-51.fn#Footnote 11.1 — vengeance|vengeance]] of Jehovah, /  
 The vengeance for His temple.
 
 ## v12
@@ -186,8 +186,8 @@ Bring up the horses like terrifying locusts.
 
 Prepare the nations against her, /  
 The kings of the Medes, /  
-Their governors and all their officials, /  
-And all the land of their dominion.
+[[Jeremiah-51.fn#Footnote 28.1 — Their|Their]] governors and all [[Jeremiah-51.fn#Footnote 28.1 — Their|their]] officials, /  
+And all the land of [[Jeremiah-51.fn#Footnote 28.2 — their|their]] dominion.
 
 ## v29
 
@@ -292,14 +292,14 @@ Through which no person passes.
 
 ## v44
 
-And I will punish Bel in Babylon /  
+And I will punish [[Jeremiah-51.fn#Footnote 44.1 — Bel|Bel]] in Babylon /  
 And bring what he has swallowed out of his mouth; /  
 And the nations will not stream unto him any longer; /  
 Even the wall of Babylon will fall down.
 
 ## v45
 
-Come out from the midst of her, My people, /  
+[[Jeremiah-51.fn#Footnote 45.1 — Come|Come]] out from the midst of her, My people, /  
 And let each man save his life /  
 From the burning anger of Jehovah.
 
@@ -368,7 +368,7 @@ And great destruction from the land of the Chaldeans!
 
 For Jehovah is destroying Babylon, /  
 And He will cause the loud voice to perish from her. /  
-And their waves roar like many waters; /  
+And [[Jeremiah-51.fn#Footnote 55.1 — their|their]] waves roar like many waters; /  
 The noise of their voice is raised.
 
 ## v56

@@ -15,7 +15,7 @@ chapter_num: 9
 
 **Verse:** [[Genesis-09#v1|Genesis 9:1]]
 
-This brought “resurrected” mankind back to God’s original purpose, which was that man express God and represent Him (see notes 263 through 265 in [[Genesis-01|Genesis 1]]). In the church life in Christ’s resurrection we have been brought back to the beginning for the expression and representation of God.
+This brought “resurrected” mankind back to God’s original purpose, which was that man express God and represent Him (see notes [[Genesis-01.fn#Footnote 26.3 — image|26³]] through [[Genesis-01.fn#Footnote 26.5 — dominion|26⁵]] in [[Genesis-01|Genesis 1]]). In the church life in Christ’s resurrection we have been brought back to the beginning for the expression and representation of God.
 
 ## Footnotes for verse 3
 
@@ -23,7 +23,7 @@ This brought “resurrected” mankind back to God’s original purpose, which w
 
 **Verse:** [[Genesis-09#v3|Genesis 9:3]]
 
-Before the fall God ordained that man should eat only the plant life, the nourishing, generating life ([[Genesis-01#v29|1:29]]). After the fall man needs to eat not only the plant life but also the animal life, which involves the shedding of blood and implies the need for redemption ([[Hebrews-09#v22|Heb. 9:22]]). See notes 512 in [[John-06|John 6]] and 81 in [[Exodus-12|Exo. 12]].
+Before the fall God ordained that man should eat only the plant life, the nourishing, generating life ([[Genesis-01#v29|1:29]]). After the fall man needs to eat not only the plant life but also the animal life, which involves the shedding of blood and implies the need for redemption ([[Hebrews-09#v22|Heb. 9:22]]). See notes [51²](<John-06.fn#Footnote 51.2 — flesh>) in [[John-06|John 6]] and [8¹](<Exodus-12.fn#Footnote 8.1 — flesh>) in [[Exodus-12|Exo. 12]].
 
 ## Footnotes for verse 6
 
@@ -31,15 +31,15 @@ Before the fall God ordained that man should eat only the plant life, the nouris
 
 **Verse:** [[Genesis-09#v6|Genesis 9:6]]
 
-This was the beginning of human government. In the garden, before the fall, man was directly under the rule of God. After the fall, man was under the rule of his own conscience ([[Genesis-03#v7|3:7-10]]). However, the rule of human conscience did not work well, and man fell further into wickedness ([[Genesis-06#v5|6:5]], [[Genesis-06#v11|11]]). Thus, after the flood, God authorized man to rule over other men, and human government began ([[Romans-13#v1|Rom. 13:1]] and notes 3 and 4). 
+This was the beginning of human government. In the garden, before the fall, man was directly under the rule of God. After the fall, man was under the rule of his own conscience ([[Genesis-03#v7|3:7-10]]). However, the rule of human conscience did not work well, and man fell further into wickedness ([[Genesis-06#v5|6:5]], [[Genesis-06#v11|11]]). Thus, after the flood, God authorized man to rule over other men, and human government began ([[Romans-13#v1|Rom. 13:1]] and notes [3](<Romans-13.fn#Footnote 1.3 — from>) and [4](<Romans-13.fn#Footnote 1.4 — ordained>)). 
 
-At that time Noah was the deputy authority under God. This was a shadow of the kingdom of God, the reality of which is the church life in God’s New Testament economy, and the manifestation of which will be the kingdom in the millennium (see notes 34 in [[Matthew-05|Matt. 5]] and 281 in [[Hebrews-12|Heb. 12]]).
+At that time Noah was the deputy authority under God. This was a shadow of the kingdom of God, the reality of which is the church life in God’s New Testament economy, and the manifestation of which will be the kingdom in the millennium (see notes [3⁴](<Matthew-05.fn#Footnote 3.4 — kingdom>) in [[Matthew-05|Matt. 5]] and [28¹](<Hebrews-12.fn#Footnote 28.1 — kingdom>) in [[Hebrews-12|Heb. 12]]).
 
 ### Footnote 6.2 — image
 
 **Verse:** [[Genesis-09#v6|Genesis 9:6]]
 
-See note 26³ in [[Genesis-01|Genesis 1]].
+See [note 26³](<Genesis-01.fn#Footnote 26.3 — image>) in [[Genesis-01|Genesis 1]].
 
 ## Footnotes for verse 9
 
@@ -47,7 +47,7 @@ See note 26³ in [[Genesis-01|Genesis 1]].
 
 **Verse:** [[Genesis-09#v9|Genesis 9:9]]
 
-In order to assure mankind that there would never again be a flood to destroy them and the earth, God made a covenant with Noah, with his seed, and with every living animal ([[Genesis-09#v9|vv. 9-17]]). See notes 221 in [[Genesis-08|Genesis 8]] and 61 in [[Revelation-04|Rev. 4]].
+In order to assure mankind that there would never again be a flood to destroy them and the earth, God made a covenant with Noah, with his seed, and with every living animal ([[Genesis-09#v9|vv. 9-17]]). See notes [22¹](<Genesis-08.fn#Footnote 22.1 — Seed>) in [[Genesis-08|Genesis 8]] and [6¹](<Revelation-04.fn#Footnote 6.1 — glassy>) in [[Revelation-04|Rev. 4]].
 
 ## Footnotes for verse 13
 
@@ -55,7 +55,7 @@ In order to assure mankind that there would never again be a flood to destroy th
 
 **Verse:** [[Genesis-09#v13|Genesis 9:13]]
 
-The rainbow signifies God’s faithfulness in keeping His covenant. God Himself is faithfulness ([[1 Corinthians-01#v9|1 Cor. 1:9]]; [[1 John-01#v9|1 John 1:9]]). He is faithful to His word, and His word is His covenant. The rainbow is seen again at the end of the Bible ([[Revelation-04#v3|Rev. 4:3]]), indicating that God’s faithfulness will remain forever. See note 33 in [[Revelation-04|Rev. 4]], note 191, par. 2, in [[Revelation-21|Rev. 21]], and note 281 in [[Ezekiel-01|Ezek. 1]].
+The rainbow signifies God’s faithfulness in keeping His covenant. God Himself is faithfulness ([[1 Corinthians-01#v9|1 Cor. 1:9]]; [[1 John-01#v9|1 John 1:9]]). He is faithful to His word, and His word is His covenant. The rainbow is seen again at the end of the Bible ([[Revelation-04#v3|Rev. 4:3]]), indicating that God’s faithfulness will remain forever. See [note 3³](<Revelation-04.fn#Footnote 3.3 — rainbow>) in [[Revelation-04|Rev. 4]], note [19¹](<Revelation-21.fn#Footnote 19.1 — foundations>), par. 2, in [[Revelation-21|Rev. 21]], and note [28¹](<Ezekiel-01.fn#Footnote 28.1 — rainbow>) in [[Ezekiel-01|Ezek. 1]].
 
 ## Footnotes for verse 21
 
@@ -87,4 +87,4 @@ Shem, Noah’s first son, was the forefather of the Hebrews, the Jews (Abraham w
 
 **Verse:** [[Genesis-09#v27|Genesis 9:27]]
 
-A tent is a place where people may dwell, rest, and have peace and enjoyment. Japheth’s dwelling in the tents of Shem indicates that if Japheth and his descendants would be blessed and enjoy God as their rest, peace, enjoyment, and salvation, they must believe in the God of the Jews (cf. [[John-04#v22|John 4:22]]). When the Lord Jesus came as a seed of Abraham and a descendant of Shem, He became the tent, the tabernacle ([[John-01#v14|John 1:14]]), which will consummate in the New Jerusalem as the ultimate tent of Shem, the tabernacle of God with men for eternity, in which numerous Old Testament and New Testament saints from all the nations will dwell to participate in the eternal blessing of the eternal life ([[Revelation-21#v3|Rev. 21:3]] and note).
+A tent is a place where people may dwell, rest, and have peace and enjoyment. Japheth’s dwelling in the tents of Shem indicates that if Japheth and his descendants would be blessed and enjoy God as their rest, peace, enjoyment, and salvation, they must believe in the God of the Jews (cf. [[John-04#v22|John 4:22]]). When the Lord Jesus came as a seed of Abraham and a descendant of Shem, He became the tent, the tabernacle ([[John-01#v14|John 1:14]]), which will consummate in the New Jerusalem as the ultimate tent of Shem, the tabernacle of God with men for eternity, in which numerous Old Testament and New Testament saints from all the nations will dwell to participate in the eternal blessing of the eternal life ([[Revelation-21#v3|Rev. 21:3]] and [note](<Revelation-21.fn#Footnote 3.1 — tabernacle>)).

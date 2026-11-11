@@ -86,7 +86,7 @@ And drink the wine of violence.
 
 ## v18
 
-But the path of the righteous is like the light of dawn,  
+But the path of the righteous is like the light of [[Proverbs-04.fn#Footnote 18.1 — dawn|dawn]],  
 Which shines brighter and brighter until the full day.
 
 ## v19

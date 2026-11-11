@@ -23,7 +23,7 @@ After Moses expressed his discouragement and bewilderment to the Lord ([[Exodus-
 
 **Verse:** [[Exodus-06#v3|Exodus 6:3]]
 
-Heb. El Shaddai. See note 12 in [[Genesis-17|Gen. 17]].
+Heb. El Shaddai. See [note 1²](<Genesis-17.fn#Footnote 1.2 — All-sufficient>) in [[Genesis-17|Gen. 17]].
 
 ### Footnote 3.2 — Jehovah
 

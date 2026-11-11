@@ -65,7 +65,7 @@ Give me a king and some princes?
 
 ## v11
 
-I gave you a king in My anger  
+I gave you a [[Hosea-13.fn#Footnote 11.1 — king|king]] in My anger  
 And took him away in My overflowing wrath.
 
 ## v12
@@ -82,11 +82,11 @@ The children break forth.
 
 ## v14
 
-From the power of Sheol I will ransom them;  
+From the power of [[Hosea-13.fn#Footnote 14.1 — Sheol|Sheol]] I will ransom them;  
 From death I will redeem them.  
 Where are your plagues, O death?  
-Where is your destruction, O Sheol?  
-Repentance will be hidden from My eyes.
+Where is your destruction, O [[Hosea-13.fn#Footnote 14.1 — Sheol|Sheol]]?  
+[[Hosea-13.fn#Footnote 14.2 — Repentance|Repentance]] will be hidden from My eyes.
 
 ## v15
 

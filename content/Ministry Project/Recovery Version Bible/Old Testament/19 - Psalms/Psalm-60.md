@@ -1,3 +1,11 @@
+> *To the choir director: according to the lily of the testimony. A Michtam of David, for instruction, when he struggled with Aram-naharaim and with Aram-zobah, and Joab returned and struck twelve thousand of Edom in the Valley of Salt*
+
+> [!light] Note on lily:
+> Perhaps a reference to a melody common at the time.
+
+> [!light] Note on Michtam:
+> See note on the superscription of [[Psalm-16|Psa. 16]].
+---
 ## v1
 
 O God, You have rejected us; You have broken out upon us;  
@@ -21,11 +29,11 @@ To be displayed because of the truth. Selah
 ## v5
 
 That Your beloved ones may be delivered,  
-Save with Your right hand, and answer us.
+Save with Your right hand, and answer [[Psalm-60.fn#Footnote 5.1 — us|us]].
 
 ## v6
 
-God has spoken in His holiness: I will exult;  
+God has spoken in His [[Psalm-60.fn#Footnote 6.1 — holiness|holiness]]: I will exult;  
 I will divide Shechem  
 And measure out the Valley of Succoth.
 

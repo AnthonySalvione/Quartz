@@ -15,7 +15,7 @@ chapter_num: 24
 
 **Verse:** [[1 Samuel-24#v6|1 Samuel 24:6]]
 
-David feared God and did not dare to overthrow the divine order arranged by God. In God’s kingdom there is a divine order of authority. Saul was not a self-appointed king; he was the king appointed and anointed by God ([[1 Samuel-10#v1|10:1]]). Saul was therefore the divine authority, and David feared God in this. David kept the God-ordained order of authority among God’s elect. By so doing, David laid a good foundation for himself to be the king of God’s elect in the coming days. If he had rebelled against Saul, he would have been to the people an example of rebellion against the God-ordained, appointed king. Cf. notes 251 in [[Genesis-09|Gen. 9]] and 93 in Jude.
+David feared God and did not dare to overthrow the divine order arranged by God. In God’s kingdom there is a divine order of authority. Saul was not a self-appointed king; he was the king appointed and anointed by God ([[1 Samuel-10#v1|10:1]]). Saul was therefore the divine authority, and David feared God in this. David kept the God-ordained order of authority among God’s elect. By so doing, David laid a good foundation for himself to be the king of God’s elect in the coming days. If he had rebelled against Saul, he would have been to the people an example of rebellion against the God-ordained, appointed king. Cf. notes [25¹](<Genesis-09.fn#Footnote 25.1 — Cursed>) in [[Genesis-09|Gen. 9]] and [[Jude-01.fn#Footnote 9.3 — did|9³]] in [[Jude-01|Jude]].
 
 ## Footnotes for verse 10
 

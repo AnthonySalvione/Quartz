@@ -61,7 +61,7 @@ For [[Numbers-24#v8|vv. 8-9a]], see notes on [[Numbers-23#v22|23:22]].
 
 **Verse:** [[Numbers-24#v9|Numbers 24:9]]
 
-Instead of cursing God’s people, Balaam, speaking on behalf of God, altogether blessed them. To bless a person is to speak well of him, to speak positively concerning him ([[Ephesians-01#v3|Eph. 1:3]] and notes 1 and 4). The more we praise the Lord for His people and speak well of them in faith, the more we put ourselves under God’s blessing. Those who speak positively concerning the church receive the blessing. Those who speak negatively put themselves under a curse.
+Instead of cursing God’s people, Balaam, speaking on behalf of God, altogether blessed them. To bless a person is to speak well of him, to speak positively concerning him ([[Ephesians-01#v3|Eph. 1:3]] and notes [1](<Ephesians-01.fn#Footnote 3.1 — Blessed>) and [4](<Ephesians-01.fn#Footnote 3.4 — blessed>)). The more we praise the Lord for His people and speak well of them in faith, the more we put ourselves under God’s blessing. Those who speak positively concerning the church receive the blessing. Those who speak negatively put themselves under a curse.
 
 ## Footnotes for verse 17
 
@@ -77,7 +77,7 @@ Lit., march forth, tread.
 
 Both the Star and the Scepter refer to Christ. The Star is the heavenly Christ, and the Scepter is Christ as the One with power and authority. The greatest blessing to the children of Israel is Christ. As the Star and the Scepter, Christ will be the almighty One with all-inclusive power and authority. 
 
-Balaam’s first three parables concern the church, which is sanctified, perfect, and beautiful (see note 51), whereas his fourth parable contains a prophecy concerning Christ. The church is sanctified, perfect, and beautiful when it is full of Christ. Christ is the content, the constituent, and every part of the church as the new man ([[Colossians-03#v10|Col. 3:10-11]]).
+Balaam’s first three parables concern the church, which is sanctified, perfect, and beautiful (see [note 5¹](<Numbers-24.fn#Footnote 5.1 — fair>)), whereas his fourth parable contains a prophecy concerning Christ. The church is sanctified, perfect, and beautiful when it is full of Christ. Christ is the content, the constituent, and every part of the church as the new man ([[Colossians-03#v10|Col. 3:10-11]]).
 
 ## Footnotes for verse 18
 

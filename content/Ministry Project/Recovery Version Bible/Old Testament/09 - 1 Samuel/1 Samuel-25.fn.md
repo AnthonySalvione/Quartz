@@ -15,7 +15,7 @@ chapter_num: 25
 
 **Verse:** [[1 Samuel-25#v1|1 Samuel 25:1]]
 
-Samuel died a peaceful death after he had properly and fully enjoyed his portion in the God-promised good land. Because he was faithful in all his statuses and offices (see note 31, par. 2, in [[1 Samuel-07|1 Samuel 7]]), Samuel enjoyed the good land, a type of Christ (see note 71 in [[Deuteronomy-08|Deut. 8]]), in every way and in every sense throughout his entire life. His enjoyment of the land exceeded that of everyone else in the Old Testament. 
+Samuel died a peaceful death after he had properly and fully enjoyed his portion in the God-promised good land. Because he was faithful in all his statuses and offices (see [note 3¹](<1 Samuel-07.fn#Footnote 3.1 — spoke>), par. 2, in [[1 Samuel-07|1 Samuel 7]]), Samuel enjoyed the good land, a type of Christ (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]), in every way and in every sense throughout his entire life. His enjoyment of the land exceeded that of everyone else in the Old Testament. 
 
 Samuel became a priest, a prophet, and a judge to usher in the Davidic kingdom for the accomplishing of God’s economy on the earth. He therefore established the kingdom of God and wrote all the regulations concerning the kingdom of God ([[1 Samuel-10#v25|10:25]]). Although Samuel was disappointed with Saul’s kingship ([[1 Samuel-15#v35|15:35]]), he died with the encouraging expectation of the Davidic kingdom, a type of the kingdom of God. This was a comfort to him.
 
@@ -25,7 +25,7 @@ Samuel became a priest, a prophet, and a judge to usher in the Davidic kingdom f
 
 **Verse:** [[1 Samuel-25#v21|1 Samuel 25:21]]
 
-David’s word here indicates that he was offended by Nabal. In this matter David did not pass the test. He bore the bigger cross under the persecution by Saul (see note 21, par. 2, in [[1 Samuel-19|1 Samuel 19]]), but in this small cross involving Nabal he failed. It is often through the small crosses that the flesh is exposed.
+David’s word here indicates that he was offended by Nabal. In this matter David did not pass the test. He bore the bigger cross under the persecution by Saul (see [note 2¹](<1 Samuel-19.fn#Footnote 2.1 — Jonathan>), par. 2, in [[1 Samuel-19|1 Samuel 19]]), but in this small cross involving Nabal he failed. It is often through the small crosses that the flesh is exposed.
 
 ## Footnotes for verse 25
 
@@ -41,4 +41,4 @@ Meaning fool.
 
 **Verse:** [[1 Samuel-25#v39|1 Samuel 25:39]]
 
-In David’s taking Abigail and Ahinoam ([[1 Samuel-25#v43|v. 43]]) as his wives, David’s weakness in the matter of sex was manifested. The root of his later failure in murdering Uriah and taking Bath-sheba ([[2 Samuel-11|2 Sam. 11]]) was manifested here. See note 41 in [[2 Samuel-11|2 Sam. 11]].
+In David’s taking Abigail and Ahinoam ([[1 Samuel-25#v43|v. 43]]) as his wives, David’s weakness in the matter of sex was manifested. The root of his later failure in murdering Uriah and taking Bath-sheba ([[2 Samuel-11|2 Sam. 11]]) was manifested here. See [note 4¹](<2 Samuel-11.fn#Footnote 4.1 — lay>) in [[2 Samuel-11|2 Sam. 11]].

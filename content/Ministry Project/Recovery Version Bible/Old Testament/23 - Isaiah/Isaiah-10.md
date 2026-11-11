@@ -12,10 +12,10 @@ And they may plunder orphans.
 
 ## v3
 
-And what will you do for the day of visitation,  
+And what will you do for the [[Isaiah-10.fn#Footnote 3.1 — day|day]] of visitation,  
 And for the devastation that comes from afar?  
 To whom will you flee for help?  
-And where will you leave your glory,
+And where will you leave your [[Isaiah-10.fn#Footnote 3.2 — glory|glory]],
 
 ## v4
 
@@ -26,8 +26,8 @@ His hand is still outstretched.
 
 ## v5
 
-Woe to Assyria, the rod of My anger!  
-The staff which is in their hand is My indignation.
+Woe to Assyria, the [[Isaiah-10.fn#Footnote 5.1 — rod|rod]] of My anger!  
+The [[Isaiah-10.fn#Footnote 5.1 — rod|staff]] which is in their hand is My indignation.
 
 ## v6
 
@@ -126,7 +126,7 @@ That a young boy could record them.
 ## v20
 
 Then in that day the remnant of Israel  
-And those of the house of Jacob who have escaped  
+And those of the house of Jacob who have [[Isaiah-10.fn#Footnote 20.1 — escaped|escaped]]  
 Will no longer rely upon him who strikes them,  
 But they will rely upon Jehovah, the Holy One of Israel, in truth.
 
@@ -138,7 +138,7 @@ To the mighty God.
 
 ## v22
 
-For though your people, O Israel, are like the sand of the sea,  
+For though your people, O Israel, are like the [[Isaiah-10.fn#Footnote 22.1 — sand|sand]] of the sea,  
 Only a remnant among them will return.  
 Annihilation is strictly decided,  
 Overflowing with righteousness.
@@ -178,7 +178,7 @@ And the yoke will be broken due to the fatness.
 
 ## v28
 
-He comes against Aiath;  
+[[Isaiah-10.fn#Footnote 28.1 — He|He]] comes against Aiath;  
 He passes through Migron;  
 At Michmash he deposits his gear.
 
@@ -203,7 +203,7 @@ The inhabitants of Gebim seek refuge.
 ## v32
 
 So it is this very day when he halts at Nob.  
-He swings his hand over the mountain of the daughter of Zion,  
+He swings his hand over the mountain of the [[Isaiah-10.fn#Footnote 32.1 — daughter|daughter]] of Zion,  
 Over the hill of Jerusalem.
 
 ## v33

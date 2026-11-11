@@ -29,7 +29,7 @@ To be cut off from one’s people ([[Leviticus-17#v4|vv. 4]], [[Leviticus-17#v9|
 
 **Verse:** [[Leviticus-17#v5|Leviticus 17:5]]
 
-The expiation in [[Leviticus-16|Leviticus 16]] involved four of the five basic offerings: the sin offering, the trespass offering (implied in the sin offering—[[Leviticus-05#v6|5:6]]), the burnt offering, and the meal offering. The issue of these offerings is the peace offering, with the result that God’s people enjoy peace with God and with one another. See note 372 in [[Leviticus-07|Leviticus 7]].
+The expiation in [[Leviticus-16|Leviticus 16]] involved four of the five basic offerings: the sin offering, the trespass offering (implied in the sin offering—[[Leviticus-05#v6|5:6]]), the burnt offering, and the meal offering. The issue of these offerings is the peace offering, with the result that God’s people enjoy peace with God and with one another. See [note 37²](<Leviticus-07.fn#Footnote 37.2 — peace>) in [[Leviticus-07|Leviticus 7]].
 
 ## Footnotes for verse 6
 
@@ -51,7 +51,7 @@ No longer sacrificing to goat demons signifies no longer having fellowship with 
 
 **Verse:** [[Leviticus-17#v7|Leviticus 17:7]]
 
-The word prostitute here indicates that for an Israelite (a believer) to abuse the sacrifices (Christ) by offering them in the place of his choice (outside the church) was to make himself a prostitute. This is a matter of spiritual prostitution, of spiritual fornication. See note 41.
+The word prostitute here indicates that for an Israelite (a believer) to abuse the sacrifices (Christ) by offering them in the place of his choice (outside the church) was to make himself a prostitute. This is a matter of spiritual prostitution, of spiritual fornication. See [note 4¹](<Leviticus-17.fn#Footnote 4.1 — entrance>).
 
 ## Footnotes for verse 10
 
@@ -59,7 +59,7 @@ The word prostitute here indicates that for an Israelite (a believer) to abuse t
 
 **Verse:** [[Leviticus-17#v10|Leviticus 17:10]]
 
-On not eating blood ([[Leviticus-17#v10|vv. 10]], [[Leviticus-17#v12|12]]), see note 171 in [[Leviticus-03|Leviticus 3]].
+On not eating blood ([[Leviticus-17#v10|vv. 10]], [[Leviticus-17#v12|12]]), see [note 17¹](<Leviticus-03.fn#Footnote 17.1 — fat>) in [[Leviticus-03|Leviticus 3]].
 
 ## Footnotes for verse 13
 
@@ -97,7 +97,7 @@ The blood of that which is torn by beasts signifies the blood of one who is mart
 
 This signifies that the one who takes any blood other than the blood of the Lord Jesus should deal with his former behavior and with what he was in the past concerning religion and should purge himself. Otherwise, he will be condemned. 
 
-To eat different bloods is equivalent to forming different religions based on beliefs in different persons. The one blood ordained by God is the blood of Jesus Christ shed on the cross ([[John-06#v53|John 6:53-55]]; [[1 Corinthians-10#v16|1 Cor. 10:16a]], [[1 Corinthians-10#v21|21a]]), and the one belief is the belief in the Christ who died on the cross for us (see note 53 in [[Romans-01|Rom. 1]]).
+To eat different bloods is equivalent to forming different religions based on beliefs in different persons. The one blood ordained by God is the blood of Jesus Christ shed on the cross ([[John-06#v53|John 6:53-55]]; [[1 Corinthians-10#v16|1 Cor. 10:16a]], [[1 Corinthians-10#v21|21a]]), and the one belief is the belief in the Christ who died on the cross for us (see [note 5³](<Romans-01.fn#Footnote 5.3 — obedience>) in [[Romans-01|Rom. 1]]).
 
 ### Footnote 15.4 — evening
 

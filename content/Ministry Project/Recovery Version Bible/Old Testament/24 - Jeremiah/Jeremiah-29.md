@@ -36,7 +36,7 @@ For they prophesy to you falsely in My name; and I have not sent them, declares 
 
 ## v10
 
-For thus says Jehovah, When seventy years are fulfilled for Babylon, I will visit you and establish My good word to you, to bring you back to this place.
+For thus says Jehovah, When [[Jeremiah-29.fn#Footnote 10.1 — seventy|seventy]] years are fulfilled for Babylon, I will visit you and establish My good word to you, to bring you back to this place.
 
 ## v11
 
@@ -44,7 +44,7 @@ For I know the thoughts that I think about you, declares Jehovah, thoughts of pe
 
 ## v12
 
-Then you will call upon Me and come and pray to Me, and I will listen to you;
+Then you will [[Jeremiah-29.fn#Footnote 12.1 — call|call]] upon Me and come and pray to Me, and I will listen to you;
 
 ## v13
 

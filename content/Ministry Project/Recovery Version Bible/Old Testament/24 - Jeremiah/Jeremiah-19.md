@@ -42,8 +42,8 @@ Nor did it come up in My heart.
 ## v6
 
 Therefore indeed, days are coming, declares Jehovah,  
-When this place will no longer be called Topheth,  
-Or the valley of the son of Hinnom,  
+When this place will no longer be called [[Jeremiah-19.fn#Footnote 6.1 — Topheth|Topheth]],  
+Or the valley of the son of [[Jeremiah-19.fn#Footnote 6.1 — Topheth|Hinnom]],  
 But the valley of slaughter.
 
 ## v7

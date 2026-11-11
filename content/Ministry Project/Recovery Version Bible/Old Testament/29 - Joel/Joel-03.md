@@ -5,9 +5,9 @@ When I turn the captivity of Judah and Jerusalem,
 
 ## v2
 
-I will gather all the nations  
-And will bring them down to the valley of Jehoshaphat;  
-And I will enter into judgment with them there  
+I will [[Joel-03.fn#Footnote 2.1 — gather|gather]] all the nations  
+And will bring them down to the valley of [[Joel-03.fn#Footnote 2.2 — Jehoshaphat|Jehoshaphat]];  
+And I will enter into [[Joel-03.fn#Footnote 2.3 — judgment|judgment]] with them there  
 Because of My people and My inheritance Israel,  
 Whom they have scattered among the nations.  
 And they have divided My land
@@ -34,7 +34,7 @@ And have brought My fine precious things into your temples,
 
 ## v6
 
-And have sold to the children of the Javanim  
+And have sold to the children of the [[Joel-03.fn#Footnote 6.1 — Javanim|Javanim]]  
 The children of Judah and the children of Jerusalem,  
 In order to remove them  
 Far from their borders;
@@ -73,7 +73,7 @@ I am mighty.
 Hurry and come,  
 All you surrounding nations,  
 And be gathered.  
-There cause Your mighty ones to descend, O Jehovah!
+There cause Your [[Joel-03.fn#Footnote 11.1 — mighty|mighty]] ones to descend, O Jehovah!
 
 ## v12
 
@@ -108,8 +108,8 @@ And the stars withdraw their shining.
 And Jehovah will roar from Zion,  
 And from Jerusalem He will utter His voice,  
 And the heavens and the earth will shake.  
-But Jehovah will be a shelter to His people  
-And a stronghold to the children of Israel.
+But Jehovah will be a [[Joel-03.fn#Footnote 16.1 — shelter|shelter]] to His people  
+And a [[Joel-03.fn#Footnote 16.1 — shelter|stronghold]] to the children of Israel.
 
 ## v17
 
@@ -121,16 +121,16 @@ And strangers will pass through her no longer.
 ## v18
 
 And in that day  
-The mountains will drop down fresh wine,  
+[[Joel-03.fn#Footnote 18.1 — The|The]] mountains will drop down fresh wine,  
 And the hills will flow with milk;  
 And all the waterways of Judah  
 Will flow with water,  
-And a fountain will go forth from the house of Jehovah,  
+And a [[Joel-03.fn#Footnote 18.2 — fountain|fountain]] will go forth from the house of Jehovah,  
 And it will water the valley of Shittim.
 
 ## v19
 
-Egypt will be a desolation,  
+[[Joel-03.fn#Footnote 19.1 — Egypt|Egypt]] will be a desolation,  
 And Edom will be a desolate wilderness,  
 Because of the violence against the children of Judah,  
 In that they have shed innocent blood in their land.

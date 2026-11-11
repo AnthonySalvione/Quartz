@@ -1,7 +1,12 @@
+> *To the choir director. A Psalm of David, when Nathan the prophet came to him, after he had gone in to Bath-sheba*
+
+> [!light] Note on Nathan:
+> [[2 Samuel-12#v1|2 Sam. 12:1-13]] This psalm was composed after David’s great sin in murdering Uriah and robbing him of his wife and after he was rebuked by the prophet Nathan ([[2 Samuel-11#v1|2 Sam. 11:1]]—[[2 Samuel-12#v14|12:14]]).
+---
 ## v1
 
-Be gracious to me, O God, according to Your lovingkindness;  
-According to the greatness of Your compassions blot out my transgressions.
+[[Psalm-51.fn#Footnote 1.1 — Be|Be]] gracious to me, O God, according to Your lovingkindness;  
+According to the greatness of Your compassions [[Psalm-51.fn#Footnote 1.2 — blot|blot]] out my transgressions.
 
 ## v2
 
@@ -22,17 +27,17 @@ You are clear when You judge.
 
 ## v5
 
-Behold, I was brought forth in iniquity,  
+Behold, I was [[Psalm-51.fn#Footnote 5.1 — brought|brought]] forth in iniquity,  
 And in sin did my mother conceive me.
 
 ## v6
 
-Behold, You delight in truth in the inward parts;  
-And in the hidden part You would make known wisdom to me.
+Behold, You delight in truth in the [[Psalm-51.fn#Footnote 6.1 — inward|inward]] parts;  
+And in the [[Psalm-51.fn#Footnote 6.1 — inward|hidden]] part You would make known wisdom to me.
 
 ## v7
 
-Purge my sin with hyssop, and I will be clean;  
+Purge my sin with [[Psalm-51.fn#Footnote 7.1 — hyssop|hyssop]], and I will be clean;  
 Wash me, and I will be whiter than snow.
 
 ## v8
@@ -47,13 +52,13 @@ And blot out all my iniquities.
 
 ## v10
 
-Create in me a clean heart, O God,  
-And renew a steadfast spirit within me.
+Create in me a [[Psalm-51.fn#Footnote 10.1 — clean|clean]] heart, O God,  
+And [[Psalm-51.fn#Footnote 10.2 — renew|renew]] a steadfast spirit within me.
 
 ## v11
 
-Do not cast me from Your presence,  
-And do not take the Spirit of Your holiness away from me.
+Do not cast me from Your [[Psalm-51.fn#Footnote 11.1 — presence|presence]],  
+And do not take the [[Psalm-51.fn#Footnote 11.2 — Spirit|Spirit]] of Your holiness away from me.
 
 ## v12
 
@@ -88,7 +93,7 @@ A broken and a contrite heart, O God, You will not despise.
 
 ## v18
 
-Do good in Your good pleasure unto Zion;  
+Do [[Psalm-51.fn#Footnote 18.1 — good|good]] in Your good pleasure unto Zion;  
 Build the walls of Jerusalem.
 
 ## v19

@@ -64,7 +64,7 @@ And at the end of seven days the word of Jehovah came to me, saying,
 
 ## v17
 
-Son of man, I have appointed you as a watchman to the house of Israel, and you will hear the word from My mouth and will give them warnings from Me.
+Son of man, I have appointed you as a [[Ezekiel-03.fn#Footnote 17.1 — watchman|watchman]] to the house of Israel, and you will hear the word from My mouth and will give them warnings from Me.
 
 ## v18
 
@@ -72,7 +72,7 @@ When I say to a wicked one, You shall surely die, and you do not warn him nor sp
 
 ## v19
 
-Yet if you warn the wicked one and he does not turn from his wickedness nor from his wicked way, he will die for his iniquity and you have delivered your soul.
+Yet if you warn the wicked one and he does not turn from his wickedness nor from his wicked way, he will die for his iniquity and you have [[Ezekiel-03.fn#Footnote 19.1 — delivered|delivered]] your soul.
 
 ## v20
 

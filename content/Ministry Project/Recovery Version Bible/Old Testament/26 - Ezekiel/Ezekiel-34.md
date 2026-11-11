@@ -40,7 +40,7 @@ Thus says the Lord Jehovah, Indeed I am against the shepherds, and I will requir
 
 ## v11
 
-For thus says the Lord Jehovah, I Myself, even I, will search for My sheep and seek them out.
+For thus says the Lord Jehovah, [[Ezekiel-34.fn#Footnote 11.1 — I|I]] Myself, even I, will search for My sheep and seek them out.
 
 ## v12
 
@@ -48,11 +48,11 @@ As a shepherd seeks out his flock on the day when he is among his sheep which ar
 
 ## v13
 
-And I will bring them out from the peoples and gather them from the countries and bring them into their own land, and I will feed them upon the mountains of Israel by the streams and in all the inhabited places of the land.
+And I will [[Ezekiel-34.fn#Footnote 13.1 — bring|bring]] them out from the peoples and gather them from the countries and bring them into their own land, and I will feed them upon the mountains of Israel by the [[Ezekiel-34.fn#Footnote 13.2 — streams|streams]] and in all the inhabited places of the land.
 
 ## v14
 
-I will feed them with good pasture, and their dwelling place will be upon the mountains of the heights of Israel; there they will lie down in a good dwelling place, and on rich pasture they will feed upon the mountains of Israel.
+I will feed them with good pasture, and their dwelling place will be upon the mountains of the heights of Israel; there they will [[Ezekiel-34.fn#Footnote 14.1 — lie|lie]] down in a good dwelling place, and on rich pasture they will feed upon the mountains of Israel.
 
 ## v15
 
@@ -64,7 +64,7 @@ I will seek the lost one and bring back the one that was driven away and bind up
 
 ## v17
 
-And as for you, O My flock, Thus says the Lord Jehovah, I will judge between one sheep and another, between the rams and the male goats.
+And as for you, O My flock, Thus says the Lord Jehovah, I will [[Ezekiel-34.fn#Footnote 17.1 — judge|judge]] between one sheep and another, between the rams and the male goats.
 
 ## v18
 
@@ -88,19 +88,19 @@ I will rescue My flock, and they will no longer be prey; and I will judge betwee
 
 ## v23
 
-And I will set up over them one Shepherd, My Servant David, and He will feed them; He will feed them, and He will be their Shepherd.
+And I will set up over them one Shepherd, My Servant [[Ezekiel-34.fn#Footnote 23.1 — David|David]], and He will feed them; He will feed them, and He will be their Shepherd.
 
 ## v24
 
-And I, Jehovah, will be their God, and My Servant David will be a Prince among them. I, Jehovah, have spoken.
+And I, Jehovah, will be their God, and My Servant David will be a [[Ezekiel-34.fn#Footnote 24.1 — Prince|Prince]] among them. I, Jehovah, have spoken.
 
 ## v25
 
-And I will make with them a covenant of peace and banish evil beasts from the land, so that they will dwell securely in the wilderness and sleep in the woods.
+And I will make with them a [[Ezekiel-34.fn#Footnote 25.1 — covenant|covenant]] of peace and banish evil beasts from the land, so that they will dwell securely in the wilderness and sleep in the woods.
 
 ## v26
 
-And I will make them and the places around My hill a blessing, and I will cause the showers to come down in their season; there will be showers of blessing.
+And I will make them and the places around My hill a [[Ezekiel-34.fn#Footnote 26.1 — blessing|blessing]], and I will cause the showers to come down in their season; there will be showers of [[Ezekiel-34.fn#Footnote 26.1 — blessing|blessing]].
 
 ## v27
 
@@ -116,7 +116,7 @@ And I will raise up for them a planting place of renown, and they will no longer
 
 ## v30
 
-Thus they will know that I, Jehovah their God, am with them, and that they, the house of Israel, are My people, declares the Lord Jehovah.
+Thus they will know that I, Jehovah their God, am [[Ezekiel-34.fn#Footnote 30.1 — with|with]] them, and that they, the house of Israel, are My people, declares the Lord Jehovah.
 
 ## v31
 

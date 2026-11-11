@@ -15,7 +15,7 @@ chapter_num: 9
 
 **Verse:** [[1 Kings-09#v1|1 Kings 9:1]]
 
-See note 341 in [[1 Kings-04|1 Kings 4]]. [[1 Kings-09|1 Kings 9]] and 10 portray the highest peak of Solomon’s glory among the nations. Solomon was glorified in the kingdom of Israel with the splendor of that kingdom. This is a prefigure of Christ in the millennium.
+See [note 34¹](<1 Kings-04.fn#Footnote 34.1 — came>) in [[1 Kings-04|1 Kings 4]]. [[1 Kings-09|1 Kings 9]] and 10 portray the highest peak of Solomon’s glory among the nations. Solomon was glorified in the kingdom of Israel with the splendor of that kingdom. This is a prefigure of Christ in the millennium.
 
 ## Footnotes for verse 8
 

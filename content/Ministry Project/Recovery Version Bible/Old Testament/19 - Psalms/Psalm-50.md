@@ -1,3 +1,6 @@
+> *A Psalm of Asaph*
+
+---
 ## v1
 
 The Mighty One, God Jehovah,  
@@ -6,8 +9,8 @@ From the rising of the sun to its setting.
 
 ## v2
 
-Out of Zion, the perfection of beauty,  
-God shines forth.
+Out of [[Psalm-50.fn#Footnote 2.1 — Zion|Zion]], the perfection of beauty,  
+God [[Psalm-50.fn#Footnote 2.2 — shines|shines]] forth.
 
 ## v3
 
@@ -23,7 +26,7 @@ And to the earth that He may judge His people:
 ## v5
 
 Gather My saints to Me,  
-Those who have made a covenant with Me by sacrifice.
+Those who have made a [[Psalm-50.fn#Footnote 5.1 — covenant|covenant]] with Me by sacrifice.
 
 ## v6
 
@@ -33,7 +36,7 @@ For God Himself is Judge. Selah
 ## v7
 
 Hear, O My people, and I will speak;  
-O Israel, and I will testify against you:  
+O Israel, and I will testify [[Psalm-50.fn#Footnote 7.1 — against|against]] you:  
 I am God, your God.
 
 ## v8
@@ -68,12 +71,12 @@ Or drink the blood of goats?
 
 ## v14
 
-Offer to God a sacrifice of thanksgiving,  
+Offer to God a sacrifice of [[Psalm-50.fn#Footnote 14.1 — thanksgiving|thanksgiving]],  
 And repay your vows to the Most High;
 
 ## v15
 
-And call upon Me in the day of trouble:  
+And [[Psalm-50.fn#Footnote 15.1 — call|call]] upon Me in the day of trouble:  
 I will deliver you, and you will glorify Me.
 
 ## v16

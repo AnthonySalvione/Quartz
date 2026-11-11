@@ -63,7 +63,7 @@ God is the God not of people’s flesh but of their spirit (cf. [[Hebrews-12#v9|
 
 **Verse:** [[Numbers-16#v30|Numbers 16:30]]
 
-See note 23¹ in [[Matthew-11|Matt. 11]].
+See [note 23¹](<Matthew-11.fn#Footnote 23.1 — Hades>) in [[Matthew-11|Matt. 11]].
 
 ## Footnotes for verse 33
 
@@ -89,7 +89,7 @@ God’s judgment of these 250 men signifies the judgment of the cross on all of 
 
 **Verse:** [[Numbers-16#v38|Numbers 16:38]]
 
-See note 2² in [[Exodus-27|Exo. 27]].
+See [note 2²](<Exodus-27.fn#Footnote 2.2 — bronze>) in [[Exodus-27|Exo. 27]].
 
 ## Footnotes for verse 41
 
@@ -97,7 +97,7 @@ See note 2² in [[Exodus-27|Exo. 27]].
 
 **Verse:** [[Numbers-16#v41|Numbers 16:41]]
 
-The murmuring of the people against Moses and Aaron proves that their rebellious nature had not been subdued. See note 121 in [[Numbers-17|Numbers 17]].
+The murmuring of the people against Moses and Aaron proves that their rebellious nature had not been subdued. See [note 12¹](<Numbers-17.fn#Footnote 12.1 — die>) in [[Numbers-17|Numbers 17]].
 
 ## Footnotes for verse 46
 
@@ -105,4 +105,4 @@ The murmuring of the people against Moses and Aaron proves that their rebellious
 
 **Verse:** [[Numbers-16#v46|Numbers 16:46]]
 
-See note 1¹ in [[Leviticus-16|Lev. 16]].
+See [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Lev. 16]].

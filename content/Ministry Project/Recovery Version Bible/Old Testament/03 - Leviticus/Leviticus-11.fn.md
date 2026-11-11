@@ -15,7 +15,7 @@ chapter_num: 11
 
 **Verse:** [[Leviticus-11#v1|Leviticus 11:1]]
 
-The section of this book from [[Leviticus-11|Leviticus 11—27]] concerns the living of God’s people, a living that is holy, clean, and full of rejoicing. See note 11 in [[Leviticus-01|Leviticus 1]].
+The section of this book from [[Leviticus-11|Leviticus 11—27]] concerns the living of God’s people, a living that is holy, clean, and full of rejoicing. See [note 1¹](<Leviticus-01.fn#Footnote 1.1 — Then>) in [[Leviticus-01|Leviticus 1]].
 
 ## Footnotes for verse 2
 
@@ -31,7 +31,7 @@ To eat is to contact things outside of us and to receive them into us, with the 
 
 **Verse:** [[Leviticus-11#v3|Leviticus 11:3]]
 
-Lit., divides the hoof, that is, splits the split of its hoofs (cf. [[Leviticus-11#v7|vv. 7]], [[Leviticus-11#v26|26]]). Animals that divide the hoof and chew the cud ([[Leviticus-11#v3|v. 3]]; cf. [[Leviticus-11#v4|vv. 4-8]], [[Leviticus-11#v26|26-28]]) signify persons who have discernment in their activities ([[Philippians-01#v9|Phil. 1:9-10]]) and who receive the word of God with much reconsideration (see note 151 in [[Psalm-119|Psa. 119]]).
+Lit., divides the hoof, that is, splits the split of its hoofs (cf. [[Leviticus-11#v7|vv. 7]], [[Leviticus-11#v26|26]]). Animals that divide the hoof and chew the cud ([[Leviticus-11#v3|v. 3]]; cf. [[Leviticus-11#v4|vv. 4-8]], [[Leviticus-11#v26|26-28]]) signify persons who have discernment in their activities ([[Philippians-01#v9|Phil. 1:9-10]]) and who receive the word of God with much reconsideration (see [note 15¹](<Psalm-119.fn#Footnote 15.1 — muse>) in [[Psalm-119|Psa. 119]]).
 
 ## Footnotes for verse 9
 
@@ -47,7 +47,7 @@ In the Bible the sea signifies the fallen, corrupted world ([[Daniel-07#v3|Dan. 
 
 **Verse:** [[Leviticus-11#v13|Leviticus 11:13]]
 
-Birds that have wings for flying and that eat seeds of life as their food supply signify persons who can live and move in a life that is away from and above the world and who take things of life as their life supply. The unclean birds mentioned in [[Leviticus-11#v13|vv. 13-19]], which do not feed on seeds but feed on carcasses, signify persons who feed on the things of death. See note 71 in [[Genesis-08|Gen. 8]].
+Birds that have wings for flying and that eat seeds of life as their food supply signify persons who can live and move in a life that is away from and above the world and who take things of life as their life supply. The unclean birds mentioned in [[Leviticus-11#v13|vv. 13-19]], which do not feed on seeds but feed on carcasses, signify persons who feed on the things of death. See [note 7¹](<Genesis-08.fn#Footnote 7.1 — raven>) in [[Genesis-08|Gen. 8]].
 
 ## Footnotes for verse 20
 
@@ -79,7 +79,7 @@ A person defiled by the carcass of an animal had to wash his clothes ([[Leviticu
 
 **Verse:** [[Leviticus-11#v29|Leviticus 11:29]]
 
-Or, crawling things that crawl. So also in [[Leviticus-11#v41|vv. 41-43]] (cf. [[Leviticus-11#v31|vv. 31]], [[Leviticus-11#v44|44]], [[Leviticus-11#v46|46]]). All the creatures that crawl on the earth were unclean ([[Leviticus-11#v41|vv. 41-44]]). Creatures that go on their stomach or on all fours or have many feet ([[Leviticus-11#v42|v. 42]]) signify Satan with all the evil spirits and demons, persons who are filled with Satan, who contact evil spirits and demons, and persons who live in the world and cleave to the world, being unable to sever themselves from the world (cf. [[Genesis-03#v14|Gen. 3:14]]; [[Revelation-12#v9|Rev. 12:9]]; [[Luke-10#v19|Luke 10:19]] and note 2).
+Or, crawling things that crawl. So also in [[Leviticus-11#v41|vv. 41-43]] (cf. [[Leviticus-11#v31|vv. 31]], [[Leviticus-11#v44|44]], [[Leviticus-11#v46|46]]). All the creatures that crawl on the earth were unclean ([[Leviticus-11#v41|vv. 41-44]]). Creatures that go on their stomach or on all fours or have many feet ([[Leviticus-11#v42|v. 42]]) signify Satan with all the evil spirits and demons, persons who are filled with Satan, who contact evil spirits and demons, and persons who live in the world and cleave to the world, being unable to sever themselves from the world (cf. [[Genesis-03#v14|Gen. 3:14]]; [[Revelation-12#v9|Rev. 12:9]]; [[Luke-10#v19|Luke 10:19]] and [note 2](<Luke-10.fn#Footnote 19.2 — serpents>)).
 
 ## Footnotes for verse 31
 
@@ -87,7 +87,7 @@ Or, crawling things that crawl. So also in [[Leviticus-11#v41|vv. 41-43]] (cf. [
 
 **Verse:** [[Leviticus-11#v31|Leviticus 11:31]]
 
-In this chapter the word carcass (or carcasses) is used thirteen times, and dead (or dies) is used three times. All dead things are unclean ([[Leviticus-11#v8|vv. 8]], [[Leviticus-11#v11|11]], [[Leviticus-11#v24|24]], [[Leviticus-11#v27|27]], [[Leviticus-11#v31|31-40]]). Uncleanness, therefore, is synonymous with death. The mentioning of death in relation to diet indicates that our diet, our eating, is a matter of life and death. Life is of the tree of life, and death is of the tree of the knowledge of good and evil ([[Genesis-02#v9|Gen. 2:9]], 17 and notes). Death is abominable to God. Therefore, in order to live a holy life, we need to abstain from death, i.e., spiritual death.
+In this chapter the word carcass (or carcasses) is used thirteen times, and dead (or dies) is used three times. All dead things are unclean ([[Leviticus-11#v8|vv. 8]], [[Leviticus-11#v11|11]], [[Leviticus-11#v24|24]], [[Leviticus-11#v27|27]], [[Leviticus-11#v31|31-40]]). Uncleanness, therefore, is synonymous with death. The mentioning of death in relation to diet indicates that our diet, our eating, is a matter of life and death. Life is of the tree of life, and death is of the tree of the knowledge of good and evil ([[Genesis-02#v9|Gen. 2:9]], [[Genesis-02#v17|17]] and notes). Death is abominable to God. Therefore, in order to live a holy life, we need to abstain from death, i.e., spiritual death.
 
 ### Footnote 31.2 — until
 
@@ -133,7 +133,7 @@ A spring or a cistern collecting water remained clean, signifying that anything 
 
 **Verse:** [[Leviticus-11#v37|Leviticus 11:37]]
 
-The seed for sowing remained clean, signifying that anything that is living and possesses life that has the strength to resist defilement remains clean. The seed here typifies Christ as the seed of life (see note 31 in [[Mark-04|Mark 4]]).
+The seed for sowing remained clean, signifying that anything that is living and possesses life that has the strength to resist defilement remains clean. The seed here typifies Christ as the seed of life (see [note 3¹](<Mark-04.fn#Footnote 3.1 — sower>) in [[Mark-04|Mark 4]]).
 
 ## Footnotes for verse 47
 

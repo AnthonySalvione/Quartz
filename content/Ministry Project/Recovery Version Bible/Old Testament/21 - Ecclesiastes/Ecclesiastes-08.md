@@ -13,7 +13,7 @@ And that, because of the oath before God.
 ## v3
 
 Do not hurry to leave him;  
-Do not join in an evil matter,  
+Do not [[Ecclesiastes-08.fn#Footnote 3.1 — join|join]] in an evil matter,  
 For he will do whatever he pleases.
 
 ## v4
@@ -38,7 +38,7 @@ For who can tell him how it will be?
 
 ## v8
 
-There is no man who has power over his breath to retain his breath,  
+There is no man who has power over his [[Ecclesiastes-08.fn#Footnote 8.1 — breath|breath]] to retain his breath,  
 And no one has power over the day of death;  
 And there is no discharge in the battle,  
 Nor will wickedness deliver its own master.
@@ -87,7 +87,7 @@ I say that this also is vanity.
 
 So I praised pleasure,  
 Because there is nothing better for man under the sun  
-Than to eat and to drink and to rejoice;  
+Than to [[Ecclesiastes-08.fn#Footnote 15.1 — eat|eat]] and to drink and to rejoice;  
 For that will stay with him in his labor  
 During the days of his life  
 Which God has given him under the sun.
@@ -96,7 +96,7 @@ Which God has given him under the sun.
 
 When I set my heart to know wisdom  
 And to see the travail that is done on the earth  
-(Even though man’s eyes do not see sleep day or night),
+(Even though [[Ecclesiastes-08.fn#Footnote 16.1 — man’s|man’s]] eyes do not see sleep day or night),
 
 ## v17
 

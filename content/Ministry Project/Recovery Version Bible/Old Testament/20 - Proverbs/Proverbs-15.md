@@ -50,7 +50,7 @@ And he who hates reproof will die.
 
 ## v11
 
-Sheol and Abaddon lie open before Jehovah.  
+Sheol and [[Proverbs-15.fn#Footnote 11.1 — Abaddon|Abaddon]] lie open before Jehovah.  
 How much more the hearts of the children of men!
 
 ## v12

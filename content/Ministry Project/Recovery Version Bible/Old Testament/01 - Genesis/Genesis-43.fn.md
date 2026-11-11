@@ -15,7 +15,7 @@ chapter_num: 43
 
 **Verse:** [[Genesis-43#v14|Genesis 43:14]]
 
-Heb. El Shaddai. See note 12 in [[Genesis-17|Genesis 17]].
+Heb. El Shaddai. See [note 1²](<Genesis-17.fn#Footnote 1.2 — All-sufficient>) in [[Genesis-17|Genesis 17]].
 
 ### Footnote 14.2 — mercy
 

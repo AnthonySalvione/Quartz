@@ -61,7 +61,7 @@ Rinsing the hands in water signifies purging away our filthiness with the word o
 
 **Verse:** [[Leviticus-15#v12|Leviticus 15:12]]
 
-This signifies that the created and fallen man (earthen vessel) should be broken, whereas the God-created humanity (wooden vessel) should be kept but needs to be rinsed. See note 111.
+This signifies that the created and fallen man (earthen vessel) should be broken, whereas the God-created humanity (wooden vessel) should be kept but needs to be rinsed. See [note 11¹](<Leviticus-15.fn#Footnote 11.1 — rinsed>).
 
 ## Footnotes for verse 13
 
@@ -77,7 +77,7 @@ This signifies that the dealing with our natural life should be to the extent th
 
 **Verse:** [[Leviticus-15#v14|Leviticus 15:14]]
 
-See note 10² in [[Leviticus-14|Leviticus 14]].
+See [note 10²](<Leviticus-14.fn#Footnote 10.2 — eighth>) in [[Leviticus-14|Leviticus 14]].
 
 ## Footnotes for verse 15
 

@@ -23,7 +23,7 @@ In marrying the daughter of the king of Egypt, Solomon followed his father in in
 
 **Verse:** [[1 Kings-03#v3|1 Kings 3:3]]
 
-On the one hand, Solomon was seeking God. On the other hand, he sacrificed and burned incense in the high places ([[1 Kings-03#v3|vv. 3b-4]]; cf. [[Deuteronomy-12#v5|Deut. 12:5-14]]). In the Old Testament high places is a negative term, for it refers to the places where the Gentile people, the Canaanites, worshipped their idols ([[Numbers-33#v52|Num. 33:52]]). In this matter Solomon was foolish and lacking in vision. See [[1 Kings-11#v7|11:7]] and note, and [[1 Kings-12#v31|12:31-32]] and notes.
+On the one hand, Solomon was seeking God. On the other hand, he sacrificed and burned incense in the high places ([[1 Kings-03#v3|vv. 3b-4]]; cf. [[Deuteronomy-12#v5|Deut. 12:5-14]]). In the Old Testament high places is a negative term, for it refers to the places where the Gentile people, the Canaanites, worshipped their idols ([[Numbers-33#v52|Num. 33:52]]). In this matter Solomon was foolish and lacking in vision. See [[1 Kings-11#v7|11:7]] and [note](<1 Kings-11.fn#Footnote 7.1 — high>), and [[1 Kings-12#v31|12:31-32]] and notes.
 
 ## Footnotes for verse 10
 

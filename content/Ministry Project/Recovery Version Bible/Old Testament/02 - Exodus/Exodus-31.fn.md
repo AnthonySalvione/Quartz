@@ -39,7 +39,7 @@ To build up the church all the believers must know how to use the divine nature 
 
 **Verse:** [[Exodus-31#v5|Exodus 31:5]]
 
-To cut stones for setting is to help the saints to be transformed into stones and to be adjusted to fit into God’s building; to carve wood is to work on the humanity of the saints for the sake of God’s building; and to work in all kinds of workmanship is to produce finer virtues in human character with the uplifted humanity of Christ, which are needed for the building up of the church as God’s dwelling place (cf. [[Ephesians-04#v2|Eph. 4:2]] and note).
+To cut stones for setting is to help the saints to be transformed into stones and to be adjusted to fit into God’s building; to carve wood is to work on the humanity of the saints for the sake of God’s building; and to work in all kinds of workmanship is to produce finer virtues in human character with the uplifted humanity of Christ, which are needed for the building up of the church as God’s dwelling place (cf. [[Ephesians-04#v2|Eph. 4:2]] and [note](<Ephesians-04.fn#Footnote 2.1 — lowliness>)).
 
 ## Footnotes for verse 6
 
@@ -61,13 +61,13 @@ Bezalel was of the tribe of Judah ([[Exodus-31#v2|v. 2]]), the kingly tribe ([[G
 
 **Verse:** [[Exodus-31#v13|Exodus 31:13]]
 
-The Sabbath is mentioned again here (cf. [[Exodus-20#v8|20:8-11]]), in relation to the work of building God’s dwelling place, signifying that as God’s people work with Him and for Him, they must learn to rest with Him by enjoying Him and being filled with Him. Keeping the Sabbath is a sign ([[Exodus-31#v17|v. 17]]) that God’s people work for God not by their own strength but by enjoying Him and being one with Him. It is also an eternal covenant ([[Exodus-31#v16|v. 16]]) assuring God that we will be one with Him by first enjoying Him and then working with Him, for Him, and in oneness with Him. God first worked and then rested; man first rests and then works ([[Genesis-02#v2|Gen. 2:2]] and note). The mentioning of the Sabbath here indicates also that everything related to the tabernacle and its furniture leads us to God’s Sabbath, with its rest and refreshment in the enjoyment of what God has purposed and done.
+The Sabbath is mentioned again here (cf. [[Exodus-20#v8|20:8-11]]), in relation to the work of building God’s dwelling place, signifying that as God’s people work with Him and for Him, they must learn to rest with Him by enjoying Him and being filled with Him. Keeping the Sabbath is a sign ([[Exodus-31#v17|v. 17]]) that God’s people work for God not by their own strength but by enjoying Him and being one with Him. It is also an eternal covenant ([[Exodus-31#v16|v. 16]]) assuring God that we will be one with Him by first enjoying Him and then working with Him, for Him, and in oneness with Him. God first worked and then rested; man first rests and then works ([[Genesis-02#v2|Gen. 2:2]] and [note](<Genesis-02.fn#Footnote 2.1 — rested>)). The mentioning of the Sabbath here indicates also that everything related to the tabernacle and its furniture leads us to God’s Sabbath, with its rest and refreshment in the enjoyment of what God has purposed and done.
 
 ### Footnote 13.2 — sign
 
 **Verse:** [[Exodus-31#v13|Exodus 31:13]]
 
-See note 10¹ in [[Exodus-20|Exodus 20]].
+See [note 10¹](<Exodus-20.fn#Footnote 10.1 — to>) in [[Exodus-20|Exodus 20]].
 
 ## Footnotes for verse 14
 
@@ -83,4 +83,4 @@ When we work for God without enjoying Him and being one with Him, the result is 
 
 **Verse:** [[Exodus-31#v18|Exodus 31:18]]
 
-The law and its ordinances were decreed by God in [[Exodus-20#v1|20:1]]—[[Exodus-23#v19|23:19]]. Then, in [[Exodus-24#v12|24:12]] God called Moses up to the top of the mountain to give him the tablets of the law, the testimony (see note 11 in [[Exodus-20|Exodus 20]]). However, before giving Moses the tablets, God first gave him the design of the tabernacle and instructions concerning the priesthood ([[Exodus-25#v1|25:1]]—[[Exodus-31#v17|31:17]]). This indicates that although God was giving the law, He knew that man could not keep it; therefore, He prepared the tabernacle, the offerings, and all the aspects of the priesthood—the reality and fulfillment of which is Christ—as the way of grace for His fallen and sinful people to contact Him and enjoy Him (cf. [[Hebrews-09#v1|Heb. 9:1]]—[[Hebrews-10#v22|10:22]]). Although God was giving the law, He did not have any trust in the law. His trust was, and still is, absolutely in Christ as the way of grace for His people. See note 11 in [[Exodus-25|Exodus 25]].
+The law and its ordinances were decreed by God in [[Exodus-20#v1|20:1]]—[[Exodus-23#v19|23:19]]. Then, in [[Exodus-24#v12|24:12]] God called Moses up to the top of the mountain to give him the tablets of the law, the testimony (see [note 1¹](<Exodus-20.fn#Footnote 1.1 — words>) in [[Exodus-20|Exodus 20]]). However, before giving Moses the tablets, God first gave him the design of the tabernacle and instructions concerning the priesthood ([[Exodus-25#v1|25:1]]—[[Exodus-31#v17|31:17]]). This indicates that although God was giving the law, He knew that man could not keep it; therefore, He prepared the tabernacle, the offerings, and all the aspects of the priesthood—the reality and fulfillment of which is Christ—as the way of grace for His fallen and sinful people to contact Him and enjoy Him (cf. [[Hebrews-09#v1|Heb. 9:1]]—[[Hebrews-10#v22|10:22]]). Although God was giving the law, He did not have any trust in the law. His trust was, and still is, absolutely in Christ as the way of grace for His people. See [note 1¹](<Exodus-25.fn#Footnote 1.1 — Then>) in [[Exodus-25|Exodus 25]].

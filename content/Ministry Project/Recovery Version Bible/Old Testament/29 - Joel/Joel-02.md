@@ -103,14 +103,14 @@ And repentant of evil.
 
 Who knows whether He will turn and repent  
 And leave a blessing behind Him,  
-A meal offering and a drink offering  
+A [[Joel-02.fn#Footnote 14.1 — meal|meal]] offering and a [[Joel-02.fn#Footnote 14.1 — meal|drink]] offering  
 To Jehovah your God?
 
 ## v15
 
-Blow a trumpet in Zion;  
-Sanctify a fast;  
-Call a solemn assembly;
+[[Joel-02.fn#Footnote 15.1 — Blow|Blow]] a trumpet in Zion;  
+[[Joel-02.fn#Footnote 15.2 — Sanctify|Sanctify]] a fast;  
+Call a [[Joel-02.fn#Footnote 15.3 — solemn|solemn]] assembly;
 
 ## v16
 
@@ -135,7 +135,7 @@ Where is their God?
 
 ## v18
 
-Then Jehovah became jealous for His land,  
+Then Jehovah became jealous for [[Joel-02.fn#Footnote 18.1 — His|His]] land,  
 And He spared His people.
 
 ## v19
@@ -178,9 +178,9 @@ O children of Zion,
 Be glad and rejoice  
 In Jehovah your God.  
 For He gives you  
-The early rain in righteousness,  
+The earl rain in righteousness,  
 And He makes the rain come down for you:  
-The early rain and the late rain  
+The [[Joel-02.fn#Footnote 23.1 — early|early]] rain and the [[Joel-02.fn#Footnote 23.1 — early|late]] rain  
 At the beginning of the season.
 
 ## v24
@@ -211,7 +211,7 @@ And My people will never be ashamed.
 
 ## v28
 
-And afterward I will pour out My Spirit upon all flesh,  
+And afterward I will [[Joel-02.fn#Footnote 28.1 — pour|pour]] out My Spirit upon all flesh,  
 And your sons and your daughters shall prophesy;  
 Your old men shall dream dreams;  
 Your young men shall see visions.
@@ -223,7 +223,7 @@ In those days I will pour out My Spirit.
 
 ## v30
 
-And I will show wonders in the heavens and on earth:  
+And I will [[Joel-02.fn#Footnote 30.1 — show|show]] wonders in the heavens and on earth:  
 Blood and fire and pillars of smoke.
 
 ## v31
@@ -231,11 +231,11 @@ Blood and fire and pillars of smoke.
 The sun shall be turned into darkness,  
 And the moon into blood,  
 Before the great and terrible  
-Day of Jehovah comes.
+[[Joel-02.fn#Footnote 31.1 — Day|Day]] of Jehovah comes.
 
 ## v32
 
-And everyone who calls on the name of Jehovah shall be saved;  
+And everyone who [[Joel-02.fn#Footnote 32.1 — calls|calls]] on the name of Jehovah shall be saved;  
 For in Mount Zion and in Jerusalem will be an escape,  
 As Jehovah has said,  
 Even for the remnant  

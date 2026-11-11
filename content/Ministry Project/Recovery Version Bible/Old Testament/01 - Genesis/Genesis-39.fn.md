@@ -31,7 +31,7 @@ Lit., hand. So also throughout the chapter.
 
 **Verse:** [[Genesis-39#v12|Genesis 39:12]]
 
-Joseph lived a life that corresponded to the vision he saw in his two dreams (see note 51 in [[Genesis-37|Genesis 37]]; cf. [[Acts-26#v19|Acts 26:19]]). Joseph’s brothers vented their anger ([[Genesis-37#v18|37:18-31]]) and indulged in their lust ([[Genesis-38#v15|38:15-18]]), but Joseph subdued his anger and conquered his lust, behaving as a sheaf full of life and conducting himself like a heavenly star shining in the darkness (see notes 181 in [[Genesis-37|Genesis 37]] and 151 in [[Genesis-38|Genesis 38]]). Joseph’s life under the heavenly vision was the life of the kingdom of the heavens described in [[Matthew-05|Matt. 5—7]]. By living such a life, he was fully prepared to reign as a king.
+Joseph lived a life that corresponded to the vision he saw in his two dreams (see [note 5¹](<Genesis-37.fn#Footnote 5.1 — dream>) in [[Genesis-37|Genesis 37]]; cf. [[Acts-26#v19|Acts 26:19]]). Joseph’s brothers vented their anger ([[Genesis-37#v18|37:18-31]]) and indulged in their lust ([[Genesis-38#v15|38:15-18]]), but Joseph subdued his anger and conquered his lust, behaving as a sheaf full of life and conducting himself like a heavenly star shining in the darkness (see notes [18¹](<Genesis-37.fn#Footnote 18.1 — conspired>) in [[Genesis-37|Genesis 37]] and [15¹](<Genesis-38.fn#Footnote 15.1 — Judah>) in [[Genesis-38|Genesis 38]]). Joseph’s life under the heavenly vision was the life of the kingdom of the heavens described in [[Matthew-05|Matt. 5—7]]. By living such a life, he was fully prepared to reign as a king.
 
 ## Footnotes for verse 20
 

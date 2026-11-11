@@ -64,7 +64,7 @@ Then Johanan the son of Kareah and all the captains of the forces with him took 
 
 ## v17
 
-And they went and stayed in Geruth Chimham, which is near Bethlehem, in order to go and enter into Egypt
+And they went and stayed in Geruth Chimham, which is near Bethlehem, in order to go and enter into [[Jeremiah-41.fn#Footnote 17.1 — Egypt|Egypt]]
 
 ## v18
 

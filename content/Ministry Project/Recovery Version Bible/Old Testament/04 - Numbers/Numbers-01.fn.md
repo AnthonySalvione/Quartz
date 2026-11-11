@@ -15,13 +15,13 @@ chapter_num: 1
 
 **Verse:** [[Numbers-01#v1|Numbers 1:1]]
 
-In the picture portrayed in Numbers, God’s move was in the Ark with the tabernacle, i.e., in Christ, the God-man, the mingling of God and man (see note 111 in [[Exodus-25|Exo. 25]]), as the embodiment of God ([[Colossians-02#v9|Col. 2:9]]), with the church, the enlargement, the increase, of Christ (see notes on [[Exodus-26#v15|Exo. 26:15]]) as God’s dwelling place on the earth ([[1 Corinthians-03#v16|1 Cor. 3:16]]; [[Ephesians-02#v21|Eph. 2:21-22]]; [[1 Timothy-03#v15|1 Tim. 3:15]]). The picture in Numbers shows the Triune God and His chosen people mingled together as one entity that God may move on the earth and conquer His enemy in order to regain the earth for the fulfillment of His eternal purpose (cf. [[Acts-01#v8|Acts 1:8]]).
+In the picture portrayed in Numbers, God’s move was in the Ark with the tabernacle, i.e., in Christ, the God-man, the mingling of God and man (see [note 11¹](<Exodus-25.fn#Footnote 11.1 — gold>) in [[Exodus-25|Exo. 25]]), as the embodiment of God ([[Colossians-02#v9|Col. 2:9]]), with the church, the enlargement, the increase, of Christ (see notes on [[Exodus-26#v15|Exo. 26:15]]) as God’s dwelling place on the earth ([[1 Corinthians-03#v16|1 Cor. 3:16]]; [[Ephesians-02#v21|Eph. 2:21-22]]; [[1 Timothy-03#v15|1 Tim. 3:15]]). The picture in Numbers shows the Triune God and His chosen people mingled together as one entity that God may move on the earth and conquer His enemy in order to regain the earth for the fulfillment of His eternal purpose (cf. [[Acts-01#v8|Acts 1:8]]).
 
 ### Footnote 1.2 — spoke
 
 **Verse:** [[Numbers-01#v1|Numbers 1:1]]
 
-See notes 1² and 1³ in [[Leviticus-01|Lev. 1]].
+See notes [1²](<Leviticus-01.fn#Footnote 1.2 — spoke>) and [1³](<Leviticus-01.fn#Footnote 1.3 — Tent>) in [[Leviticus-01|Lev. 1]].
 
 ## Footnotes for verse 2
 
@@ -37,7 +37,7 @@ The children of Israel were formed into a fighting army by being numbered by the
 
 **Verse:** [[Numbers-01#v3|Numbers 1:3]]
 
-See note 141 in [[Exodus-30|Exo. 30]]. For a vow to God, an Israelite male of the highest valuation was required to be between twenty and sixty years old ([[Leviticus-27#v3|Lev. 27:3]]), but for fighting, an Israelite male was required to be twenty years old or above, without limit. Even at the age of eighty-five, Caleb was still a warrior, able to fight for the nation of Israel ([[Joshua-14#v10|Josh. 14:10-11]]).
+See [note 14¹](<Exodus-30.fn#Footnote 14.1 — twenty>) in [[Exodus-30|Exo. 30]]. For a vow to God, an Israelite male of the highest valuation was required to be between twenty and sixty years old ([[Leviticus-27#v3|Lev. 27:3]]), but for fighting, an Israelite male was required to be twenty years old or above, without limit. Even at the age of eighty-five, Caleb was still a warrior, able to fight for the nation of Israel ([[Joshua-14#v10|Josh. 14:10-11]]).
 
 ### Footnote 3.2 — for
 

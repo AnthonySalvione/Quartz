@@ -24,7 +24,7 @@ Then these chief ministers and satraps came to prevail upon the king and said th
 
 ## v7
 
-All the chief ministers of the kingdom, the prefects and the satraps, the counselors and the governors, have taken counsel together that the king should establish a statute and make firm an edict that anyone who makes a petition within the next thirty days to any god or man besides you, O king, shall be cast into the lions’ den.
+All the chief ministers of the kingdom, the prefects and the satraps, the counselors and the governors, have taken counsel together that the king should establish a statute and make firm an edict that anyone who makes a [[Daniel-06.fn#Footnote 7.1 — petition|petition]] within the next thirty days to any god or man besides you, O king, shall be cast into the lions’ den.
 
 ## v8
 
@@ -36,7 +36,7 @@ Therefore King Darius signed the writing, that is, the edict.
 
 ## v10
 
-Now when Daniel came to know that the writing had been signed, he went to his house (in his upper room he had windows open toward Jerusalem) and three times daily he knelt on his knees and prayed and gave thanks before his God, because he had always done so previously.
+Now when [[Daniel-06.fn#Footnote 10.1 — Daniel|Daniel]] came to know that the writing had been signed, he went to his house (in his upper room he had windows open [[Daniel-06.fn#Footnote 10.2 — toward|toward]] Jerusalem) and three times daily he knelt on his knees and prayed and gave thanks before his God, because he had always done so previously.
 
 ## v11
 
@@ -96,7 +96,7 @@ Then the king commanded, and they brought those men who had accused Daniel and t
 
 ## v25
 
-Then Darius the king wrote to all the peoples, nations, and languages that dwell in the whole land: May your peace abound!
+[[Daniel-06.fn#Footnote 25.1 — Then|Then]] Darius the king wrote to all the peoples, nations, and languages that dwell in the whole land: May your peace abound!
 
 ## v26
 

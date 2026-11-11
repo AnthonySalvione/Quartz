@@ -97,7 +97,7 @@ So the heart of man reflects man.
 
 ## v20
 
-Sheol and Abaddon are never satisfied,  
+Sheol and [[Proverbs-27.fn#Footnote 20.1 — Abaddon|Abaddon]] are never satisfied,  
 And the eyes of man are never satisfied.
 
 ## v21

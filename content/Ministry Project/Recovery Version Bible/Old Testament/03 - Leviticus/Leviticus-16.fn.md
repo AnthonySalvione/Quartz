@@ -17,7 +17,7 @@ chapter_num: 16
 
 Because of the negative situation of God’s people, as portrayed in [[Leviticus-11|Leviticus 11—15]], according to God’s concept and in His divine economy there is the need of redemption. Because the Old Testament time was not the time for redemption to take place, a type, a shadow, of the coming redemption was needed. This shadow is the expiation in this chapter. The expiation accomplished through the animal sacrifices in the Old Testament is a type pointing to the redemption accomplished by Christ in the New Testament. 
 
-The root of the Hebrew word translated expiation means to cover. The noun form of this word is rendered expiation cover in [[Leviticus-16#v2|v. 2]] and in [[Exodus-25#v17|Exo. 25:17]]. The root of the Greek word used in the Septuagint and in the New Testament, translated propitiation in [[Romans-03#v25|Rom. 3:25]]; [[Hebrews-02#v17|Heb. 2:17]]; and [[1 John-02#v2|1 John 2:2]] and [[1 John-04#v10|4:10]], means to appease (the situation between two parties). On the Day of Expiation the blood of the sin offering was brought into the Holy of Holies and sprinkled on the expiation cover, the lid of the Ark ([[Leviticus-16#v14|vv. 14-15]]), which covered the Ten Commandments within the Ark ([[Exodus-25#v16|Exo. 25:16]]), signifying that the sin of the ones coming to contact God had been covered but not yet removed (see note 33 in [[Hebrews-01|Heb. 1]]). In this way the situation of fallen man in relation to God was appeased but was not fully settled, until Christ came to accomplish redemption by offering Himself as the propitiatory sacrifice to take away man’s sin ([[Hebrews-09#v12|Heb. 9:12]]; [[Hebrews-02#v17|2:17]]; [[1 John-02#v2|1 John 2:2]]; [[1 John-04#v10|4:10]]; [[John-01#v29|John 1:29]]). See notes 252 and 253 in [[Romans-03|Rom. 3]], 174 in [[Hebrews-02|Heb. 2]], 122 in [[Hebrews-09|Heb. 9]], and 21 in [[1 John-02|1 John 2]].
+The root of the Hebrew word translated expiation means to cover. The noun form of this word is rendered expiation cover in [[Leviticus-16#v2|v. 2]] and in [[Exodus-25#v17|Exo. 25:17]]. The root of the Greek word used in the Septuagint and in the New Testament, translated propitiation in [[Romans-03#v25|Rom. 3:25]]; [[Hebrews-02#v17|Heb. 2:17]]; and [[1 John-02#v2|1 John 2:2]] and [[1 John-04#v10|4:10]], means to appease (the situation between two parties). On the Day of Expiation the blood of the sin offering was brought into the Holy of Holies and sprinkled on the expiation cover, the lid of the Ark ([[Leviticus-16#v14|vv. 14-15]]), which covered the Ten Commandments within the Ark ([[Exodus-25#v16|Exo. 25:16]]), signifying that the sin of the ones coming to contact God had been covered but not yet removed (see [note 3³](<Hebrews-01.fn#Footnote 3.3 — purification>) in [[Hebrews-01|Heb. 1]]). In this way the situation of fallen man in relation to God was appeased but was not fully settled, until Christ came to accomplish redemption by offering Himself as the propitiatory sacrifice to take away man’s sin ([[Hebrews-09#v12|Heb. 9:12]]; [[Hebrews-02#v17|2:17]]; [[1 John-02#v2|1 John 2:2]]; [[1 John-04#v10|4:10]]; [[John-01#v29|John 1:29]]). See notes [25²](<Romans-03.fn#Footnote 25.2 — propitiation>) and [25³](<Romans-03.fn#Footnote 25.3 — passed>) in [[Romans-03|Rom. 3]], [17⁴](<Hebrews-02.fn#Footnote 17.4 — propitiation>) in [[Hebrews-02|Heb. 2]], [12²](<Hebrews-09.fn#Footnote 12.2 — redemption>) in [[Hebrews-09|Heb. 9]], and [2¹](<1 John-02.fn#Footnote 2.1 — propitiation>) in [[1 John-02|1 John 2]].
 
 ## Footnotes for verse 2
 
@@ -33,7 +33,7 @@ This signifies that man, being sinful because of the fall, is unable to enter in
 
 **Verse:** [[Leviticus-16#v4|Leviticus 16:4]]
 
-All the linen garments worn by Aaron are types of God’s righteousness and holiness, both of which are Christ ([[1 Corinthians-01#v30|1 Cor. 1:30]]; [[Acts-03#v14|Acts 3:14]]). Aaron’s putting on the holy garments signifies that the one who comes near to God (cf. [[Hebrews-10#v19|Heb. 10:19-22]]) should take Christ as his righteousness and holiness in order that he may cover his entire being and express Christ (see note 21 in [[Exodus-28|Exo. 28]]).
+All the linen garments worn by Aaron are types of God’s righteousness and holiness, both of which are Christ ([[1 Corinthians-01#v30|1 Cor. 1:30]]; [[Acts-03#v14|Acts 3:14]]). Aaron’s putting on the holy garments signifies that the one who comes near to God (cf. [[Hebrews-10#v19|Heb. 10:19-22]]) should take Christ as his righteousness and holiness in order that he may cover his entire being and express Christ (see [note 2¹](<Exodus-28.fn#Footnote 2.1 — garments>) in [[Exodus-28|Exo. 28]]).
 
 ### Footnote 4.2 — bathe
 
@@ -55,7 +55,7 @@ The bull and the ram in [[Leviticus-16#v3|v. 3]] were for Aaron himself ([[Levit
 
 **Verse:** [[Leviticus-16#v6|Leviticus 16:6]]
 
-See note 11. Aaron’s offering the bull of the sin offering for himself indicates that as a type of the believers as God’s priests ([[1 Peter-02#v5|1 Pet. 2:5]], [[1 Peter-02#v9|9]]; [[Revelation-01#v6|Rev. 1:6]]; [[Revelation-05#v10|5:10]]), he needed expiation for the fulfillment of the priesthood. As a type of Christ, Aaron did not need expiation.
+See [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>). Aaron’s offering the bull of the sin offering for himself indicates that as a type of the believers as God’s priests ([[1 Peter-02#v5|1 Pet. 2:5]], [[1 Peter-02#v9|9]]; [[Revelation-01#v6|Rev. 1:6]]; [[Revelation-05#v10|5:10]]), he needed expiation for the fulfillment of the priesthood. As a type of Christ, Aaron did not need expiation.
 
 ## Footnotes for verse 8
 
@@ -95,7 +95,7 @@ The sprinkling of the blood of the sin offering on the expiation cover ([[Leviti
 
 **Verse:** [[Leviticus-16#v14|Leviticus 16:14]]
 
-See note 17¹ in [[Exodus-25|Exo. 25]].
+See [note 17¹](<Exodus-25.fn#Footnote 17.1 — expiation>) in [[Exodus-25|Exo. 25]].
 
 ## Footnotes for verse 16
 
@@ -119,7 +119,7 @@ This signifies that the Lord Jesus alone can make propitiation for our sins ([[H
 
 **Verse:** [[Leviticus-16#v18|Leviticus 16:18]]
 
-Putting the blood of the sin offering on and around the four horns of the burnt offering altar signifies that the efficacy of the redemption accomplished on the cross is toward the four corners of the earth. According to [[Exodus-30#v10|Exo. 30:10]] (cf. [[Leviticus-04#v7|4:7]], [[Leviticus-04#v18|18]]), blood was put also on the horns of the incense altar, signifying the efficacy of Christ’s blood for us to be accepted by God in our prayer. See note 51 in [[Leviticus-04|Leviticus 4]].
+Putting the blood of the sin offering on and around the four horns of the burnt offering altar signifies that the efficacy of the redemption accomplished on the cross is toward the four corners of the earth. According to [[Exodus-30#v10|Exo. 30:10]] (cf. [[Leviticus-04#v7|4:7]], [[Leviticus-04#v18|18]]), blood was put also on the horns of the incense altar, signifying the efficacy of Christ’s blood for us to be accepted by God in our prayer. See [note 5¹](<Leviticus-04.fn#Footnote 5.1 — blood>) in [[Leviticus-04|Leviticus 4]].
 
 ## Footnotes for verse 19
 
@@ -147,7 +147,7 @@ Even the Holy of Holies, the Tent of Meeting, and the altar, which are holy thin
 
 **Verse:** [[Leviticus-16#v20|Leviticus 16:20]]
 
-For [[Leviticus-16#v20|vv. 20-22]], see note 8¹.
+For [[Leviticus-16#v20|vv. 20-22]], see [[Leviticus-16.fn#Footnote 8.1 — Azazel|note 8¹]].
 
 ## Footnotes for verse 24
 
@@ -179,7 +179,7 @@ This signifies that the one who is defiled by contacting anything related to sin
 
 **Verse:** [[Leviticus-16#v27|Leviticus 16:27]]
 
-The carrying of the sin offering outside the camp and the burning of its skin, its flesh, and its dung signify, first, that the Lord Jesus accomplished on the cross, once for all, the eternal and perfect redemption ([[Hebrews-09#v12|Heb. 9:12]]), and His serving ones have no participation in this matter ([[Leviticus-06#v30|6:30]] and note; [[Hebrews-13#v10|Heb. 13:10-11]] and note 101). They signify, second, that the Lord who accomplished redemption was rejected by man; hence, whoever receives His redemption should go with Him outside the camp, bearing His reproach ([[Hebrews-13#v12|Heb. 13:12-13]] and notes).
+The carrying of the sin offering outside the camp and the burning of its skin, its flesh, and its dung signify, first, that the Lord Jesus accomplished on the cross, once for all, the eternal and perfect redemption ([[Hebrews-09#v12|Heb. 9:12]]), and His serving ones have no participation in this matter ([[Leviticus-06#v30|6:30]] and [note](<Leviticus-06.fn#Footnote 30.1 — expiation>); [[Hebrews-13#v10|Heb. 13:10-11]] and [[Hebrews-13.fn#Footnote 10.1 — altar|note 10¹]]). They signify, second, that the Lord who accomplished redemption was rejected by man; hence, whoever receives His redemption should go with Him outside the camp, bearing His reproach ([[Hebrews-13#v12|Heb. 13:12-13]] and notes).
 
 ## Footnotes for verse 29
 

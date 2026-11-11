@@ -1,6 +1,6 @@
 ## v1
 
-A wise son hears his father’s instruction,  
+A wise son [[Proverbs-13.fn#Footnote 1.1 — hears|hears]] his father’s instruction,  
 But a scorner does not listen to rebuke.
 
 ## v2

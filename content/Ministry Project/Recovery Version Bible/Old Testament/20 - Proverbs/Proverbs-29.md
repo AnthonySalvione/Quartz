@@ -121,7 +121,7 @@ He hears the adjuration and utters nothing.
 ## v25
 
 The fear of man brings a snare,  
-But whoever puts his trust in Jehovah will be exalted.
+But whoever puts his trust in Jehovah will be [[Proverbs-29.fn#Footnote 25.1 — exalted|exalted]].
 
 ## v26
 

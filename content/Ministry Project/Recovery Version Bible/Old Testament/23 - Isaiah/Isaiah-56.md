@@ -1,15 +1,15 @@
 ## v1
 
 Thus says Jehovah, /  
-Preserve justice and do righteousness, /  
-For My salvation is about to come /  
-And My righteousness is about to be revealed.
+Preserve [[Isaiah-56.fn#Footnote 1.1 — justice|justice]] and do righteousness, /  
+For My [[Isaiah-56.fn#Footnote 1.1 — justice|salvation]] is about to come /  
+And My [[Isaiah-56.fn#Footnote 1.1 — justice|righteousness]] is about to be revealed.
 
 ## v2
 
 Blessed is the man who does this, /  
 And the son of man who takes hold of it, /  
-Who keeps the Sabbath so as not to profane it /  
+Who keeps the [[Isaiah-56.fn#Footnote 2.1 — Sabbath|Sabbath]] so as not to profane it /  
 And keeps his hand from doing any evil.
 
 ## v3
@@ -52,7 +52,7 @@ For My house will be called a house of prayer for all the peoples.
 ## v8
 
 The Lord Jehovah, who gathers the outcasts of Israel, declares: /  
-Yet will I gather others to Him besides those gathered to Him already.
+Yet will I gather [[Isaiah-56.fn#Footnote 8.1 — others|others]] to Him besides those gathered to Him already.
 
 ## v9
 

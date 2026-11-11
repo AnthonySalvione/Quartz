@@ -1,7 +1,7 @@
 ## v1
 
-He who dwells in the secret place of the Most High  
-Will abide in the shadow of the Almighty.
+He who [[Psalm-91.fn#Footnote 1.1 — dwells|dwells]] in the secret place of the Most High  
+Will abide in the shadow of the [[Psalm-91.fn#Footnote 1.2 — Almighty|Almighty]].
 
 ## v2
 
@@ -44,8 +44,8 @@ And see the recompense of the wicked.
 
 ## v9
 
-For You have made Jehovah, who is my refuge,  
-Even the Most High, Your habitation;
+For [[Psalm-91.fn#Footnote 9.1 — You|You]] have made Jehovah, who is my refuge,  
+Even the Most High, [[Psalm-91.fn#Footnote 9.1 — You|Your]] habitation;
 
 ## v10
 
@@ -54,7 +54,7 @@ Nor will any plague come near Your tent.
 
 ## v11
 
-For He will give His angels charge concerning You  
+For He will give His [[Psalm-91.fn#Footnote 11.1 — angels|angels]] charge concerning You  
 To keep You in all Your ways.
 
 ## v12
@@ -64,12 +64,12 @@ Lest You dash Your foot against a stone.
 
 ## v13
 
-You will tread upon the lion and the cobra;  
+You will tread upon the [[Psalm-91.fn#Footnote 13.1 — lion|lion]] and the [[Psalm-91.fn#Footnote 13.1 — lion|cobra]];  
 You will trample the young lion and the serpent.
 
 ## v14
 
-Because He has set His love upon Me, I will rescue Him;  
+Because [[Psalm-91.fn#Footnote 14.1 — He|He]] has set His love upon Me, I will rescue Him;  
 I will set Him on high, because He has known My name.
 
 ## v15

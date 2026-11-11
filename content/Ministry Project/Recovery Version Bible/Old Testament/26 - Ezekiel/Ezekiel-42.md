@@ -1,6 +1,6 @@
 ## v1
 
-Then He brought me out into the outer court, the way toward the north, and He brought me into the chamber that was adjacent to the separate place and which was adjacent to the building toward the north.
+Then He brought me out into the outer court, the way toward the north, and He brought me into the [[Ezekiel-42.fn#Footnote 1.1 — chamber|chamber]] that was adjacent to the separate place and which was adjacent to the building toward the north.
 
 ## v2
 
@@ -8,7 +8,7 @@ The length of the side of the northern entrance was a hundred cubits, and the wi
 
 ## v3
 
-Adjacent to the twenty-cubit space of the inner court and adjacent to the pavement of the outer court was gallery facing gallery on the third story.
+Adjacent to the twenty-cubit space of the inner court and adjacent to the pavement of the outer court was gallery facing gallery on the [[Ezekiel-42.fn#Footnote 3.1 — third|third]] story.
 
 ## v4
 
@@ -36,7 +36,7 @@ And at the foot of these chambers was an entrance on the east side to enter them
 
 ## v10
 
-By the breadth of the wall of the court to the south, beside the separate place and beside the building, there were chambers,
+By the breadth of the wall of the court to the [[Ezekiel-42.fn#Footnote 10.1 — south|south]], beside the separate place and beside the building, there were chambers,
 
 ## v11
 
@@ -60,7 +60,7 @@ Now when He had finished measuring the inner house, He brought me out through th
 
 ## v16
 
-He measured on the east side with the measuring reed five hundred reeds, with the measuring reed all around.
+He measured on the east [[Ezekiel-42.fn#Footnote 16.1 — side|side]] with the measuring reed five hundred reeds, with the measuring reed all around.
 
 ## v17
 

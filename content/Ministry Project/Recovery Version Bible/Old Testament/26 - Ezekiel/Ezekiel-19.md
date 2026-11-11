@@ -40,7 +40,7 @@ He devoured men.
 
 ## v7
 
-And he destroyed their citadels /  
+And he [[Ezekiel-19.fn#Footnote 7.1 — destroyed|destroyed]] their citadels /  
 And laid waste their cities; /  
 And the land and its fullness were horrified /  
 At the sound of his roaring.
@@ -62,7 +62,7 @@ Upon the mountains of Israel.
 
 ## v10
 
-Your mother was like a vine in your vineyard, /  
+Your mother was like a vine in your [[Ezekiel-19.fn#Footnote 10.1 — vineyard|vineyard]], /  
 Transplanted beside the waters; /  
 It was fruitful and full of branches /  
 Because of abundant waters.

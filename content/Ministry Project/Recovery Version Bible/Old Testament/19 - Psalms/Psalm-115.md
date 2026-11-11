@@ -2,7 +2,7 @@
 
 Not to us, O Jehovah, not to us,  
 But to Your name give glory,  
-For the sake of Your lovingkindness and Your truth.
+For the sake of Your lovingkindness and Your [[Psalm-115.fn#Footnote 1.1 — truth|truth]].
 
 ## v2
 
@@ -39,7 +39,7 @@ They make no sound in their throat.
 
 Those who make them,  
 All who trust in them,  
-Are like them.
+Are [[Psalm-115.fn#Footnote 8.1 — like|like]] them.
 
 ## v9
 
@@ -84,11 +84,11 @@ But He has given the earth to the children of men.
 
 ## v17
 
-The dead do not praise Jehovah,  
+The dead do not praise [[Psalm-115.fn#Footnote 17.1 — Jehovah|Jehovah]],  
 Nor do any that go down into silence.
 
 ## v18
 
 But we will bless Jehovah  
 From now and to eternity.  
-Hallelujah.
+[[Psalm-115.fn#Footnote 18.1 — Hallelujah|Hallelujah]].

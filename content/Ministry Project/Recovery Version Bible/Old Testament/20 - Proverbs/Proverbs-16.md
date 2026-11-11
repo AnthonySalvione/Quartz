@@ -21,7 +21,7 @@ Yes, even the wicked for the day of evil.
 ## v5
 
 Every one who is proud in heart is an abomination to Jehovah;  
-Be assured: He will not be unpunished.
+[[Proverbs-16.fn#Footnote 5.1 — Be|Be]] assured: He will not be unpunished.
 
 ## v6
 
@@ -96,7 +96,7 @@ Than to divide the spoil with the proud.
 ## v20
 
 He who gives heed to the word will find good,  
-And blessed is he who trusts in Jehovah.
+And [[Proverbs-16.fn#Footnote 20.1 — blessed|blessed]] is he who trusts in Jehovah.
 
 ## v21
 

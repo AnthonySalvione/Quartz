@@ -1,6 +1,9 @@
+> *A Prayer of David*
+
+---
 ## v1
 
-Hear, O Jehovah, what is righteous;  
+[[Psalm-17.fn#Footnote 1.1 — Hear|Hear]], O Jehovah, what is righteous;  
 Give heed to my cry;  
 Give ear to my prayer,  
 Which is not made with lips of deceit.
@@ -33,7 +36,7 @@ Incline Your ear to me; hear my speaking.
 
 ## v7
 
-Wondrously display Your lovingkindness,  
+Wondrously display Your [[Psalm-17.fn#Footnote 7.1 — lovingkindness|lovingkindness]],  
 You who save by Your right hand  
 Those who take refuge in You from them who rise up against them.
 
@@ -54,7 +57,7 @@ With their mouths they speak arrogantly.
 
 ## v11
 
-Now they have surrounded us in our steps;  
+Now they have surrounded [[Psalm-17.fn#Footnote 11.1 — us|us]] in our steps;  
 They have fixed their eyes on casting us down to the ground.
 
 ## v12
@@ -64,7 +67,7 @@ And like a young lion lurking in hidden places.
 
 ## v13
 
-Arise, O Jehovah, confront him; bring him down.  
+Arise, O Jehovah, [[Psalm-17.fn#Footnote 13.1 — confront|confront]] him; bring him down.  
 With Your sword rescue my soul from the wicked man,
 
 ## v14
@@ -77,5 +80,5 @@ And they leave their abundance for their little ones.
 
 ## v15
 
-As for me, in righteousness I will behold Your face;  
-When I awake, I will be satisfied with Your likeness.
+As for me, in [[Psalm-17.fn#Footnote 15.1 — righteousness|righteousness]] I will behold Your face;  
+When I awake, I will be satisfied with Your [[Psalm-17.fn#Footnote 15.1 — righteousness|likeness]].

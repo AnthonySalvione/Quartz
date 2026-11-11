@@ -41,7 +41,7 @@ Lot’s willingness to sacrifice his two virgin daughters to satisfy the Sodomit
 
 **Verse:** [[Genesis-19#v11|Genesis 19:11]]
 
-This shows that sinfulness blinds people. See notes 271 in [[Matthew-09|Matt. 9]], 401 in [[John-12|John 12]], and 12 in [[John-09|John 9]].
+This shows that sinfulness blinds people. See notes [27¹](<Matthew-09.fn#Footnote 27.1 — blind>) in [[Matthew-09|Matt. 9]], [40¹](<John-12.fn#Footnote 40.1 — blinded>) in [[John-12|John 12]], and [1²](<John-09.fn#Footnote 1.2 — blind>) in [[John-09|John 9]].
 
 ## Footnotes for verse 16
 
@@ -73,7 +73,7 @@ Meaning little.
 
 **Verse:** [[Genesis-19#v26|Genesis 19:26]]
 
-See note 32¹ in [[Luke-17|Luke 17]].
+See [note 32¹](<Luke-17.fn#Footnote 32.1 — Lot’s>) in [[Luke-17|Luke 17]].
 
 ## Footnotes for verse 32
 
@@ -81,7 +81,7 @@ See note 32¹ in [[Luke-17|Luke 17]].
 
 **Verse:** [[Genesis-19#v32|Genesis 19:32]]
 
-Having been drugged with the wicked current of the evil world, Lot’s daughters had lost their sense of morality. Desiring to have seed regardless of the means, they bore sons out of their father by incest, thus breaking the governing principle ordained by God. In principle, to use any kind of sinful or worldly methods to secure increase for our success in the Christian work is to break God’s governing principle and thus to commit spiritual incest (cf. [[Matthew-07#v21|Matt. 7:21-23]]). The seed produced by incest became a great damage to the people of God through fornication ([[Numbers-25#v1|Num. 25:1-5]]; [[Revelation-02#v14|Rev. 2:14]] and notes 2 and 3).
+Having been drugged with the wicked current of the evil world, Lot’s daughters had lost their sense of morality. Desiring to have seed regardless of the means, they bore sons out of their father by incest, thus breaking the governing principle ordained by God. In principle, to use any kind of sinful or worldly methods to secure increase for our success in the Christian work is to break God’s governing principle and thus to commit spiritual incest (cf. [[Matthew-07#v21|Matt. 7:21-23]]). The seed produced by incest became a great damage to the people of God through fornication ([[Numbers-25#v1|Num. 25:1-5]]; [[Revelation-02#v14|Rev. 2:14]] and notes [2](<Revelation-02.fn#Footnote 14.2 — Balaam>) and [3](<Revelation-02.fn#Footnote 14.3 — idol>)).
 
 ## Footnotes for verse 37
 
@@ -95,7 +95,7 @@ Meaning from father.
 
 **Verse:** [[Genesis-19#v37|Genesis 19:37]]
 
-God rejected the Moabites and the Ammonites ([[Genesis-19#v38|v. 38]]) with a holy and divine hatred, commanding His people not to “seek peace with them nor prosperity with them all your days forever” and forbidding an Ammonite or a Moabite to enter the congregation of Jehovah, “even to the tenth generation—forever” ([[Deuteronomy-23#v3|Deut. 23:3-6]]; cf. [[Matthew-01#v5|Matt. 1:5]] and note 3). 
+God rejected the Moabites and the Ammonites ([[Genesis-19#v38|v. 38]]) with a holy and divine hatred, commanding His people not to “seek peace with them nor prosperity with them all your days forever” and forbidding an Ammonite or a Moabite to enter the congregation of Jehovah, “even to the tenth generation—forever” ([[Deuteronomy-23#v3|Deut. 23:3-6]]; cf. [[Matthew-01#v5|Matt. 1:5]] and [note 3](<Matthew-01.fn#Footnote 5.3 — Ruth>)). 
 
 Ishmael, brought forth by fleshly effort, was rejected by God ([[Genesis-21#v10|21:10-12]]). Moab and Ben-ammi, brought forth by incest, were a shame in history. Only Isaac, brought forth by God’s grace, was used to fulfill God’s purpose.
 

@@ -19,7 +19,7 @@ And in his full strength he contended with God.
 
 ## v4
 
-Indeed he contended with the Angel and prevailed;  
+Indeed he contended with the [[Hosea-12.fn#Footnote 4.1 — Angel|Angel]] and prevailed;  
 He wept and made supplication to Him.  
 At Bethel he found Him;  
 And there He spoke with us,
@@ -72,7 +72,7 @@ In the furrows of a field.
 
 ## v12
 
-And Jacob fled into the country of Aram;  
+And Jacob fled into the country of [[Hosea-12.fn#Footnote 12.1 — Aram|Aram]];  
 And Israel served for a wife,  
 And for a wife he kept sheep.
 

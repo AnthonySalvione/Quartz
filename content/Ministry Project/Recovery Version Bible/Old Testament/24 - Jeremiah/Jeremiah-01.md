@@ -1,6 +1,6 @@
 ## v1
 
-The words of Jeremiah the son of Hilkiah, of the priests who were in Anathoth in the land of Benjamin,
+The words of [[Jeremiah-01.fn#Footnote 1.1 — Jeremiah|Jeremiah]] the son of Hilkiah, of the priests who were in Anathoth in the land of Benjamin,
 
 ## v2
 
@@ -18,7 +18,7 @@ Now the word of Jehovah came to me, saying:
 
 Before I formed you in the womb, I knew you;  
 And before you came forth from the womb, I sanctified you.  
-I have appointed you as a prophet to the nations.
+I have [[Jeremiah-01.fn#Footnote 5.1 — appointed|appointed]] you as a prophet to the nations.
 
 ## v6
 
@@ -47,13 +47,13 @@ Now I have put My words in your mouth.
 
 See, I have appointed you this day  
 Over the nations and over the kingdoms  
-To pluck up and to break down,  
+To [[Jeremiah-01.fn#Footnote 10.1 — pluck|pluck]] up and to break down,  
 To destroy and to tear down,  
 To build up and to plant.
 
 ## v11
 
-Then the word of Jehovah came to me, saying, What do you see, Jeremiah? And I said, I see a rod of an almond tree.
+Then the word of Jehovah came to me, saying, What do you see, Jeremiah? And I said, I see a [[Jeremiah-01.fn#Footnote 11.1 — rod|rod]] of an almond tree.
 
 ## v12
 
@@ -61,7 +61,7 @@ And Jehovah said to me, You have seen well, for I am watching over My word to pe
 
 ## v13
 
-Then the word of Jehovah came to me a second time, saying, What do you see? And I said, I see a boiling pot, and it is facing away from the north.
+Then the word of Jehovah came to me a second time, saying, What do you see? And I said, I see a [[Jeremiah-01.fn#Footnote 13.1 — boiling|boiling]] pot, and it is facing away from the north.
 
 ## v14
 
@@ -81,7 +81,7 @@ You therefore gird up your loins, and rise up and speak to them everything that 
 
 ## v18
 
-And I am now making you today into a fortified city and into an iron pillar and into bronze walls against the whole land, against the kings of Judah, against its princes, against its priests, and against the people of the land.
+And I am now making you today into a [[Jeremiah-01.fn#Footnote 18.1 — fortified|fortified]] city and into an iron pillar and into bronze walls against the whole land, against the kings of Judah, against its princes, against its priests, and against the people of the land.
 
 ## v19
 

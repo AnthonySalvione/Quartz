@@ -1,6 +1,9 @@
+> *A Prayer of Moses, the man of God*
+
+---
 ## v1
 
-O Lord, You have been our dwelling place  
+O Lord, You have been our [[Psalm-90.fn#Footnote 1.1 — dwelling|dwelling]] place  
 In all generations.
 
 ## v2
@@ -47,7 +50,7 @@ We bring our years to an end like a sigh.
 
 ## v10
 
-The days of our years are seventy years,  
+The [[Psalm-90.fn#Footnote 10.1 — days|days]] of our years are seventy years,  
 Or, if because of strength, eighty years;  
 But their pride is labor and sorrow,  
 For it is soon gone, and we fly away.
@@ -84,6 +87,6 @@ And Your splendor, to their children.
 
 ## v17
 
-And let the favor of the Lord our God be upon us,  
+And let the [[Psalm-90.fn#Footnote 17.1 — favor|favor]] of the Lord our God be upon us,  
 And establish the work of our hands upon us;  
 Indeed the work of our hands, establish it.

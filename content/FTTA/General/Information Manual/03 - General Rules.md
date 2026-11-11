@@ -12,7 +12,7 @@
 	
 	2. If you find that you have a distraction regarding a trainee, seek fellowship from the trainers, Training assistant brothers, or the serving saints assigned by the Training. Do not hide it; this makes it more difficult. Do not discuss your interest/distraction with your fellow trainees. While it may be normal and unavoidable to find yourself distracted by someone, getting outwardly involved with another trainee may result in dismissal from the Training.
 	
-	3. Do not engage in any activity alone with a member of the opposite gender, including any form of electronic communication. This includes the time between terms. Meet in groups of no less than three. Do not enter opposite gender areas, except for activities arranged or approved by the Training. There should be no mixed-gender gathers without the presence of a trainer, elder, or Training assistant brother, except for the meetings of the church.
+	3. Do not engage in any activity alone with a member of the opposite gender, including any form of electronic communication. This includes the time between terms. Meet in groups of no less than three. Do not enter opposite gender areas, except for activities arranged or approved by the Training. There should be no mixed-gender gatherings without the presence of a trainer, elder, or Training assistant brother, except for the meetings of the church.
 	
 	4. Brother Lee asked the saints in the churches not to contact the trainees for the purpose of courtship during the two years of training.
 

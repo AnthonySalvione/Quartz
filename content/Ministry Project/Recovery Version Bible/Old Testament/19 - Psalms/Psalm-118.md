@@ -1,6 +1,6 @@
 ## v1
 
-Give thanks to Jehovah, for He is good,  
+Give [[Psalm-118.fn#Footnote 1.1 — thanks|thanks]] to Jehovah, for He is good,  
 For His lovingkindness is forever.
 
 ## v2
@@ -20,8 +20,8 @@ His lovingkindness is forever.
 
 ## v5
 
-Out of my distress I called upon Jehovah;  
-Jehovah answered me and set me in a place broad and free.
+Out of my distress I called upon [[Psalm-118.fn#Footnote 5.1 — Jehovah|Jehovah]];  
+[[Psalm-118.fn#Footnote 5.1 — Jehovah|Jehovah]] answered me and set me in a place broad and free.
 
 ## v6
 
@@ -61,13 +61,13 @@ In the name of Jehovah I indeed cut them down!
 
 ## v13
 
-I was pushed hard that I might fall;  
+[[Psalm-118.fn#Footnote 13.1 — I|I]] was pushed hard that I might fall;  
 But Jehovah helped me.
 
 ## v14
 
 Jehovah is my strength and my song,  
-And He has become my salvation.
+And He has become my [[Psalm-118.fn#Footnote 14.1 — salvation|salvation]].
 
 ## v15
 
@@ -107,8 +107,8 @@ And have become my salvation.
 
 ## v22
 
-The stone which the builders rejected  
-Has become the head of the corner.
+The [[Psalm-118.fn#Footnote 22.1 — stone|stone]] which the [[Psalm-118.fn#Footnote 22.1 — stone|builders]] rejected  
+Has become the [[Psalm-118.fn#Footnote 22.2 — head|head]] of the corner.
 
 ## v23
 
@@ -117,17 +117,17 @@ It is wonderful in our sight.
 
 ## v24
 
-This is the day that Jehovah has made;  
+This is the [[Psalm-118.fn#Footnote 24.1 — day|day]] that Jehovah has made;  
 Let us exult and rejoice in it.
 
 ## v25
 
-O Jehovah, do save, we pray!  
-O Jehovah, do send prosperity, we pray!
+O Jehovah, [[Psalm-118.fn#Footnote 25.1 — do|do]] save, we pray!  
+O Jehovah, do send [[Psalm-118.fn#Footnote 25.2 — prosperity|prosperity]], we pray!
 
 ## v26
 
-Blessed is He who comes in the name of Jehovah;  
+Blessed is He who [[Psalm-118.fn#Footnote 26.1 — comes|comes]] in the name of Jehovah;  
 We bless you from the house of Jehovah.
 
 ## v27

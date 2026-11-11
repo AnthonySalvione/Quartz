@@ -66,7 +66,7 @@ But whoever confesses and forsakes them will obtain mercy.
 
 ## v14
 
-Blessed is the man who always fears,  
+[[Proverbs-28.fn#Footnote 14.1 — Blessed|Blessed]] is the man who always fears,  
 But he who hardens his heart will fall into calamity.
 
 ## v15
@@ -82,7 +82,7 @@ But he who hates unjust gain will prolong his days.
 ## v17
 
 A man who is burdened with a person’s blood  
-Will be a fugitive until death;  
+[[Proverbs-28.fn#Footnote 17.1 — Will|Will]] be a fugitive until death;  
 Let no man support him.
 
 ## v18

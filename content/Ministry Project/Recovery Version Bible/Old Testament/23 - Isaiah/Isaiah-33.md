@@ -8,7 +8,7 @@ And when you cease to deal unfaithfully, they will deal unfaithfully with you.
 ## v2
 
 O Jehovah, be gracious to us; we have waited for You;  
-Be our arm every morning,  
+Be [[Isaiah-33.fn#Footnote 2.1 — our|our]] arm every morning,  
 Our salvation also in the time of distress.
 
 ## v3
@@ -132,7 +132,7 @@ And no majestic ship will pass.
 
 ## v22
 
-For Jehovah is our Judge,  
+For [[Isaiah-33.fn#Footnote 22.1 — Jehovah|Jehovah]] is our Judge,  
 Jehovah is our Lawmaker,  
 Jehovah is our King;  
 He will save us.

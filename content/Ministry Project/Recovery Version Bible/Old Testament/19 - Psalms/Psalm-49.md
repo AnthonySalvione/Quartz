@@ -1,6 +1,9 @@
+> *To the choir director. Of the sons of Korah. A Psalm*
+
+---
 ## v1
 
-Hear this, all you peoples;  
+[[Psalm-49.fn#Footnote 1.1 — Hear|Hear]] this, all you peoples;  
 Give ear, all you inhabitants of the world,
 
 ## v2
@@ -11,7 +14,7 @@ Rich and poor together;
 ## v3
 
 My mouth will speak wisdom,  
-And the meditation of my heart will be that of understanding.
+And the [[Psalm-49.fn#Footnote 3.1 — meditation|meditation]] of my heart will be that of understanding.
 
 ## v4
 
@@ -25,13 +28,13 @@ When the iniquity of those who supplant me surrounds me,
 
 ## v6
 
-Those who trust in their wealth  
-And boast in the multitude of their riches?
+Those who trust in their [[Psalm-49.fn#Footnote 6.1 — wealth|wealth]]  
+And boast in the multitude of their [[Psalm-49.fn#Footnote 6.1 — wealth|riches]]?
 
 ## v7
 
 None can by any means redeem his brother  
-Or give to God a ransom for him
+Or give to God [[Psalm-49.fn#Footnote 7.1 — a|a]] ransom for him
 
 ## v8
 
@@ -62,14 +65,14 @@ He is like the beasts that perish.
 
 ## v13
 
-Such is the way of those who are self-confident,  
+Such is the way of those who are [[Psalm-49.fn#Footnote 13.1 — self-confident|self-confident]],  
 And of those after them who approve of their sayings. Selah
 
 ## v14
 
 Like a flock, they are appointed for Sheol;  
 Death will shepherd them.  
-And straight to the grave they will descend,  
+[[Psalm-49.fn#Footnote 14.1 — And|And]] straight to the grave they will descend,  
 And their form will be for Sheol to consume  
 That there be no abode for them.
 
@@ -96,7 +99,7 @@ And men praise you when you do good for yourself —
 
 ## v19
 
-It will go to the generation of his fathers;  
+[[Psalm-49.fn#Footnote 19.1 — It|It]] will go to the generation of his fathers;  
 They will never see light.
 
 ## v20

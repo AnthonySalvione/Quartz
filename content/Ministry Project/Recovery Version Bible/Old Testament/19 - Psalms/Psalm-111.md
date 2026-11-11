@@ -1,12 +1,12 @@
 ## v1
 
-Hallelujah!  
-I will give thanks to Jehovah with all my heart  
+[[Psalm-111.fn#Footnote 1.1 — Hallelujah|Hallelujah]]!  
+[[Psalm-111.fn#Footnote 1.2 — I|I]] will give thanks to Jehovah with all my heart  
 In the council of the upright and in the assembly.
 
 ## v2
 
-Great are the works of Jehovah,  
+Great are the [[Psalm-111.fn#Footnote 2.1 — works|works]] of Jehovah,  
 And sought out by all who delight in them.
 
 ## v3
@@ -48,5 +48,5 @@ Holy and awesome is His name.
 ## v10
 
 The fear of Jehovah is the beginning of wisdom;  
-All who practice His precepts have a good understanding.  
+All who practice [[Psalm-111.fn#Footnote 10.1 — His|His]] precepts have a good understanding.  
 His praise endures forever.

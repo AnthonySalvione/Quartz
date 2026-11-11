@@ -47,7 +47,7 @@ Keeping feasts unto God three times a year typifies the full enjoyment of the Tr
 
 **Verse:** [[Exodus-23#v15|Exodus 23:15]]
 
-Keeping the Feast of Unleavened Bread ([[Deuteronomy-16#v1|Deut. 16:1-8]]) typifies the purging away of all sinful things through the enjoyment of Christ as the sinless life supply. See notes 82, 151, and 152 in [[Exodus-12|Exodus 12]]. This feast was a continuation of the Passover.
+Keeping the Feast of Unleavened Bread ([[Deuteronomy-16#v1|Deut. 16:1-8]]) typifies the purging away of all sinful things through the enjoyment of Christ as the sinless life supply. See notes [8²](<Exodus-12.fn#Footnote 8.2 — unleavened>), [15¹](<Exodus-12.fn#Footnote 15.1 — Seven>), and [15²](<Exodus-12.fn#Footnote 15.2 — unleavened>) in [[Exodus-12|Exodus 12]]. This feast was a continuation of the Passover.
 
 ## Footnotes for verse 16
 
@@ -55,7 +55,7 @@ Keeping the Feast of Unleavened Bread ([[Deuteronomy-16#v1|Deut. 16:1-8]]) typif
 
 **Verse:** [[Exodus-23#v16|Exodus 23:16]]
 
-I.e., the Feast of Weeks ([[Deuteronomy-16#v9|Deut. 16:9-12]]), or the Feast of Pentecost. This feast typifies the enjoyment of the firstfruits of the Spirit of the resurrected Christ ([[Romans-08#v23|Rom. 8:23]] and note 1). In the Old Testament type the firstfruits signify the resurrected Christ ([[1 Corinthians-15#v20|1 Cor. 15:20]], 23 and note 202) offered to God on the day of His resurrection ([[John-20#v17|John 20:17]]), typified in [[Leviticus-23#v10|Lev. 23:10-11]] by the firstfruits offered to God on the day after the Sabbath, the day of resurrection ([[Matthew-28#v1|Matt. 28:1]]). The day of Pentecost was exactly fifty days from the day of Christ’s resurrection. On the day of Pentecost, the Spirit as the full issue of the resurrected Christ was poured out on the church ([[Acts-02#v1|Acts 2:1-4]]). This indicates that the resurrected Christ became the Spirit poured out on His believers for their full enjoyment ([[1 Corinthians-15#v45|1 Cor. 15:45]]; [[2 Corinthians-03#v17|2 Cor. 3:17]]). See note 11 in [[Acts-02|Acts 2]] and note 161 in [[Leviticus-23|Lev. 23]].
+I.e., the Feast of Weeks ([[Deuteronomy-16#v9|Deut. 16:9-12]]), or the Feast of Pentecost. This feast typifies the enjoyment of the firstfruits of the Spirit of the resurrected Christ ([[Romans-08#v23|Rom. 8:23]] and [note 1](<Romans-08.fn#Footnote 23.1 — the>)). In the Old Testament type the firstfruits signify the resurrected Christ ([[1 Corinthians-15#v20|1 Cor. 15:20]], [[1 Corinthians-15#v23|23]] and note [[1 Corinthians-15.fn#Footnote 20.2 — firstfruits|20²]]) offered to God on the day of His resurrection ([[John-20#v17|John 20:17]]), typified in [[Leviticus-23#v10|Lev. 23:10-11]] by the firstfruits offered to God on the day after the Sabbath, the day of resurrection ([[Matthew-28#v1|Matt. 28:1]]). The day of Pentecost was exactly fifty days from the day of Christ’s resurrection. On the day of Pentecost, the Spirit as the full issue of the resurrected Christ was poured out on the church ([[Acts-02#v1|Acts 2:1-4]]). This indicates that the resurrected Christ became the Spirit poured out on His believers for their full enjoyment ([[1 Corinthians-15#v45|1 Cor. 15:45]]; [[2 Corinthians-03#v17|2 Cor. 3:17]]). See [note 1¹](<Acts-02.fn#Footnote 1.1 — Pentecost>) in [[Acts-02|Acts 2]] and note [16¹](<Leviticus-23.fn#Footnote 16.1 — fifty>) in [[Leviticus-23|Lev. 23]].
 
 ### Footnote 16.2 — Feast
 
@@ -83,7 +83,7 @@ This signifies that in keeping God’s feasts we should enjoy the fat, the sweet
 
 **Verse:** [[Exodus-23#v19|Exodus 23:19]]
 
-The first of the firstfruits typifies the topmost of the top experiences of Christ as the firstfruits ([[1 Corinthians-15#v20|1 Cor. 15:20]], [[1 Corinthians-15#v23|23]]). These should be brought to God’s dwelling place, the church meetings, to be offered directly to God for His satisfaction (cf. [[John-20#v17|John 20:17]] and note 1).
+The first of the firstfruits typifies the topmost of the top experiences of Christ as the firstfruits ([[1 Corinthians-15#v20|1 Cor. 15:20]], [[1 Corinthians-15#v23|23]]). These should be brought to God’s dwelling place, the church meetings, to be offered directly to God for His satisfaction (cf. [[John-20#v17|John 20:17]] and [note 1](<John-20.fn#Footnote 17.1 — ascended>)).
 
 ### Footnote 19.2 — boil
 
@@ -97,7 +97,7 @@ This typifies that the milk of the word of God, the life supply of Christ, shoul
 
 **Verse:** [[Exodus-23#v20|Exodus 23:20]]
 
-That the decree of the law concludes with a portion regarding the Angel and the good land indicates that the purpose of the decree of the law is that those who received the law would enter into the good land. The Angel of Jehovah typifies Christ as the One sent by God to keep His people in the way and to bring them into the good land ([[Exodus-14#v19|14:19]] and note), and the good land typifies Christ in His all-inclusiveness as the allotted portion of God’s people (see note 71 in [[Deuteronomy-08|Deut. 8]]). Thus, Christ as the sent One brings God’s people into Himself as the good land. The goal in God’s purpose is to bring His people into the full enjoyment of Christ as the all-inclusive land.
+That the decree of the law concludes with a portion regarding the Angel and the good land indicates that the purpose of the decree of the law is that those who received the law would enter into the good land. The Angel of Jehovah typifies Christ as the One sent by God to keep His people in the way and to bring them into the good land ([[Exodus-14#v19|14:19]] and [note](<Exodus-14.fn#Footnote 19.1 — Angel>)), and the good land typifies Christ in His all-inclusiveness as the allotted portion of God’s people (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]). Thus, Christ as the sent One brings God’s people into Himself as the good land. The goal in God’s purpose is to bring His people into the full enjoyment of Christ as the all-inclusive land.
 
 ## Footnotes for verse 21
 
@@ -127,9 +127,9 @@ That the Angel’s voice was Jehovah’s speaking proves strongly that the Angel
 
 **Verse:** [[Exodus-23#v23|Exodus 23:23]]
 
-The various pagan tribes that occupied the land signify the different aspects of our natural life. The gods (idols) of the pagan tribes ([[Exodus-23#v24|v. 24]]), with the demons behind them (cf. [[1 Corinthians-10#v20|1 Cor. 10:20]]), represent the spiritual forces of evil ([[Ephesians-06#v12|Eph. 6:12]]). Behind our natural life are the forces of evil (cf. [[Matthew-16#v23|Matt. 16:23]] and note 1), who utilize, manipulate, and direct the aspects of our natural life to frustrate us from taking possession of the all-inclusive Christ and enjoying His riches. 
+The various pagan tribes that occupied the land signify the different aspects of our natural life. The gods (idols) of the pagan tribes ([[Exodus-23#v24|v. 24]]), with the demons behind them (cf. [[1 Corinthians-10#v20|1 Cor. 10:20]]), represent the spiritual forces of evil ([[Ephesians-06#v12|Eph. 6:12]]). Behind our natural life are the forces of evil (cf. [[Matthew-16#v23|Matt. 16:23]] and [note 1](<Matthew-16.fn#Footnote 23.1 — Satan>)), who utilize, manipulate, and direct the aspects of our natural life to frustrate us from taking possession of the all-inclusive Christ and enjoying His riches. 
 
-History shows that the pagan tribes in the land were the source of Israel’s sin against God (cf. [[Exodus-23#v33|v. 33]]). This indicates that our natural life is the source of our sins. In the sight of God, those who live according to the natural life are sinning continually, whether they do good or evil. Because the natural life frustrates us from possessing Christ and enjoying Him, we must hate it ([[Luke-14#v26|Luke 14:26]]) and, as we grow in Christ, be willing to drive it out. See notes 291 and 313.
+History shows that the pagan tribes in the land were the source of Israel’s sin against God (cf. [[Exodus-23#v33|v. 33]]). This indicates that our natural life is the source of our sins. In the sight of God, those who live according to the natural life are sinning continually, whether they do good or evil. Because the natural life frustrates us from possessing Christ and enjoying Him, we must hate it ([[Luke-14#v26|Luke 14:26]]) and, as we grow in Christ, be willing to drive it out. See notes [29¹](<Exodus-23.fn#Footnote 29.1 — one>) and [31³](<Exodus-23.fn#Footnote 31.3 — you>).
 
 ## Footnotes for verse 25
 
@@ -145,7 +145,7 @@ The blessings here and in [[Exodus-23#v26|v. 26]] signify spiritually that God w
 
 **Verse:** [[Exodus-23#v29|Exodus 23:29]]
 
-God will not cut off our natural life, signified by the pagan tribes (see note 231), all at once, because this would leave us inwardly vacant and in danger of being taken over by demons, signified by the animals of the field (cf. [[Matthew-12#v43|Matt. 12:43-45]]). God cuts off our natural life gradually, little by little, according to the degree of our growth in the divine life ([[Exodus-23#v30|v. 30]]). The more Christ increases in us, the more He will replace our natural life.
+God will not cut off our natural life, signified by the pagan tribes (see [note 23¹](<Exodus-23.fn#Footnote 23.1 — Amorites>)), all at once, because this would leave us inwardly vacant and in danger of being taken over by demons, signified by the animals of the field (cf. [[Matthew-12#v43|Matt. 12:43-45]]). God cuts off our natural life gradually, little by little, according to the degree of our growth in the divine life ([[Exodus-23#v30|v. 30]]). The more Christ increases in us, the more He will replace our natural life.
 
 ## Footnotes for verse 31
 
@@ -153,7 +153,7 @@ God will not cut off our natural life, signified by the pagan tribes (see note 2
 
 **Verse:** [[Exodus-23#v31|Exodus 23:31]]
 
-I.e., the Mediterranean Sea. The seas and the river here signify the waters of death, and the wilderness signifies barrenness. That the promised land, an elevated land full of life and the abundance of fruit ([[Deuteronomy-08#v7|Deut. 8:7-8]]), was surrounded by water and wilderness indicates that outside of Christ, the reality of the good land (see note 71 in [[Deuteronomy-08|Deut. 8]]), there is nothing but death and barrenness.
+I.e., the Mediterranean Sea. The seas and the river here signify the waters of death, and the wilderness signifies barrenness. That the promised land, an elevated land full of life and the abundance of fruit ([[Deuteronomy-08#v7|Deut. 8:7-8]]), was surrounded by water and wilderness indicates that outside of Christ, the reality of the good land (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]), there is nothing but death and barrenness.
 
 ### Footnote 31.2 — River
 
@@ -165,7 +165,7 @@ I.e., the Euphrates.
 
 **Verse:** [[Exodus-23#v31|Exodus 23:31]]
 
-God promised to drive out the pagan tribes ([[Exodus-23#v29|vv. 29-30]]), but God’s people had to cooperate with Him by taking the initiative in destroying them ([[Exodus-23#v31|vv. 31-33]]; cf. [[Romans-08#v13|Rom. 8:13]]; [[Galatians-05#v24|Gal. 5:24]]; [[Colossians-03#v5|Col. 3:5]]; [[Philippians-02#v12|Phil. 2:12-13]]). The more Christ increases in us, the more we will be able to cooperate with God in driving out the natural life. See note 291.
+God promised to drive out the pagan tribes ([[Exodus-23#v29|vv. 29-30]]), but God’s people had to cooperate with Him by taking the initiative in destroying them ([[Exodus-23#v31|vv. 31-33]]; cf. [[Romans-08#v13|Rom. 8:13]]; [[Galatians-05#v24|Gal. 5:24]]; [[Colossians-03#v5|Col. 3:5]]; [[Philippians-02#v12|Phil. 2:12-13]]). The more Christ increases in us, the more we will be able to cooperate with God in driving out the natural life. See [note 29¹](<Exodus-23.fn#Footnote 29.1 — one>).
 
 ## Footnotes for verse 32
 

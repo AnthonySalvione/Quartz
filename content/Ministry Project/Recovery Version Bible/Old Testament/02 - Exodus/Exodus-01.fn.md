@@ -53,7 +53,7 @@ In Hebrew the two names mean, respectively, mouth of integrity and thunder of th
 
 **Verse:** [[Exodus-01#v14|Exodus 1:14]]
 
-Cf. [[Genesis-11#v3|Gen. 11:3]] and note.
+Cf. [[Genesis-11#v3|Gen. 11:3]] and [note](<Genesis-11.fn#Footnote 3.1 — bricks>).
 
 ## Footnotes for verse 16
 

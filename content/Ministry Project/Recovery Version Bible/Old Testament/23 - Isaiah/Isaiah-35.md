@@ -1,7 +1,7 @@
 ## v1
 
 The wilderness and the desert will be glad;  
-And the desert will exult and blossom  
+And the [[Isaiah-35.fn#Footnote 1.1 — desert|desert]] will exult and blossom  
 Like the rose.
 
 ## v2
@@ -29,7 +29,7 @@ He will come and save you.
 
 ## v5
 
-Then the eyes of the blind will be opened,  
+Then the eyes of the blind will be [[Isaiah-35.fn#Footnote 5.1 — opened|opened]],  
 And the ears of the deaf will be unstopped;
 
 ## v6

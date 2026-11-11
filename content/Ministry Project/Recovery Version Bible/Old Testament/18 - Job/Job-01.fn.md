@@ -17,7 +17,7 @@ chapter_num: 1
 
 Job is a book of the debates of godly men concerning the purpose of the sufferings of the saints, that is, the purpose of God’s dealing with His people. The book is poetic in form, with the exception of [[Job-01|Job 1]] and 2 and the last eleven verses of [[Job-42|Job 42]]. Job is the first of the five books of poetry in the Scriptures, the other four being Psalms, Proverbs, Ecclesiastes, and Song of Songs. 
 
-The book of Job, written early in the progression of the divine revelation (see note 131, par. 2, in [[Job-02|Job 2]]), does not contain a clear revelation of God’s purpose in dealing with His people. This revelation was given not to Job but to Paul. As unveiled in Paul’s Epistles, God’s purpose in dealing with us is to strip us of all things and to consume us so that we may gain God more and more ([[Philippians-03#v8|Phil. 3:8]]; [[2 Corinthians-04#v16|2 Cor. 4:16]]). Cf. note 21 in [[Genesis-42|Gen. 42]] and note 261 in [[Psalm-73|Psa. 73]].
+The book of Job, written early in the progression of the divine revelation (see [note 13¹](<Job-02.fn#Footnote 13.1 — none>), par. 2, in [[Job-02|Job 2]]), does not contain a clear revelation of God’s purpose in dealing with His people. This revelation was given not to Job but to Paul. As unveiled in Paul’s Epistles, God’s purpose in dealing with us is to strip us of all things and to consume us so that we may gain God more and more ([[Philippians-03#v8|Phil. 3:8]]; [[2 Corinthians-04#v16|2 Cor. 4:16]]). Cf. [note 2¹](<Genesis-42.fn#Footnote 2.1 — go>) in [[Genesis-42|Gen. 42]] and note [26¹](<Psalm-73.fn#Footnote 26.1 — portion>) in [[Psalm-73|Psa. 73]].
 
 ### Footnote 1.2 — Uz
 
@@ -65,7 +65,7 @@ The sons of God are the angels (cf. [[1 Kings-22#v19|1 Kings 22:19-23]]; [[Psalm
 
 **Verse:** [[Job-01#v6|Job 1:6]]
 
-Lit., the satan, the adversary. So also through [[Job-02#v7|2:7]]. See note 101 in [[Matthew-04|Matt. 4]].
+Lit., the satan, the adversary. So also through [[Job-02#v7|2:7]]. See [note 10¹](<Matthew-04.fn#Footnote 10.1 — Satan>) in [[Matthew-04|Matt. 4]].
 
 ### Footnote 6.3 — among
 
@@ -81,7 +81,7 @@ Two thousand years after the time of Job, Jesus Christ destroyed Satan through H
 
 **Verse:** [[Job-01#v8|Job 1:8]]
 
-Only God knew that Job had a need—he did not have God within him. God’s boasting to Satan regarding Job’s perfection and uprightness ([[Job-01#v8|v. 8]]; [[Job-02#v3|2:3]]) was with the intention that Satan would do something for God to meet Job’s need. Satan, an evil angel, was willing to do what none of the good angels were willing to do, and he immediately accepted the dishonorable commission ([[Job-01#v12|v. 12]]; [[Job-02#v6|2:6]]). See note 63, par. 1.
+Only God knew that Job had a need—he did not have God within him. God’s boasting to Satan regarding Job’s perfection and uprightness ([[Job-01#v8|v. 8]]; [[Job-02#v3|2:3]]) was with the intention that Satan would do something for God to meet Job’s need. Satan, an evil angel, was willing to do what none of the good angels were willing to do, and he immediately accepted the dishonorable commission ([[Job-01#v12|v. 12]]; [[Job-02#v6|2:6]]). See [note 6³](<Job-01.fn#Footnote 6.3 — among>), par. 1.
 
 ## Footnotes for verse 9
 

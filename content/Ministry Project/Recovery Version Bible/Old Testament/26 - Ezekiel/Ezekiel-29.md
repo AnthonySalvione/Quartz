@@ -4,7 +4,7 @@ In the tenth year, in the tenth month, on the twelfth day of the month, the word
 
 ## v2
 
-Son of man, set your face against Pharaoh, the king of Egypt, and prophesy against him and against all Egypt.
+Son of man, set your face against Pharaoh, the king of [[Ezekiel-29.fn#Footnote 2.1 — Egypt|Egypt]], and prophesy against him and against all Egypt.
 
 ## v3
 
@@ -99,4 +99,4 @@ I have given him the land of Egypt as his recompense for which he labored, becau
 
 ## v21
 
-In that day I will cause a horn to sprout for the house of Israel, and I will give you an open mouth in their midst. Then they will know that I am Jehovah.
+In that day I will cause a [[Ezekiel-29.fn#Footnote 21.1 — horn|horn]] to sprout for the house of Israel, and I will give you an open mouth in their midst. Then they will know that I am Jehovah.

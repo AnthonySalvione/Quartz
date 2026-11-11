@@ -21,7 +21,7 @@ Lit., my soul.
 
 **Verse:** [[Genesis-27#v4|Genesis 27:4]]
 
-See note 23¹ in [[Numbers-06|Num. 6]].
+See [note 23¹](<Numbers-06.fn#Footnote 23.1 — bless>) in [[Numbers-06|Num. 6]].
 
 ## Footnotes for verse 12
 

@@ -1,31 +1,34 @@
-### v1
+> *A Song of Ascents*
 
-I will lift up my eyes to the hills. / From where will my help come?
+---
+## v1
 
-### v2
+[[Psalm-121.fn#Footnote 1.1 — I|I]] will lift up my eyes to the [[Psalm-121.fn#Footnote 1.2 — hills|hills]]. / From where will my help come?
+
+## v2
 
 My help comes from Jehovah, / Who made heaven and earth.
 
-### v3
+## v3
 
 He will not let your foot slip; / He who keeps you will not slumber.
 
-### v4
+## v4
 
 Behold, Israel’s Keeper / Will neither slumber nor sleep.
 
-### v5
+## v5
 
 Jehovah is your Keeper; / Jehovah is your shade at your right hand.
 
-### v6
+## v6
 
 The sun will not strike you by day, / Nor the moon by night.
 
-### v7
+## v7
 
 Jehovah will keep you from all evil; / He will keep your soul.
 
-### v8
+## v8
 
 Jehovah will keep your going out and your coming in / From now and to eternity.

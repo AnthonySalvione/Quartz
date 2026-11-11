@@ -55,7 +55,7 @@ The word frequently refers to idols (cf. [[Jeremiah-08#v19|Jer. 8:19]]).
 
 **Verse:** [[Deuteronomy-32#v22|Deuteronomy 32:22]]
 
-See note 23¹ in [[Matthew-11|Matt. 11]].
+See [note 23¹](<Matthew-11.fn#Footnote 23.1 — Hades>) in [[Matthew-11|Matt. 11]].
 
 ## Footnotes for verse 36
 
@@ -101,7 +101,7 @@ Plural in Hebrew.
 
 **Verse:** [[Deuteronomy-32#v51|Deuteronomy 32:51]]
 
-See note 12¹ in [[Numbers-20|Num. 20]].
+See [note 12¹](<Numbers-20.fn#Footnote 12.1 — sanctify>) in [[Numbers-20|Num. 20]].
 
 ## Footnotes for verse 52
 
@@ -109,4 +109,4 @@ See note 12¹ in [[Numbers-20|Num. 20]].
 
 **Verse:** [[Deuteronomy-32#v52|Deuteronomy 32:52]]
 
-See note 26¹ in [[Deuteronomy-03|Deuteronomy 3]].
+See [note 26¹](<Deuteronomy-03.fn#Footnote 26.1 — Enough>) in [[Deuteronomy-03|Deuteronomy 3]].

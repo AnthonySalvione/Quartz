@@ -15,7 +15,7 @@ chapter_num: 23
 
 **Verse:** [[Numbers-23#v2|Numbers 23:2]]
 
-It was not clear to whom Balak and Balaam offered—to Jehovah or to Baal ([[Numbers-22#v41|22:41]] and note). Balaam worshipped in God’s way, but he mixed the worship of God with the worship of an idol. This kind of mixture in worship can be found in Roman Catholicism.
+It was not clear to whom Balak and Balaam offered—to Jehovah or to Baal ([[Numbers-22#v41|22:41]] and [note](<Numbers-22.fn#Footnote 41.1 — Bamoth-baal>)). Balaam worshipped in God’s way, but he mixed the worship of God with the worship of an idol. This kind of mixture in worship can be found in Roman Catholicism.
 
 ## Footnotes for verse 7
 

@@ -1,3 +1,6 @@
+> *To the choir director. A Psalm of David*
+
+---
 ## v1
 
 I waited patiently on Jehovah, / And He inclined to me / And heard my cry.
@@ -12,7 +15,7 @@ Then He put a new song in my mouth, / A praise to our God. / Many see it and fea
 
 ## v4
 
-Blessed is the man / Who makes Jehovah his trust / And does not turn to the proud / Or to those who turn aside after deception.
+[[Psalm-40.fn#Footnote 4.1 — Blessed|Blessed]] is the man / Who makes Jehovah his trust / And does not turn to the proud / Or to those who turn aside after deception.
 
 ## v5
 
@@ -20,11 +23,11 @@ Many, O Jehovah my God, are the wonderful deeds which You have done / And Your t
 
 ## v6
 
-You do not delight in sacrifice and offering; / You have prepared ears for Me; / You do not require burnt offering and sin offering.
+[[Psalm-40.fn#Footnote 6.1 — You|You]] do not delight in [[Psalm-40.fn#Footnote 6.2 — sacrifice|sacrifice]] and [[Psalm-40.fn#Footnote 6.2 — sacrifice|offering]]; / You have [[Psalm-40.fn#Footnote 6.3 — prepared|prepared]] ears for Me; / You do not require burnt offering and sin offering.
 
 ## v7
 
-Then I said, / Behold, I have come; / In the scroll of the book / It is written concerning Me.
+Then I said, / Behold, I have [[Psalm-40.fn#Footnote 7.1 — come|come]]; / In the [[Psalm-40.fn#Footnote 7.2 — scroll|scroll]] of the book / It is written concerning Me.
 
 ## v8
 

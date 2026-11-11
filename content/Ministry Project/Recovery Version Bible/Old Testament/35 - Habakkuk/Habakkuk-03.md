@@ -1,11 +1,11 @@
 ## v1
 
-A prayer of Habakkuk the prophet in shigionoth.
+A prayer of Habakkuk the prophet in [[Habakkuk-03.fn#Footnote 1.1 — shigionoth|shigionoth]].
 
 ## v2
 
 O Jehovah, I have heard the report concerning You and am afraid.  
-O Jehovah, revive Your work  
+O Jehovah, [[Habakkuk-03.fn#Footnote 2.1 — revive|revive]] Your work  
 In the midst of the years;  
 In the midst of the years make it known;  
 In wrath remember compassion.
@@ -13,7 +13,7 @@ In wrath remember compassion.
 ## v3
 
 God comes from Teman,  
-Even the Holy One from Mount Paran. Selah  
+Even the Holy One from Mount Paran. [[Habakkuk-03.fn#Footnote 3.1 — Selah|Selah]]  
 His splendor covers the heavens,  
 And the earth is filled with His praise.
 
@@ -30,7 +30,7 @@ And the fire bolt comes forth at His feet.
 
 ## v6
 
-He stands and measures the earth;  
+He stands and [[Habakkuk-03.fn#Footnote 6.1 — measures|measures]] the earth;  
 He looks and startles the nations;  
 And the ancient mountains are shattered into dust,  
 And the everlasting hills sink down;  
@@ -38,7 +38,7 @@ His goings are eternal.
 
 ## v7
 
-I see the tents of Cushan  
+I see the tents of [[Habakkuk-03.fn#Footnote 7.1 — Cushan|Cushan]]  
 Under affliction;  
 The tent curtains of the land of Midian tremble.
 
@@ -100,7 +100,7 @@ My lips quivered at the sound.
 Rottenness entered my bones,  
 And I tremble in my place,  
 Because I must wait quietly for the day of distress,  
-When he who attacks us comes up against the people.
+When [[Habakkuk-03.fn#Footnote 16.1 — he|he]] who attacks us comes up against the people.
 
 ## v17
 
@@ -121,4 +121,4 @@ I will rejoice in the God of my salvation.
 Jehovah the Lord is my strength;  
 And He makes my feet like hinds’ feet  
 And will cause me to walk on my high places.  
-For the choir director, with my stringed instruments.
+For the choir director, with [[Habakkuk-03.fn#Footnote 19.1 — my|my]] stringed instruments.

@@ -116,7 +116,7 @@ Yet the house of Israel says, The way of the Lord is not fair. Are My ways not f
 
 ## v30
 
-Therefore I will judge you, O house of Israel, each according to his ways, declares the Lord Jehovah. Repent, and turn away from all your transgressions so that iniquity will not become a stumbling block to you.
+Therefore I will judge you, O house of Israel, each according to his ways, declares the Lord Jehovah. [[Ezekiel-18.fn#Footnote 30.1 — Repent|Repent]], and turn away from all your transgressions so that iniquity will not become a stumbling block to you.
 
 ## v31
 

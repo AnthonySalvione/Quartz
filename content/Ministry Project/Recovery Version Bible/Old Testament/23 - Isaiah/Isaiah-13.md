@@ -1,6 +1,6 @@
 ## v1
 
-The burden concerning Babylon,  
+The burden concerning [[Isaiah-13.fn#Footnote 1.1 — Babylon|Babylon]],  
 Which Isaiah the son of Amoz saw:
 
 ## v2
@@ -34,7 +34,7 @@ To ruin all the land.
 
 ## v6
 
-Howl, for the day of Jehovah has drawn near!  
+Howl, for the [[Isaiah-13.fn#Footnote 6.1 — day|day]] of Jehovah has drawn near!  
 As destruction from the Almighty, it will come.
 
 ## v7
@@ -104,7 +104,7 @@ And their wives will be attacked.
 
 ## v17
 
-Now I rouse up the Medes against them,  
+Now [[Isaiah-13.fn#Footnote 17.1 — I|I]] rouse up the Medes against them,  
 Who will not esteem silver highly,  
 Nor take delight in gold.
 
@@ -131,13 +131,13 @@ Nor will the shepherds make their flocks lie down there.
 ## v21
 
 But desert animals will lie down there,  
-And their houses will be full of wild dogs;  
+And their houses will be full of [[Isaiah-13.fn#Footnote 21.1 — wild|wild]] dogs;  
 There ostriches will dwell,  
-And wild goats will prance there;
+And [[Isaiah-13.fn#Footnote 21.2 — wild|wild]] goats will prance there;
 
 ## v22
 
-Hyenas will respond in their citadels,  
+Hyenas will respond in their [[Isaiah-13.fn#Footnote 22.1 — citadels|citadels]],  
 And jackals in their exquisite palaces.  
 Her time is about to come,  
 And her days will not be prolonged.

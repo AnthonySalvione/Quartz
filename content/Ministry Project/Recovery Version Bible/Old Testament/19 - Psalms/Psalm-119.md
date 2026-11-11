@@ -1,703 +1,708 @@
-### v1
+> *Aleph*
 
-Blessed are those whose way is perfect, / Who walk in the law of Jehovah.
+> [!light] Note on Aleph:
+> [[Psalm-119|Psalm 119]] is one of the alphabetical, or acrostic, psalms. The first letters of each group of eight verses follow the order of the Hebrew alphabet. The twenty-two sections of this psalm thus correspond to the twenty-two letters of the Hebrew alphabet. Furthermore, all the verses in a particular section begin with the same Hebrew letter.
+---
+## v1
 
-### v2
+Blessed are those whose way is perfect, / Who walk in the [[Psalm-119.fn#Footnote 1.1 — law|law]] of Jehovah.
 
-Blessed are those who keep His testimonies, / Who seek Him with all their heart.
+## v2
 
-### v3
+Blessed are those who keep His [[Psalm-119.fn#Footnote 2.1 — testimonies|testimonies]], / Who [[Psalm-119.fn#Footnote 2.2 — seek|seek]] Him with all their heart.
+
+## v3
 
 Surely they do no wrong; / They walk in His ways.
 
-### v4
+## v4
 
 You have commanded that Your precepts / Be diligently kept.
 
-### v5
+## v5
 
-Oh that my ways may be established / So as to keep Your statutes!
+Oh that my ways may be established / So as to keep Your [[Psalm-119.fn#Footnote 5.1 — statutes|statutes]]!
 
-### v6
+## v6
 
 Then I will not be put to shame, / When I regard all Your commandments.
 
-### v7
+## v7
 
 I will give thanks to You with uprightness of heart / When I learn Your righteous ordinances.
 
-### v8
+## v8
 
 I will keep Your statutes; / Do not utterly forsake me.
 
-### v9
+## v9
 
-With what should a young man keep his way pure? / By guarding it according to Your word.
+With what should a young man keep his way pure? / By guarding it according to Your [[Psalm-119.fn#Footnote 9.1 — word|word]].
 
-### v10
+## v10
 
 With all my heart I have sought You; / Do not let me wander from Your commandments.
 
-### v11
+## v11
 
 In my heart I have treasured up Your word / That I might not sin against You.
 
-### v12
+## v12
 
 Blessed are You, O Jehovah; / Teach me Your statutes.
 
-### v13
+## v13
 
 With my lips I have declared / All the ordinances of Your mouth.
 
-### v14
+## v14
 
 I have rejoiced in the way of Your testimonies / As much as in all riches.
 
-### v15
+## v15
 
-I will muse upon Your precepts / And regard Your ways.
+I will [[Psalm-119.fn#Footnote 15.1 — muse|muse]] upon Your precepts / And regard Your ways.
 
-### v16
+## v16
 
 I will take delight in Your statutes; / I will not forget Your word.
 
-### v17
+## v17
 
 Deal bountifully with Your servant that I may live / And keep Your word.
 
-### v18
+## v18
 
 Open my eyes that I may behold / Wondrous things out of Your law.
 
-### v19
+## v19
 
 I am a sojourner in the earth; / Do not hide Your commandments from me.
 
-### v20
+## v20
 
 My soul is crushed with longing / For Your ordinances at all times.
 
-### v21
+## v21
 
 You have rebuked the proud, the cursed, / Who wander from Your commandments.
 
-### v22
+## v22
 
 Roll away from me reproach and contempt, / For I have kept Your testimonies.
 
-### v23
+## v23
 
 Princes as well have sat and spoken against me, / But Your servant mused upon Your statutes.
 
-### v24
+## v24
 
 Also Your testimonies are my delight; / They are my counselors.
 
-### v25
+## v25
 
 My soul clings to the dust; / Enliven me according to Your word.
 
-### v26
+## v26
 
 I have recounted my ways, and You have answered me; / Teach me Your statutes.
 
-### v27
+## v27
 
 Cause me to understand the way of Your precepts, / And I will muse upon Your wondrous deeds.
 
-### v28
+## v28
 
 My soul melts because of grief; / Strengthen me according to Your word.
 
-### v29
+## v29
 
 Remove from me the way of falsehood, / And graciously grant me Your law.
 
-### v30
+## v30
 
 I have chosen the way of faithfulness; / Your ordinances I have set before me.
 
-### v31
+## v31
 
 I cling to Your testimonies; / O Jehovah, do not put me to shame.
 
-### v32
+## v32
 
 I run the way of Your commandments, / For You enlarge my heart.
 
-### v33
+## v33
 
 Teach me, O Jehovah, the way of Your statutes; / And I will keep it to the end.
 
-### v34
+## v34
 
 Give me understanding, and I will observe Your law; / Indeed I will keep it with all my heart.
 
-### v35
+## v35
 
 Cause me to go on the path of Your commandments, / For in it I delight.
 
-### v36
+## v36
 
 Incline my heart to Your testimonies / And not to unjust gain.
 
-### v37
+## v37
 
 Turn my eyes from beholding vanity, / And enliven me in Your ways.
 
-### v38
+## v38
 
 Confirm to Your servant Your word, / Which is for fearing You.
 
-### v39
+## v39
 
 Turn away my reproach, which I fear; / For Your ordinances are good.
 
-### v40
+## v40
 
 Behold, I have longed after Your precepts; / Enliven me in Your righteousness.
 
-### v41
+## v41
 
 May Your lovingkindness also come to me, O Jehovah, / Your salvation according to Your word.
 
-### v42
+## v42
 
 Thus I will have an answer for him who reproaches me, / For I trust in Your word.
 
-### v43
+## v43
 
 And do not take the word of truth utterly from my mouth, / For I have hoped in Your ordinances.
 
-### v44
+## v44
 
 Thus I will keep Your law continually, / Forever and ever.
 
-### v45
+## v45
 
 And I will walk at liberty, / For I have sought Your precepts.
 
-### v46
+## v46
 
 I will also speak of Your testimonies before kings / And not be ashamed.
 
-### v47
+## v47
 
 And I will take delight in Your commandments, / Which I love.
 
-### v48
+## v48
 
-And I will lift up my hand to Your commandments, which I love; / And I will muse upon Your statutes.
+And I will [[Psalm-119.fn#Footnote 48.1 — lift|lift]] up my hand to Your commandments, which I love; / And I will muse upon Your statutes.
 
-### v49
+## v49
 
 Remember the word to Your servant / In which You have made me hope.
 
-### v50
+## v50
 
-This is my comfort in my affliction, / For Your word has enlivened me.
+This is my comfort in my affliction, / For Your word has [[Psalm-119.fn#Footnote 50.1 — enlivened|enlivened]] me.
 
-### v51
+## v51
 
 The proud have derided me greatly; / I have not swerved from Your law.
 
-### v52
+## v52
 
 I have remembered Your ordinances from long ago, / O Jehovah, and have comforted myself.
 
-### v53
+## v53
 
 Raging indignation seizes me because of the wicked, / Who forsake Your law.
 
-### v54
+## v54
 
 Your statutes have become my songs of praise / In the house of my pilgrimage.
 
-### v55
+## v55
 
 I have remembered Your name / In the night, O Jehovah, / And have kept Your law.
 
-### v56
+## v56
 
 This has been mine, / That I have kept Your precepts.
 
-### v57
+## v57
 
 Jehovah is my portion; / I have promised to keep Your words.
 
-### v58
+## v58
 
-I entreated Your favor with my whole heart; / Be gracious to me according to Your word.
+I entreated Your [[Psalm-119.fn#Footnote 58.1 — favor|favor]] with my whole heart; / Be gracious to me according to Your word.
 
-### v59
+## v59
 
 I considered my ways / And turned my feet toward Your testimonies.
 
-### v60
+## v60
 
 I hurried and did not delay / To keep Your commandments.
 
-### v61
+## v61
 
 The cords of the wicked surround me, / But I have not forgotten Your law.
 
-### v62
+## v62
 
 At midnight I rise up to give thanks to You / Because of Your righteous ordinances.
 
-### v63
+## v63
 
 I am a companion to all who fear You / And to those who keep Your precepts.
 
-### v64
+## v64
 
 Your lovingkindness, O Jehovah, fills the earth; / Teach me Your statutes.
 
-### v65
+## v65
 
 You have dealt well with Your servant, / O Jehovah, according to Your word.
 
-### v66
+## v66
 
 Teach me proper discernment and knowledge, / For I believe in Your commandments.
 
-### v67
+## v67
 
 Before I was afflicted, I went astray; / But now I keep Your word.
 
-### v68
+## v68
 
 You are good and One who does good; / Teach me Your statutes.
 
-### v69
+## v69
 
 The proud have plastered lies against me; / With my whole heart I will keep Your precepts.
 
-### v70
+## v70
 
 Their heart is heavy as with fat; / But I delight in Your law.
 
-### v71
+## v71
 
 It is good for me that I have been afflicted, / That I might learn Your statutes.
 
-### v72
+## v72
 
 The law of Your mouth is better to me / Than thousands of pieces of gold and silver.
 
-### v73
+## v73
 
 Your hands have made me and fashioned me; / Give me understanding that I may learn Your commandments.
 
-### v74
+## v74
 
 Those who fear You will see me and rejoice, / For I have hoped in Your word.
 
-### v75
+## v75
 
 I know, O Jehovah, that Your judgments are righteous / And that in faithfulness You afflicted me.
 
-### v76
+## v76
 
 Let Your lovingkindness, I beseech You, be my comfort, / According to Your word to Your servant.
 
-### v77
+## v77
 
 Let Your compassions come to me, and I will live; / For Your law is my delight.
 
-### v78
+## v78
 
 Let the proud be put to shame, for they have subverted my cause with a lie; / But I will muse upon Your precepts.
 
-### v79
+## v79
 
 Let those who fear You turn to me, / And they will know Your testimonies.
 
-### v80
+## v80
 
 May my heart be perfect in Your statutes, / That I may not be put to shame.
 
-### v81
+## v81
 
 My soul faints while longing for Your salvation; / I hope in Your word.
 
-### v82
+## v82
 
 My eyes faint while longing for Your word, / As I say, When will You comfort me?
 
-### v83
+## v83
 
 For I have become like a wineskin in the smoke; / But I do not forget Your statutes.
 
-### v84
+## v84
 
 How many are the days of Your servant? / When will You execute judgment upon my persecutors?
 
-### v85
+## v85
 
 The proud have dug pits for me, / Those who are not according to Your law.
 
-### v86
+## v86
 
 All Your commandments are faithful; / They persecute me falsely; help me.
 
-### v87
+## v87
 
 They have almost consumed me upon the earth; / But I have not forsaken Your precepts.
 
-### v88
+## v88
 
 Enliven me according to Your lovingkindness, / And I will keep the testimony of Your mouth.
 
-### v89
+## v89
 
 Forever, O Jehovah, / Does Your word stand firm in heaven.
 
-### v90
+## v90
 
 Your faithfulness is from generation to generation; / You established the earth, and it abides.
 
-### v91
+## v91
 
 They abide to this day according to Your ordinances, / For all things are Your servants.
 
-### v92
+## v92
 
 Unless Your law had been my delight, / I would have perished in my affliction.
 
-### v93
+## v93
 
 I will never forget Your precepts, / For by them You have enlivened me.
 
-### v94
+## v94
 
 I am Yours; save me, / For I have sought Your precepts.
 
-### v95
+## v95
 
 The wicked have waited for me in order to destroy me, / But I consider Your testimonies.
 
-### v96
+## v96
 
 I have seen an end to all perfection, / But Your commandment is all-expansive.
 
-### v97
+## v97
 
 Oh, how I love Your law! / All day long it is my musing.
 
-### v98
+## v98
 
 Your commandments make me wiser than my enemies, / For they are always with me.
 
-### v99
+## v99
 
 I have more insight than all my teachers, / For Your testimonies are my musing.
 
-### v100
+## v100
 
 I understand more than the aged, / For I have kept Your precepts.
 
-### v101
+## v101
 
 I have withheld my feet from every evil way, / That I might keep Your word.
 
-### v102
+## v102
 
 I have not turned aside from Your ordinances, / For You have taught me.
 
-### v103
+## v103
 
 How sweet are Your words to my taste! / Sweeter than honey to my mouth!
 
-### v104
+## v104
 
 Through Your precepts I gain understanding; / Therefore I hate every false way.
 
-### v105
+## v105
 
 Your word is a lamp to my feet / And a light to my path.
 
-### v106
+## v106
 
 I have sworn and will confirm it, / That I will keep Your righteous ordinances.
 
-### v107
+## v107
 
 I have been greatly afflicted; / O Jehovah, enliven me according to Your word.
 
-### v108
+## v108
 
 Accept, I pray, the freewill offerings of my mouth, O Jehovah; / And teach me Your ordinances.
 
-### v109
+## v109
 
 My soul is continually in my hand, / But I do not forget Your law.
 
-### v110
+## v110
 
 The wicked have laid a trap for me, / But I do not stray from Your precepts.
 
-### v111
+## v111
 
 Your testimonies are my heritage forever, / For they are the gladness of my heart.
 
-### v112
+## v112
 
 I have inclined my heart to perform Your statutes / Forever, to the end.
 
-### v113
+## v113
 
 I hate those who are double-minded, / But I love Your law.
 
-### v114
+## v114
 
 You are my hiding place and my shield; / In Your word do I hope.
 
-### v115
+## v115
 
 Depart from me, you evildoers, / That I may keep the commandments of my God.
 
-### v116
+## v116
 
 Uphold me according to Your word that I may live, / And do not let me be ashamed of my hope.
 
-### v117
+## v117
 
 Hold me up that I may be safe, / And I will regard Your statutes continually.
 
-### v118
+## v118
 
 You spurn all those who stray from Your statutes, / For their deceitfulness is vain.
 
-### v119
+## v119
 
 You do away with all the wicked ones of the earth like dross; / Therefore I love Your testimonies.
 
-### v120
+## v120
 
 My flesh trembles for fear of You, / And I am afraid of Your judgments.
 
-### v121
+## v121
 
 I have performed judgment and righteousness; / Do not leave me to my oppressors.
 
-### v122
+## v122
 
 Guarantee Your servant’s well-being; / Do not let the proud oppress me.
 
-### v123
+## v123
 
 My eyes faint while longing for Your salvation / And for Your righteous word.
 
-### v124
+## v124
 
 Deal with Your servant according to Your lovingkindness, / And teach me Your statutes.
 
-### v125
+## v125
 
 I am Your servant; give me understanding, / That I may know Your testimonies.
 
-### v126
+## v126
 
 It is time for Jehovah to act, / For they have broken Your law.
 
-### v127
+## v127
 
 Therefore I love Your commandments / More than gold, indeed, more than fine gold;
 
-### v128
+## v128
 
 Therefore I esteem all Your precepts concerning all things to be right, / And I hate every false way.
 
-### v129
+## v129
 
 Your testimonies are wonderful; / Therefore my soul keeps them.
 
-### v130
+## v130
 
-The opening of Your words gives light, / Imparting understanding to the simple.
+The [[Psalm-119.fn#Footnote 130.1 — opening|opening]] of Your words gives light, / Imparting understanding to the simple.
 
-### v131
+## v131
 
 I opened my mouth wide and panted, / For I longed for Your commandments.
 
-### v132
+## v132
 
 Turn to me, and be gracious to me, / As is Your custom with those who love Your name.
 
-### v133
+## v133
 
 Establish my footsteps in Your word, / And do not let any iniquity have dominion over me.
 
-### v134
+## v134
 
 Redeem me from man’s oppression, / That I may keep Your precepts.
 
-### v135
+## v135
 
 Cause Your face to shine on Your servant, / And teach me Your statutes.
 
-### v136
+## v136
 
-My eyes shed streams of water, / Because men do not keep Your law.
+My eyes shed streams of water, / Because [[Psalm-119.fn#Footnote 136.1 — men|men]] do not keep Your law.
 
-### v137
+## v137
 
 You are righteous, O Jehovah; / And Your judgments are upright.
 
-### v138
+## v138
 
 You have commanded Your testimonies in righteousness / And great faithfulness.
 
-### v139
+## v139
 
 My zeal has consumed me, / For my adversaries have forgotten Your words.
 
-### v140
+## v140
 
 Your word is very pure, / And Your servant loves it.
 
-### v141
+## v141
 
 I am small and despised, / But I do not forget Your precepts.
 
-### v142
+## v142
 
 Your righteousness is an eternal righteousness, / And Your law is truth.
 
-### v143
+## v143
 
 Distress and anguish have come upon me, / But Your commandments are my delight.
 
-### v144
+## v144
 
 Your testimonies are righteous forever; / Give me understanding, and I will live.
 
-### v145
+## v145
 
 I called with my whole heart; answer me, O Jehovah. / I will keep Your statutes.
 
-### v146
+## v146
 
 I called upon You; save me, / And I will observe Your testimonies.
 
-### v147
+## v147
 
 I anticipated the dawn and cried out; / I hoped in Your words.
 
-### v148
+## v148
 
 My eyes anticipated the night watches, / That I might muse upon Your word.
 
-### v149
+## v149
 
 Hear my voice according to Your lovingkindness; / O Jehovah, according to Your ordinances enliven me.
 
-### v150
+## v150
 
 Those who persecute me with evil intent draw near; / They are far from Your law.
 
-### v151
+## v151
 
 You are near, O Jehovah; / And all Your commandments are truth.
 
-### v152
+## v152
 
 Of old I have known from Your testimonies / That You have founded them forever.
 
-### v153
+## v153
 
 Look at my affliction, and deliver me; / For I have not forgotten Your law.
 
-### v154
+## v154
 
 Plead my case, and redeem me; / Enliven me according to Your word.
 
-### v155
+## v155
 
 Salvation is far from the wicked, / For they do not seek Your statutes.
 
-### v156
+## v156
 
 Great are Your compassions, O Jehovah; / Enliven me according to Your ordinances.
 
-### v157
+## v157
 
 Many are my persecutors and my adversaries, / But I have not swerved from Your testimonies.
 
-### v158
+## v158
 
 I saw the treacherous and loathed them, / Because they did not keep Your word.
 
-### v159
+## v159
 
 See how I have loved Your precepts; / O Jehovah, enliven me according to Your lovingkindness.
 
-### v160
+## v160
 
 The sum of Your word is truth, / And all Your righteous ordinances are forever.
 
-### v161
+## v161
 
 Princes have persecuted me without cause, / But my heart stands in awe of Your words.
 
-### v162
+## v162
 
 I rejoice at Your word, / Like one who finds great spoil.
 
-### v163
+## v163
 
 I hate and abhor falsehood, / But I love Your law.
 
-### v164
+## v164
 
 Seven times a day I praise You / For Your righteous ordinances.
 
-### v165
+## v165
 
 There is great peace for those who love Your law, / And there is no occasion of stumbling for them.
 
-### v166
+## v166
 
 I have hoped for Your salvation, O Jehovah; / And I have done Your commandments.
 
-### v167
+## v167
 
 My soul has kept Your testimonies, / And I love them very much.
 
-### v168
+## v168
 
 I have kept Your precepts and Your testimonies, / For all my ways are before You.
 
-### v169
+## v169
 
 Let my cry come before You, O Jehovah; / Give me understanding according to Your word.
 
-### v170
+## v170
 
 Let my supplication come before You; / Deliver me according to Your word.
 
-### v171
+## v171
 
 Let my lips pour forth praise, / For You teach me Your statutes.
 
-### v172
+## v172
 
 Let my tongue sing of Your word, / For all Your commandments are righteousness.
 
-### v173
+## v173
 
 Let Your hand be ready to help me, / For I have chosen Your precepts.
 
-### v174
+## v174
 
 I have longed for Your salvation, O Jehovah, / And Your law is my delight.
 
-### v175
+## v175
 
 Let my soul live, and it will praise You; / And let Your ordinances help me.
 
-### v176
+## v176
 
 I have gone astray like a lost sheep; seek Your servant, / For I have not forgotten Your commandments.

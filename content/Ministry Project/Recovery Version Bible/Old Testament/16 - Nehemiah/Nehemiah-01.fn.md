@@ -29,7 +29,7 @@ The book of Ezra is a history of the return of Israel’s captivity and the rebu
 
 **Verse:** [[Nehemiah-01#v2|Nehemiah 1:2]]
 
-The city of Jerusalem was a safeguard and protection for the house of God, which was in the city. This signifies that the house of God as His dwelling and home on the earth needs His kingdom to be established as a realm to safeguard His interests on the earth for His administration, that He may carry out His economy. The rebuilding of the house of God typifies God’s recovery of the degraded church, and the rebuilding of the wall of the city of Jerusalem typifies God’s recovery of His kingdom. God’s building of His house and His building of His kingdom go together ([[Matthew-16#v18|Matt. 16:18-19]]). See note 13, par. 2, in [[Psalm-42|Psa. 42]].
+The city of Jerusalem was a safeguard and protection for the house of God, which was in the city. This signifies that the house of God as His dwelling and home on the earth needs His kingdom to be established as a realm to safeguard His interests on the earth for His administration, that He may carry out His economy. The rebuilding of the house of God typifies God’s recovery of the degraded church, and the rebuilding of the wall of the city of Jerusalem typifies God’s recovery of His kingdom. God’s building of His house and His building of His kingdom go together ([[Matthew-16#v18|Matt. 16:18-19]]). See [note 1³](<Psalm-42.fn#Footnote 1.3 — God>), par. 2, in [[Psalm-42|Psa. 42]].
 
 ## Footnotes for verse 7
 
@@ -37,7 +37,7 @@ The city of Jerusalem was a safeguard and protection for the house of God, which
 
 **Verse:** [[Nehemiah-01#v7|Nehemiah 1:7]]
 
-See note 6⁴ in [[Luke-01|Luke 1]].
+See [note 6⁴](<Luke-01.fn#Footnote 6.4 — ordinances>) in [[Luke-01|Luke 1]].
 
 ## Footnotes for verse 8
 

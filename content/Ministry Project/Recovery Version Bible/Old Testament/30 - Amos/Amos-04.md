@@ -85,7 +85,7 @@ Declares Jehovah.
 
 Therefore this is what I will do to you, O Israel; /  
 And because I will do this to you, /  
-Prepare to meet your God, O Israel.
+[[Amos-04.fn#Footnote 12.1 — Prepare|Prepare]] to meet your God, O Israel.
 
 ## v13
 

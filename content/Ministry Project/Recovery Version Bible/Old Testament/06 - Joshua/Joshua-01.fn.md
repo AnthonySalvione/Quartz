@@ -23,9 +23,9 @@ To take possession of God’s promised land for Christ and to provide the proper
 
 **Verse:** [[Joshua-01#v1|Joshua 1:1]]
 
-Meaning Jehovah the Savior, or the salvation of Jehovah. The Greek form of the name is Jesus (see note 211 in [[Matthew-01|Matt. 1]]). Joshua was the writer of this book. Through Moses God brought Israel as a people out of Egypt and through the wilderness to the border of the good land. After Moses, Joshua led the children of Israel to enter the God-promised land and to take it, possess it, allot it, and enjoy it. 
+Meaning Jehovah the Savior, or the salvation of Jehovah. The Greek form of the name is Jesus (see [note 21¹](<Matthew-01.fn#Footnote 21.1 — Jesus>) in [[Matthew-01|Matt. 1]]). Joshua was the writer of this book. Through Moses God brought Israel as a people out of Egypt and through the wilderness to the border of the good land. After Moses, Joshua led the children of Israel to enter the God-promised land and to take it, possess it, allot it, and enjoy it. 
 
-Joshua typifies Christ and also grace (Christ) replacing the law (Moses) ([[John-01#v17|John 1:17]]). It was when Moses the lawgiver died that Joshua came in ([[Joshua-01#v2|v. 2]]) to bring the people into the good land ([[Joshua-01#v6|v. 6]]), typifying the Lord Jesus bringing the people of God into rest, into the enjoyment of the all-inclusive Christ ([[Hebrews-04#v8|Heb. 4:8]]) as all the blessings ordained by God ([[Ephesians-01#v3|Eph. 1:3-14]]). Christ has brought us into the good land, has taken possession of the land for us, and has allotted the land to us as our inheritance for our enjoyment. Christ has gained the good land for us, and eventually He is the good land for us to enjoy (see note 71 in [[Deuteronomy-08|Deut. 8]]).
+Joshua typifies Christ and also grace (Christ) replacing the law (Moses) ([[John-01#v17|John 1:17]]). It was when Moses the lawgiver died that Joshua came in ([[Joshua-01#v2|v. 2]]) to bring the people into the good land ([[Joshua-01#v6|v. 6]]), typifying the Lord Jesus bringing the people of God into rest, into the enjoyment of the all-inclusive Christ ([[Hebrews-04#v8|Heb. 4:8]]) as all the blessings ordained by God ([[Ephesians-01#v3|Eph. 1:3-14]]). Christ has brought us into the good land, has taken possession of the land for us, and has allotted the land to us as our inheritance for our enjoyment. Christ has gained the good land for us, and eventually He is the good land for us to enjoy (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]).
 
 ## Footnotes for verse 2
 
@@ -33,7 +33,7 @@ Joshua typifies Christ and also grace (Christ) replacing the law (Moses) ([[John
 
 **Verse:** [[Joshua-01#v2|Joshua 1:2]]
 
-God’s charge to Joshua was that he should enter into God’s promised land. The land of Canaan with all its riches typifies the God-given Christ with all His unsearchable riches ([[Ephesians-03#v8|Eph. 3:8]]; [[Colossians-01#v12|Col. 1:12-13]]). For the carrying out of His economy, God needs a people and a land (see note 31 in [[Genesis-15|Gen. 15]]). For Christ’s person in God’s economy, there is the need of a people to be His genealogy to bring Him into humanity. For Christ’s kingdom, there is the need of a land. Although the earth was created by God, it has been usurped by Satan. Thus, God uses His people to gain a part of the Satan-usurped earth to serve as a base for Him to set up His kingdom.
+God’s charge to Joshua was that he should enter into God’s promised land. The land of Canaan with all its riches typifies the God-given Christ with all His unsearchable riches ([[Ephesians-03#v8|Eph. 3:8]]; [[Colossians-01#v12|Col. 1:12-13]]). For the carrying out of His economy, God needs a people and a land (see [note 3¹](<Genesis-15.fn#Footnote 3.1 — seed>) in [[Genesis-15|Gen. 15]]). For Christ’s person in God’s economy, there is the need of a people to be His genealogy to bring Him into humanity. For Christ’s kingdom, there is the need of a land. Although the earth was created by God, it has been usurped by Satan. Thus, God uses His people to gain a part of the Satan-usurped earth to serve as a base for Him to set up His kingdom.
 
 ## Footnotes for verse 3
 
@@ -41,7 +41,7 @@ God’s charge to Joshua was that he should enter into God’s promised land. Th
 
 **Verse:** [[Joshua-01#v3|Joshua 1:3]]
 
-On the one hand, God had given Israel the good land; on the other hand, Israel still needed to take the land by rising up to fulfill God’s commission (cf. [[Philippians-03#v7|Phil. 3:7-16]]). In order for God to regain the earth from the usurping hand of Satan, God’s people needed to be in full cooperation and coordination with God as in the principle of incarnation (see note 402 in [[1 Corinthians-07|1 Cor. 7]]). They needed to sacrifice themselves, deny themselves, give up their own interest and preference in all things, put their full trust in the moving and operating God, and risk their lives for the carrying out of God’s eternal economy.
+On the one hand, God had given Israel the good land; on the other hand, Israel still needed to take the land by rising up to fulfill God’s commission (cf. [[Philippians-03#v7|Phil. 3:7-16]]). In order for God to regain the earth from the usurping hand of Satan, God’s people needed to be in full cooperation and coordination with God as in the principle of incarnation (see [note 40²](<1 Corinthians-07.fn#Footnote 40.2 — also>) in [[1 Corinthians-07|1 Cor. 7]]). They needed to sacrifice themselves, deny themselves, give up their own interest and preference in all things, put their full trust in the moving and operating God, and risk their lives for the carrying out of God’s eternal economy.
 
 ## Footnotes for verse 4
 
@@ -49,7 +49,7 @@ On the one hand, God had given Israel the good land; on the other hand, Israel s
 
 **Verse:** [[Joshua-01#v4|Joshua 1:4]]
 
-I.e., the Mediterranean Sea. So throughout the book. See note 241 in [[Deuteronomy-11|Deut. 11]].
+I.e., the Mediterranean Sea. So throughout the book. See [note 24¹](<Deuteronomy-11.fn#Footnote 24.1 — farmost>) in [[Deuteronomy-11|Deut. 11]].
 
 ## Footnotes for verse 8
 
@@ -57,7 +57,7 @@ I.e., the Mediterranean Sea. So throughout the book. See note 241 in [[Deuterono
 
 **Verse:** [[Joshua-01#v8|Joshua 1:8]]
 
-Joshua was to be occupied with God’s word and to let the word occupy him (cf. [[Colossians-03#v16|Col. 3:16]]). By being occupied and filled with the word, he would have prosperity and success in taking the God-promised good land. See note 151 in [[Psalm-119|Psa. 119]].
+Joshua was to be occupied with God’s word and to let the word occupy him (cf. [[Colossians-03#v16|Col. 3:16]]). By being occupied and filled with the word, he would have prosperity and success in taking the God-promised good land. See [note 15¹](<Psalm-119.fn#Footnote 15.1 — muse>) in [[Psalm-119|Psa. 119]].
 
 ## Footnotes for verse 12
 

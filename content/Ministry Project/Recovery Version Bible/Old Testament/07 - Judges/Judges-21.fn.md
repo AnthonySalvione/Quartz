@@ -23,4 +23,4 @@ Lit., devote (i.e., to destruction).
 
 **Verse:** [[Judges-21#v25|Judges 21:25]]
 
-See note 6¹ in [[Judges-17|Judges 17]].
+See [note 6¹](<Judges-17.fn#Footnote 6.1 — no>) in [[Judges-17|Judges 17]].

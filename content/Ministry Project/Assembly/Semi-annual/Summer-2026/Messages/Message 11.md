@@ -5,7 +5,7 @@ hymn:
   - "[[Hymn-893]]"
 training: Semi-Annual Summer
 ---
-[[Message 10|⇐ Previous Message]] | [[Message 12|Next Message ⇒]]
+[[Ministry Project/Assembly/Semi-annual/Summer-2026/Messages/Message 10|⇐ Previous Message]] | [[Ministry Project/Assembly/Semi-annual/Summer-2026/Messages/Message 12|Next Message ⇒]]
 
 ---
 Singing bros — Abdel mendoza and David ferraro

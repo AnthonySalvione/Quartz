@@ -24,7 +24,7 @@ So that it cannot totter.
 
 ## v5
 
-They are like a post in a cucumber field,  
+They are like a [[Jeremiah-10.fn#Footnote 5.1 — post|post]] in a cucumber field,  
 And they cannot speak;  
 They must be carried  
 Because they cannot walk.  
@@ -71,7 +71,7 @@ And the nations cannot endure His indignation.
 
 ## v11
 
-Thus you shall say to them,  
+[[Jeremiah-10.fn#Footnote 11.1 — Thus|Thus]] you shall say to them,  
 The gods that did not make the heavens and the earth,  
 These will perish from the earth  
 And from under the heavens.
@@ -152,7 +152,7 @@ And all their flock is scattered.
 ## v22
 
 The sound of a report! Here it comes,  
-Even a great commotion from the land of the north,  
+Even a great commotion [[Jeremiah-10.fn#Footnote 22.1 — from|from]] the land of the north,  
 To make the cities of Judah  
 A desolation, a habitation of jackals.
 

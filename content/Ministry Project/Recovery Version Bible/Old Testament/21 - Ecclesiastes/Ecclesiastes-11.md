@@ -49,7 +49,7 @@ All that comes is vanity.
 
 ## v9
 
-Rejoice, young man, in your childhood,  
+Rejoice, [[Ecclesiastes-11.fn#Footnote 9.1 — young|young]] man, in your childhood,  
 And let your heart be merry in the days of your youth;  
 And walk in the ways of your heart  
 And in the sight of your eyes.  

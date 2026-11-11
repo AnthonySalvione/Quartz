@@ -15,7 +15,7 @@ chapter_num: 5
 
 **Verse:** [[Leviticus-05#v1|Leviticus 5:1]]
 
-See note 3⁴, par. 1, in [[Leviticus-04|Leviticus 4]].
+See [note 3⁴](<Leviticus-04.fn#Footnote 3.4 — sin>), par. 1, in [[Leviticus-04|Leviticus 4]].
 
 ### Footnote 1.2 — does
 
@@ -29,7 +29,7 @@ Not to testify the truth concerning what we know exposes the fact that we are no
 
 **Verse:** [[Leviticus-05#v2|Leviticus 5:2]]
 
-The word carcass here signifies death. The different kinds of animals in this verse typify different kinds of people ([[Leviticus-11#v1|11:1-30]] and notes), and the carcasses of these animals signify that different kinds of spiritual death may spread among God’s people in the church life. Regardless of its kind, death is unclean, filthy and defiling. Death is the most hateful thing in the eyes of God (cf. [[1 Corinthians-15#v26|1 Cor. 15:26]]). According to the typology in the Old Testament, death is more defiling than sin. See note 312 in [[Leviticus-11|Leviticus 11]].
+The word carcass here signifies death. The different kinds of animals in this verse typify different kinds of people ([[Leviticus-11#v1|11:1-30]] and notes), and the carcasses of these animals signify that different kinds of spiritual death may spread among God’s people in the church life. Regardless of its kind, death is unclean, filthy and defiling. Death is the most hateful thing in the eyes of God (cf. [[1 Corinthians-15#v26|1 Cor. 15:26]]). According to the typology in the Old Testament, death is more defiling than sin. See [note 31²](<Leviticus-11.fn#Footnote 31.2 — until>) in [[Leviticus-11|Leviticus 11]].
 
 ### Footnote 2.2 — swarming
 
@@ -43,7 +43,7 @@ Or, creeping, crawling.
 
 **Verse:** [[Leviticus-05#v3|Leviticus 5:3]]
 
-The uncleanness of man here signifies the uncleanness of the natural man, the natural life. Everything that is discharged from the natural man and the natural life, whether good or evil, is unclean (cf. [[Matthew-15#v17|Matt. 15:17-20]]; [[Matthew-16#v21|16:21-25]]). See notes 21 in [[Leviticus-12|Leviticus 12]] and 21 in [[Leviticus-15|Leviticus 15]].
+The uncleanness of man here signifies the uncleanness of the natural man, the natural life. Everything that is discharged from the natural man and the natural life, whether good or evil, is unclean (cf. [[Matthew-15#v17|Matt. 15:17-20]]; [[Matthew-16#v21|16:21-25]]). See notes [2¹](<Leviticus-12.fn#Footnote 2.1 — woman>) in [[Leviticus-12|Leviticus 12]] and [2¹](<Leviticus-15.fn#Footnote 2.1 — body>) in [[Leviticus-15|Leviticus 15]].
 
 ## Footnotes for verse 4
 
@@ -59,7 +59,7 @@ To speak rashly before God, expressing our opinion in a hasty, careless, and rec
 
 **Verse:** [[Leviticus-05#v6|Leviticus 5:6]]
 
-The trespass offering signifies Christ as the offering that resolves the problem of sins in our conduct. The experience of the trespass offering is the result of our enjoyment of Christ as the burnt offering, the meal offering, the peace offering, and the sin offering in our fellowship with the Triune God and in the divine light ([[1 John-01#v3|1 John 1:3-9]]). See note 34, pars. 1 and 2, in [[Leviticus-04|Leviticus 4]]. Christ’s being the meal offering in His perfect humanity qualifies Him to be the trespass offering (see note 371 in [[Mark-12|Mark 12]]).
+The trespass offering signifies Christ as the offering that resolves the problem of sins in our conduct. The experience of the trespass offering is the result of our enjoyment of Christ as the burnt offering, the meal offering, the peace offering, and the sin offering in our fellowship with the Triune God and in the divine light ([[1 John-01#v3|1 John 1:3-9]]). See [[Leviticus-04.fn#Footnote 3.4 — sin|note 3⁴]], pars. 1 and 2, in [[Leviticus-04|Leviticus 4]]. Christ’s being the meal offering in His perfect humanity qualifies Him to be the trespass offering (see [note 37¹](<Mark-12.fn#Footnote 37.1 — son>) in [[Mark-12|Mark 12]]).
 
 ### Footnote 6.2 — female
 
@@ -71,7 +71,7 @@ The trespass offering could be a female from the flock, a sheep or a goat, two t
 
 **Verse:** [[Leviticus-05#v6|Leviticus 5:6]]
 
-The trespass offering here eventually becomes the sin offering ([[Leviticus-05#v6|vv. 6-8]], [[Leviticus-05#v11|11-12]]). This reminds us that our sins issue from the sin that dwells in us. Christ’s redemption accomplished for our sin resolves the problem of sin in its two aspects—sin in our inward nature and sins in our outward conduct. See note 34, par. 1, in [[Leviticus-04|Leviticus 4]].
+The trespass offering here eventually becomes the sin offering ([[Leviticus-05#v6|vv. 6-8]], [[Leviticus-05#v11|11-12]]). This reminds us that our sins issue from the sin that dwells in us. Christ’s redemption accomplished for our sin resolves the problem of sin in its two aspects—sin in our inward nature and sins in our outward conduct. See [note 3⁴](<Leviticus-04.fn#Footnote 3.4 — sin>), par. 1, in [[Leviticus-04|Leviticus 4]].
 
 ## Footnotes for verse 7
 
@@ -103,13 +103,13 @@ The sprinkling of some of the blood of the trespass offering on the side of the 
 
 **Verse:** [[Leviticus-05#v11|Leviticus 5:11]]
 
-The fine flour here typifies the humanity of Jesus. This indicates that we commit sins not only because we have sin in our nature and not only because we are not absolute for God (see note 71) but also because we do not have the humanity of Jesus. In His humanity Jesus has no sin in Him and is absolutely for God. The tenth part of an ephah of fine flour offered for a sin offering signifies that only a small portion of the humanity of Jesus is needed to kill the negative things within us and to supply our need.
+The fine flour here typifies the humanity of Jesus. This indicates that we commit sins not only because we have sin in our nature and not only because we are not absolute for God (see [note 7¹](<Leviticus-05.fn#Footnote 7.1 — sin>)) but also because we do not have the humanity of Jesus. In His humanity Jesus has no sin in Him and is absolutely for God. The tenth part of an ephah of fine flour offered for a sin offering signifies that only a small portion of the humanity of Jesus is needed to kill the negative things within us and to supply our need.
 
 ### Footnote 11.2 — oil
 
 **Verse:** [[Leviticus-05#v11|Leviticus 5:11]]
 
-Putting no oil or frankincense on the sin offering signifies that the Holy Spirit and the fragrance of Christ’s resurrection are not involved with sin. Cf. notes 13 and 14 in [[Leviticus-02|Leviticus 2]].
+Putting no oil or frankincense on the sin offering signifies that the Holy Spirit and the fragrance of Christ’s resurrection are not involved with sin. Cf. notes [1³](<Leviticus-02.fn#Footnote 1.3 — oil>) and [1⁴](<Leviticus-02.fn#Footnote 1.4 — frankincense>) in [[Leviticus-02|Leviticus 2]].
 
 ## Footnotes for verse 12
 

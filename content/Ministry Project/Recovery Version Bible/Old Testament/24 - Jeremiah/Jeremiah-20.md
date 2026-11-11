@@ -17,7 +17,7 @@ And on the next day,
 When Pashhur released Jeremiah from the stocks,  
 Jeremiah said to him,  
 Jehovah no longer calls your name Pashhur,  
-But Magor-missabib.
+But [[Jeremiah-20.fn#Footnote 3.1 — Magor-missabib|Magor-missabib]].
 
 ## v4
 

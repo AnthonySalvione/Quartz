@@ -15,7 +15,7 @@ chapter_num: 11
 
 **Verse:** [[Deuteronomy-11#v8|Deuteronomy 11:8]]
 
-If we keep Christ and hold fast to Christ as God’s whole commandment (see note 31 in [[Deuteronomy-08|Deuteronomy 8]]), we will be strengthened and encouraged to go on to possess Christ ([[Deuteronomy-11#v8|vv. 8]], [[Deuteronomy-11#v24|24]]), i.e., to gain Christ ([[Philippians-03#v8|Phil. 3:8]]); our days will be extended in Christ ([[Deuteronomy-11#v9|vv. 9]], [[Deuteronomy-11#v21|21]]); God’s eyes will be upon us to care for us and give us the blessing of His presence ([[Deuteronomy-11#v12|v. 12]]); we will enjoy the heavenly rain, the watering of the Spirit, and reap a harvest of Christ ([[Deuteronomy-11#v14|vv. 14-15]]); and we will love God, walk in His ways, and hold fast to Him ([[Deuteronomy-11#v18|vv. 18-22]]).
+If we keep Christ and hold fast to Christ as God’s whole commandment (see [note 3¹](<Deuteronomy-08.fn#Footnote 3.1 — everything>) in [[Deuteronomy-08|Deuteronomy 8]]), we will be strengthened and encouraged to go on to possess Christ ([[Deuteronomy-11#v8|vv. 8]], [[Deuteronomy-11#v24|24]]), i.e., to gain Christ ([[Philippians-03#v8|Phil. 3:8]]); our days will be extended in Christ ([[Deuteronomy-11#v9|vv. 9]], [[Deuteronomy-11#v21|21]]); God’s eyes will be upon us to care for us and give us the blessing of His presence ([[Deuteronomy-11#v12|v. 12]]); we will enjoy the heavenly rain, the watering of the Spirit, and reap a harvest of Christ ([[Deuteronomy-11#v14|vv. 14-15]]); and we will love God, walk in His ways, and hold fast to Him ([[Deuteronomy-11#v18|vv. 18-22]]).
 
 ## Footnotes for verse 10
 
@@ -31,7 +31,7 @@ I.e., water with treadmills.
 
 **Verse:** [[Deuteronomy-11#v12|Deuteronomy 11:12]]
 
-Because we are practically joined to Christ as the reality of the good land and are enjoying His riches (see note 71 in [[Deuteronomy-08|Deuteronomy 8]]), God’s eyes are upon us continually, causing us to enjoy God’s presence and making us the object of His care.
+Because we are practically joined to Christ as the reality of the good land and are enjoying His riches (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deuteronomy 8]]), God’s eyes are upon us continually, causing us to enjoy God’s presence and making us the object of His care.
 
 ## Footnotes for verse 14
 
@@ -39,7 +39,7 @@ Because we are practically joined to Christ as the reality of the good land and 
 
 **Verse:** [[Deuteronomy-11#v14|Deuteronomy 11:14]]
 
-See note 23¹ in [[Joel-02|Joel 2]].
+See [note 23¹](<Joel-02.fn#Footnote 23.1 — early>) in [[Joel-02|Joel 2]].
 
 ## Footnotes for verse 18
 

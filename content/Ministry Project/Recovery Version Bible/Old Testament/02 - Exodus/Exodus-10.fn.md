@@ -15,7 +15,7 @@ chapter_num: 10
 
 **Verse:** [[Exodus-10#v8|Exodus 10:8]]
 
-See note 2¹ in [[Exodus-05|Exodus 5]].
+See [note 2¹](<Exodus-05.fn#Footnote 2.1 — Who>) in [[Exodus-05|Exodus 5]].
 
 ## Footnotes for verse 10
 
@@ -49,4 +49,4 @@ Both the blood of the first plague ([[Exodus-07#v15|7:15-25]]) and the darkness 
 
 **Verse:** [[Exodus-10#v24|Exodus 10:24]]
 
-See note 2¹ in [[Exodus-05|Exodus 5]].
+See [note 2¹](<Exodus-05.fn#Footnote 2.1 — Who>) in [[Exodus-05|Exodus 5]].

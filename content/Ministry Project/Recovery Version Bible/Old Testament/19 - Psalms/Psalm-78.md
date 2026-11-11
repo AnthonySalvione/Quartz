@@ -1,6 +1,11 @@
+> *A Maschil of Asaph*
+
+> [!light] Note on Maschil:
+> See note on the superscription of [[Psalm-32|Psa. 32]].
+---
 ## v1
 
-Give ear, O my people, to my instruction;  
+Give ear, O my people, to my [[Psalm-78.fn#Footnote 1.1 — instruction|instruction]];  
 Incline your ears to the words of my mouth.
 
 ## v2
@@ -206,7 +211,7 @@ And did not stir up all His wrath.
 ## v39
 
 And He remembered that they were flesh,  
-A wind that goes away and does not return.
+A [[Psalm-78.fn#Footnote 39.1 — wind|wind]] that goes away and does not return.
 
 ## v40
 
@@ -246,7 +251,7 @@ And their labor to the swarming locust.
 ## v47
 
 He killed their vines with hail,  
-And their sycamores with ice stones.
+And their sycamores with [[Psalm-78.fn#Footnote 47.1 — ice|ice]] stones.
 
 ## v48
 
@@ -318,8 +323,8 @@ The tent in which He dwelt among men;
 
 ## v61
 
-And He gave over His Ark into captivity,  
-And His glory into the hand of the adversary.
+And He gave over His [[Psalm-78.fn#Footnote 61.1 — Ark|Ark]] into captivity,  
+And His [[Psalm-78.fn#Footnote 61.2 — glory|glory]] into the hand of the adversary.
 
 ## v62
 
@@ -369,7 +374,7 @@ And took him from the sheepfolds;
 ## v71
 
 From following after the ewes He brought him  
-To shepherd Jacob His people  
+To [[Psalm-78.fn#Footnote 71.1 — shepherd|shepherd]] Jacob His people  
 And Israel His inheritance.
 
 ## v72

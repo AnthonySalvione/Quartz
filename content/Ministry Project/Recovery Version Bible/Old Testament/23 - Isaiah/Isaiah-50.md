@@ -26,7 +26,7 @@ And make sackcloth their covering.
 
 ## v4
 
-The Lord Jehovah has given me /  
+The Lord Jehovah has given [[Isaiah-50.fn#Footnote 4.1 — me|me]] /  
 The tongue of the instructed, /  
 That I should know how to sustain the weary with a word. /  
 He awakens me morning by morning; /  
@@ -41,7 +41,7 @@ Nor did I turn back.
 
 ## v6
 
-I gave my back to those who strike me /  
+[[Isaiah-50.fn#Footnote 6.1 — I|I]] gave my back to those who strike me /  
 And my cheeks to those who pluck out the hair; /  
 I did not hide my face /  
 From humiliation and spitting.

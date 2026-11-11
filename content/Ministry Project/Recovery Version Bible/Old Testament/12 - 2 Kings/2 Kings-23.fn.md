@@ -23,7 +23,7 @@ Or, tents; lit., houses.
 
 **Verse:** [[2 Kings-23#v10|2 Kings 23:10]]
 
-Gehenna of the New Testament (see note 228 in [[Matthew-05|Matt. 5]]).
+Gehenna of the New Testament (see [note 22⁸](<Matthew-05.fn#Footnote 22.8 — Gehenna>) in [[Matthew-05|Matt. 5]]).
 
 ## Footnotes for verse 15
 

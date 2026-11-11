@@ -4,11 +4,11 @@ And in the sixth year, in the sixth month, on the fifth of the month, as I sat i
 
 ## v2
 
-Then I looked, and there was a likeness like the appearance of fire: from His loins and downward, the appearance of fire; and from His loins and upward something like the appearance of brightness, like the sight of electrum.
+Then I looked, and there was a likeness like the appearance of [[Ezekiel-08.fn#Footnote 2.1 — fire|fire]]: from His loins and downward, the appearance of fire; and from His loins and upward something like the appearance of brightness, like the sight of [[Ezekiel-08.fn#Footnote 2.2 — electrum|electrum]].
 
 ## v3
 
-And He stretched out the form of a hand and took me by a lock of my head; and the Spirit lifted me up between the earth and heaven and brought me to Jerusalem in the visions of God, to the entrance of the gate of the inner court that faces north, where the seat of the idol of jealousy was, which provokes to jealousy.
+And He stretched out the form of a hand and took me by a lock of my head; and the Spirit lifted me up between the earth and heaven and brought me to Jerusalem in the visions of God, to the entrance of the gate of the inner court that faces north, where the seat of the idol of [[Ezekiel-08.fn#Footnote 3.1 — jealousy|jealousy]] was, which provokes to jealousy.
 
 ## v4
 
@@ -52,7 +52,7 @@ And He said to me, You will yet again see greater abominations that they are com
 
 ## v14
 
-Then He brought me to the entrance of the gate of the house of Jehovah that was toward the north; and women weeping for Tammuz were sitting there.
+Then He brought me to the entrance of the gate of the house of Jehovah that was toward the north; and women weeping for [[Ezekiel-08.fn#Footnote 14.1 — Tammuz|Tammuz]] were sitting there.
 
 ## v15
 

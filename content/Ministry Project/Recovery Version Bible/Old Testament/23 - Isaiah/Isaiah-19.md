@@ -122,14 +122,14 @@ And a pillar to Jehovah near its border;
 And it will become a sign and a testimony  
 To Jehovah of hosts in the land of Egypt;  
 For they will cry unto Jehovah because of their oppressors,  
-And He will send them a Savior and Mighty One;  
+And He will send them a [[Isaiah-19.fn#Footnote 20.1 — Savior|Savior]] and Mighty One;  
 And He will deliver them.
 
 ## v21
 
 And Jehovah will make Himself known to the Egyptians,  
 And the Egyptians will know Jehovah in that day;  
-They will worship Him with sacrifice and offering  
+They will [[Isaiah-19.fn#Footnote 21.1 — worship|worship]] Him with sacrifice and offering  
 And will vow a vow to Jehovah and accomplish it.
 
 ## v22

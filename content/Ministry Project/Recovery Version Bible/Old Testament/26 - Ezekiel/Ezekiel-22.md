@@ -12,7 +12,7 @@ And you shall say, Thus says the Lord Jehovah, A city that sheds blood in the mi
 
 ## v4
 
-You are guilty for the blood which you have shed and have defiled yourself with the idols which you have made; and you have caused your days to draw near and have come to your years. Therefore I have made you a reproach to the nations and a mocking to all the countries.
+You are guilty for [[Ezekiel-22.fn#Footnote 4.1 — the|the]] blood which you have shed and have defiled yourself with the idols which you have made; and you have caused your days to draw near and have come to your years. Therefore I have made you a reproach to the nations and a mocking to all the countries.
 
 ## v5
 

@@ -21,7 +21,7 @@ God had brought the children of Israel to the border of the good land, and they 
 
 **Verse:** [[Numbers-13#v2|Numbers 13:2]]
 
-See note 7¹ in [[Deuteronomy-08|Deut. 8]].
+See [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]].
 
 ## Footnotes for verse 16
 
@@ -35,7 +35,7 @@ Meaning he saved, or salvation.
 
 **Verse:** [[Numbers-13#v16|Numbers 13:16]]
 
-Meaning Jehovah Savior, or the salvation of Jehovah. The Greek form of the name is Jesus (see note 211 in [[Matthew-01|Matt. 1]]).
+Meaning Jehovah Savior, or the salvation of Jehovah. The Greek form of the name is Jesus (see [note 21¹](<Matthew-01.fn#Footnote 21.1 — Jesus>) in [[Matthew-01|Matt. 1]]).
 
 ## Footnotes for verse 21
 
@@ -51,7 +51,7 @@ Or, Lebo-hamath.
 
 **Verse:** [[Numbers-13#v22|Numbers 13:22]]
 
-See [[Numbers-13#v33|v. 33]] and note.
+See [[Numbers-13#v33|v. 33]] and [note](<Numbers-13.fn#Footnote 33.1 — Nephilim>).
 
 ## Footnotes for verse 24
 
@@ -67,4 +67,4 @@ Meaning cluster.
 
 **Verse:** [[Numbers-13#v33|Numbers 13:33]]
 
-See note 41 in [[Genesis-06|Gen. 6]]. Because the Nephilim, a mixture of fallen angels and fallen man, dwelt in the land of Canaan, God commanded the children of Israel to take over this land and to destroy every living being there so that the human race could be cleared up ([[Deuteronomy-07#v1|Deut. 7:1-2]]).
+See [note 4¹](<Genesis-06.fn#Footnote 4.1 — Nephilim>) in [[Genesis-06|Gen. 6]]. Because the Nephilim, a mixture of fallen angels and fallen man, dwelt in the land of Canaan, God commanded the children of Israel to take over this land and to destroy every living being there so that the human race could be cleared up ([[Deuteronomy-07#v1|Deut. 7:1-2]]).

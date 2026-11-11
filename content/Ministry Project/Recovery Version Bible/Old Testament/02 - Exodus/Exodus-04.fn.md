@@ -47,7 +47,7 @@ Lit., heavy of mouth and heavy of tongue. In [[Acts-07#v22|Acts 7:22]] Moses is 
 
 **Verse:** [[Exodus-04#v14|Exodus 4:14]]
 
-In keeping with the New Testament principle of the Body of Christ, God would not allow Moses to be individualistic in his service to God. Hence, God gave Aaron to Moses as a match for him (cf. [[Matthew-10#v2|Matt. 10:2-5]]; [[Luke-10#v1|Luke 10:1]]; [[1 Corinthians-01#v1|1 Cor. 1:1]] and note 3). According to [[Exodus-04#v16|v. 16]], the position each occupied in the matching relationship was determined entirely by God’s arrangement, not by man’s maneuvering.
+In keeping with the New Testament principle of the Body of Christ, God would not allow Moses to be individualistic in his service to God. Hence, God gave Aaron to Moses as a match for him (cf. [[Matthew-10#v2|Matt. 10:2-5]]; [[Luke-10#v1|Luke 10:1]]; [[1 Corinthians-01#v1|1 Cor. 1:1]] and [note 3](<1 Corinthians-01.fn#Footnote 1.3 — Sosthenes>)). According to [[Exodus-04#v16|v. 16]], the position each occupied in the matching relationship was determined entirely by God’s arrangement, not by man’s maneuvering.
 
 ## Footnotes for verse 22
 
@@ -55,7 +55,7 @@ In keeping with the New Testament principle of the Body of Christ, God would not
 
 **Verse:** [[Exodus-04#v22|Exodus 4:22]]
 
-See note 31¹ in [[Matthew-21|Matt. 21]].
+See [note 31¹](<Matthew-21.fn#Footnote 31.1 — first>) in [[Matthew-21|Matt. 21]].
 
 ## Footnotes for verse 25
 
@@ -63,7 +63,7 @@ See note 31¹ in [[Matthew-21|Matt. 21]].
 
 **Verse:** [[Exodus-04#v25|Exodus 4:25]]
 
-God’s seeking to kill Moses ([[Exodus-04#v24|v. 24]]) compelled Zipporah, Moses’ Gentile wife, to circumcise her son. This circumcising signified the cutting off of the natural life (see note 101 in [[Genesis-17|Gen. 17]]). This was required by God to usher Moses into his ministry, for an uncircumcised person, one who still lives in the flesh or the natural life, could have no part in God’s ministry or in the covenant God made with Abraham regarding the inheriting of the good land ([[Genesis-17#v9|Gen. 17:9-15]]). Those who would be used by God must bear the sign of having been “cut” subjectively in their natural life. After the matching by Aaron ([[Exodus-04#v14|vv. 14-16]]) and the cutting by Zipporah, God’s calling of Moses was complete.
+God’s seeking to kill Moses ([[Exodus-04#v24|v. 24]]) compelled Zipporah, Moses’ Gentile wife, to circumcise her son. This circumcising signified the cutting off of the natural life (see [note 10¹](<Genesis-17.fn#Footnote 10.1 — circumcised>) in [[Genesis-17|Gen. 17]]). This was required by God to usher Moses into his ministry, for an uncircumcised person, one who still lives in the flesh or the natural life, could have no part in God’s ministry or in the covenant God made with Abraham regarding the inheriting of the good land ([[Genesis-17#v9|Gen. 17:9-15]]). Those who would be used by God must bear the sign of having been “cut” subjectively in their natural life. After the matching by Aaron ([[Exodus-04#v14|vv. 14-16]]) and the cutting by Zipporah, God’s calling of Moses was complete.
 
 ### Footnote 25.2 — bridegroom
 

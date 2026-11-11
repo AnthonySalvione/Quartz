@@ -58,7 +58,7 @@ So that destruction comes upon the fortress.
 
 ## v10
 
-They hate him who reproves in the gate, /  
+They hate him who reproves in the [[Amos-05.fn#Footnote 10.1 — gate|gate]], /  
 And him who speaks with integrity they abhor.
 
 ## v11
@@ -74,7 +74,7 @@ But you will not drink their wine.
 
 For I know that your transgressions are many /  
 And that your sins are mighty, /  
-You who vex the righteous and take ransom payment /  
+You who vex the righteous and take [[Amos-05.fn#Footnote 12.1 — ransom|ransom]] payment /  
 And turn aside justice for the needy in the gate.
 
 ## v13
@@ -112,7 +112,7 @@ For I will pass through your midst, says Jehovah.
 ## v18
 
 Woe to you who desire /  
-The day of Jehovah! /  
+The [[Amos-05.fn#Footnote 18.1 — day|day]] of Jehovah! /  
 What good is the day of Jehovah to you? /  
 It will be darkness and not light,
 
@@ -130,8 +130,8 @@ Even deep darkness and no brightness to it?
 
 ## v21
 
-I hate, I despise, your feasts, /  
-And I will not delight in your solemn assemblies.
+I hate, I despise, your [[Amos-05.fn#Footnote 21.1 — feasts|feasts]], /  
+And I will not [[Amos-05.fn#Footnote 21.2 — delight|delight]] in your solemn assemblies.
 
 ## v22
 
@@ -146,8 +146,8 @@ For I will not hear the melody of your harps.
 
 ## v24
 
-But let justice roll down like water, /  
-And righteousness, like an ever-flowing river.
+But let [[Amos-05.fn#Footnote 24.1 — justice|justice]] roll down like water, /  
+And [[Amos-05.fn#Footnote 24.1 — justice|righteousness]], like an ever-flowing river.
 
 ## v25
 
@@ -156,7 +156,7 @@ In the wilderness for forty years, O house of Israel?
 
 ## v26
 
-Indeed, you took up Sikkuth your king /  
+Indeed, you took up [[Amos-05.fn#Footnote 26.1 — Sikkuth|Sikkuth]] your king /  
 And Kiyyun your images, the star of your gods that you made for yourselves.
 
 ## v27

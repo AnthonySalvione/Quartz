@@ -33,8 +33,8 @@ Declares Jehovah.
 
 Indeed, days are coming,  
 Declares Jehovah,  
-When I will raise up to David a righteous Shoot;  
-And He will reign as King and act prudently  
+When I will raise up to David a righteous [[Jeremiah-23.fn#Footnote 5.1 — Shoot|Shoot]];  
+And He will reign as [[Jeremiah-23.fn#Footnote 5.2 — King|King]] and act prudently  
 And will execute justice and righteousness in the land.
 
 ## v6
@@ -42,7 +42,7 @@ And will execute justice and righteousness in the land.
 In His days Judah will be saved,  
 And Israel will dwell securely;  
 And this is His name by which He will be called:  
-Jehovah our righteousness.
+[[Jeremiah-23.fn#Footnote 6.1 — Jehovah|Jehovah]] [[Jeremiah-23.fn#Footnote 6.2 — our|our]] [[Jeremiah-23.fn#Footnote 6.3 — righteousness|righteousness]].
 
 ## v7
 
@@ -124,7 +124,7 @@ From the prophets of Jerusalem into all the land.
 Thus says Jehovah of hosts,  
 Do not listen to the words of the prophets  
 Who are prophesying to you;  
-They are leading you to vanity;  
+They are leading you to [[Jeremiah-23.fn#Footnote 16.1 — vanity|vanity]];  
 They speak a vision of their own heart,  
 Not out of the mouth of Jehovah.
 
@@ -138,7 +138,7 @@ Evil will not come upon you.
 
 ## v18
 
-For who has stood in the council of Jehovah,  
+For who has stood in the [[Jeremiah-23.fn#Footnote 18.1 — council|council]] of Jehovah,  
 That he should perceive and hear His word?  
 Who has given heed to His word and listened?
 
@@ -209,19 +209,19 @@ The prophet who has a dream,
 Let him tell the dream;  
 And he with whom is My word,  
 Let him speak My word faithfully.  
-What is the straw to the grain?  
+What is the [[Jeremiah-23.fn#Footnote 28.1 — straw|straw]] to the [[Jeremiah-23.fn#Footnote 28.1 — straw|grain]]?  
 Declares Jehovah.
 
 ## v29
 
-Is not My word thus — like fire, declares Jehovah,  
-And like a hammer that breaks the rock in pieces?
+Is not My word thus — like [[Jeremiah-23.fn#Footnote 29.1 — fire|fire]], declares Jehovah,  
+And like a [[Jeremiah-23.fn#Footnote 29.1 — fire|hammer]] that breaks the rock in pieces?
 
 ## v30
 
 Therefore indeed, I am against the prophets,  
 Declares Jehovah,  
-Who steal My words,  
+Who [[Jeremiah-23.fn#Footnote 30.1 — steal|steal]] My words,  
 Each one from his neighbor.
 
 ## v31

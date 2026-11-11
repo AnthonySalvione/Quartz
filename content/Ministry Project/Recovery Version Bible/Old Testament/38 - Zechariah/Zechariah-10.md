@@ -1,6 +1,6 @@
 ## v1
 
-Ask rain of Jehovah /  
+Ask [[Zechariah-10.fn#Footnote 1.1 — rain|rain]] of Jehovah /  
 At the time of spring rain, /  
 Of Jehovah who makes the lightning, /  
 And He will give them showers of rain, /  
@@ -8,7 +8,7 @@ To everyone herbage in the field.
 
 ## v2
 
-For the teraphim have spoken vanity, /  
+For the [[Zechariah-10.fn#Footnote 2.1 — teraphim|teraphim]] have spoken [[Zechariah-10.fn#Footnote 2.2 — vanity|vanity]], /  
 And the diviners have seen a lie /  
 And have spoken false dreams; /  
 They comforted in vain. /  
@@ -18,13 +18,13 @@ They are afflicted because there is no shepherd.
 ## v3
 
 My anger is kindled against the shepherds, /  
-And I will punish the male goats; /  
-For Jehovah of hosts has visited His flock, the house of Judah, /  
-And will make them like His horse of majesty in battle.
+And I will punish the [[Zechariah-10.fn#Footnote 3.1 — male|male]] goats; /  
+For Jehovah of hosts has [[Zechariah-10.fn#Footnote 3.2 — visited|visited]] His flock, the house of Judah, /  
+And will make them like His [[Zechariah-10.fn#Footnote 3.3 — horse|horse]] of majesty in battle.
 
 ## v4
 
-From him will come forth the cornerstone, from him the peg, /  
+From [[Zechariah-10.fn#Footnote 4.1 — him|him]] will come forth the cornerstone, from him the peg, /  
 From him the battle bow, /  
 From him every ruler together.
 
@@ -77,6 +77,6 @@ And the scepter of Egypt will depart.
 
 ## v12
 
-And I will strengthen them in Jehovah, /  
+And [[Zechariah-10.fn#Footnote 12.1 — I|I]] will strengthen them in Jehovah, /  
 And they will walk about in His name, /  
 Declares Jehovah.

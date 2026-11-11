@@ -15,7 +15,7 @@ chapter_num: 3
 
 **Verse:** [[1 Samuel-03#v1|1 Samuel 3:1]]
 
-See note 20¹.
+See [note 20¹](<1 Samuel-03.fn#Footnote 20.1 — prophet>).
 
 ## Footnotes for verse 11
 

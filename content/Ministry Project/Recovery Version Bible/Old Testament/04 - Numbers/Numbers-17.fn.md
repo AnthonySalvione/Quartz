@@ -23,7 +23,7 @@ A rod signifies authority (cf. [[Revelation-02#v26|Rev. 2:26-27]]; [[Revelation-
 
 **Verse:** [[Numbers-17#v4|Numbers 17:4]]
 
-The testimony is the Ten Commandments in the Ark, which typifies Christ and was the place where God met with His people (see notes 341 in [[Exodus-16|Exo. 16]] and 101 in [[Exodus-25|Exo. 25]]). This signifies that everything had to be brought into the presence of God to allow God to make the real situation clear by speaking the truth to all the people through His vindication.
+The testimony is the Ten Commandments in the Ark, which typifies Christ and was the place where God met with His people (see notes [34¹](<Exodus-16.fn#Footnote 34.1 — Testimony>) in [[Exodus-16|Exo. 16]] and [10¹](<Exodus-25.fn#Footnote 10.1 — ark>) in [[Exodus-25|Exo. 25]]). This signifies that everything had to be brought into the presence of God to allow God to make the real situation clear by speaking the truth to all the people through His vindication.
 
 ## Footnotes for verse 8
 
@@ -41,7 +41,7 @@ Since the rebellion of Korah and his company in [[Numbers-16|Numbers 16]] was re
 
 **Verse:** [[Numbers-17#v10|Numbers 17:10]]
 
-The budding rod was placed in the Ark along with the hidden manna and the testimony of God, the law ([[Exodus-16#v32|Exo. 16:32-34]]; [[Deuteronomy-10#v5|Deut. 10:5]]; [[Hebrews-09#v4|Heb. 9:4]]). All three items are types of Christ. The three items placed in the Ark in the Holy of Holies also refer to the three of the Divine Trinity: the hidden manna in the golden pot refers to God the Father as the divine source of all supply ([[John-06#v32|John 6:32]]), the budding rod signifies Christ as the resurrection ([[John-11#v25|John 11:25]]), and the tablets of the law refer to the Spirit of life as the inner law ([[Romans-08#v2|Rom. 8:2]]). Thus, the Holy of Holies is the dwelling place of God in His Divine Trinity. When we enter into the Holy of Holies, i.e., into our regenerated spirit (see note 191 in [[Hebrews-10|Heb. 10]]), we enter into God and meet the Father as the source of supply, the Son as the resurrection, and the Spirit as the law of life.
+The budding rod was placed in the Ark along with the hidden manna and the testimony of God, the law ([[Exodus-16#v32|Exo. 16:32-34]]; [[Deuteronomy-10#v5|Deut. 10:5]]; [[Hebrews-09#v4|Heb. 9:4]]). All three items are types of Christ. The three items placed in the Ark in the Holy of Holies also refer to the three of the Divine Trinity: the hidden manna in the golden pot refers to God the Father as the divine source of all supply ([[John-06#v32|John 6:32]]), the budding rod signifies Christ as the resurrection ([[John-11#v25|John 11:25]]), and the tablets of the law refer to the Spirit of life as the inner law ([[Romans-08#v2|Rom. 8:2]]). Thus, the Holy of Holies is the dwelling place of God in His Divine Trinity. When we enter into the Holy of Holies, i.e., into our regenerated spirit (see [note 19¹](<Hebrews-10.fn#Footnote 19.1 — entering>) in [[Hebrews-10|Heb. 10]]), we enter into God and meet the Father as the source of supply, the Son as the resurrection, and the Spirit as the law of life.
 
 ## Footnotes for verse 12
 

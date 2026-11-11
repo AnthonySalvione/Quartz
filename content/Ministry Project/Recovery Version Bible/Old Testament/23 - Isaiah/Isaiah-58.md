@@ -16,9 +16,9 @@ They take delight in approaching God.
 
 ## v3
 
-Why have we fasted, and yet You do not see? /  
+Why have we [[Isaiah-58.fn#Footnote 3.1 — fasted|fasted]], and yet You do not see? /  
 Why have we afflicted our soul, and yet You do not acknowledge? /  
-Indeed, on the day of your fast you find delight, /  
+Indeed, on the day of your fast you [[Isaiah-58.fn#Footnote 3.2 — find|find]] delight, /  
 And oppress all your laborers.
 
 ## v4

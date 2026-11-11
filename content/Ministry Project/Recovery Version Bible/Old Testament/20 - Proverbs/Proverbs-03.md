@@ -16,7 +16,7 @@ Write them upon the tablet of your heart.
 
 ## v4
 
-Thus you will find favor and a reputation for fine understanding  
+Thus you will find [[Proverbs-03.fn#Footnote 4.1 — favor|favor]] and [[Proverbs-03.fn#Footnote 4.2 — a|a]] reputation for fine understanding  
 In the sight of God and man.
 
 ## v5
@@ -51,7 +51,7 @@ And your vats will burst open with new wine.
 
 ## v11
 
-My son, do not despise the chastening of Jehovah,  
+My son, do not despise the [[Proverbs-03.fn#Footnote 11.1 — chastening|chastening]] of Jehovah,  
 Nor be weary of His discipline;
 
 ## v12
@@ -61,7 +61,7 @@ Even as a father, the son in whom he delights.
 
 ## v13
 
-Blessed is the man who finds wisdom,  
+[[Proverbs-03.fn#Footnote 13.1 — Blessed|Blessed]] is the man who finds wisdom,  
 And the man who gains understanding.
 
 ## v14
@@ -91,7 +91,7 @@ And happy are those who hold her fast.
 
 ## v19
 
-Jehovah by wisdom founded the earth;  
+Jehovah by [[Proverbs-03.fn#Footnote 19.1 — wisdom|wisdom]] founded the earth;  
 He established the heavens by understanding;
 
 ## v20
@@ -171,5 +171,5 @@ But to the humble He gives grace.
 
 ## v35
 
-The wise will inherit honor,  
-But fools increase their own disgrace.
+The wise will inherit [[Proverbs-03.fn#Footnote 35.1 — honor|honor]],  
+[[Proverbs-03.fn#Footnote 35.2 — But|But]] fools increase their own disgrace.

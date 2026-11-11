@@ -23,4 +23,4 @@ The first two kings, David and Solomon, are important types of Christ in two asp
 
 **Verse:** [[1 Kings-02#v5|1 Kings 2:5]]
 
-David’s charges to Solomon in [[1 Kings-02#v5|vv. 5-9]] regarding Joab, Shimei, and Barzillai indicate that while David was on his deathbed he had no peace or comfort in his heart. His dealing with these persons was the issue of his indulgence in sin. God forgave him ([[2 Samuel-12#v13|2 Sam. 12:13]]), but God’s righteous judgment would not let him go. See note 101 in [[2 Samuel-12|2 Sam. 12]].
+David’s charges to Solomon in [[1 Kings-02#v5|vv. 5-9]] regarding Joab, Shimei, and Barzillai indicate that while David was on his deathbed he had no peace or comfort in his heart. His dealing with these persons was the issue of his indulgence in sin. God forgave him ([[2 Samuel-12#v13|2 Sam. 12:13]]), but God’s righteous judgment would not let him go. See [note 10¹](<2 Samuel-12.fn#Footnote 10.1 — sword>) in [[2 Samuel-12|2 Sam. 12]].

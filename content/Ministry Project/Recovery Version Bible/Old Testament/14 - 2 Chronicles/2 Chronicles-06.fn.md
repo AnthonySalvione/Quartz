@@ -15,7 +15,7 @@ chapter_num: 6
 
 **Verse:** [[2 Chronicles-06#v9|2 Chronicles 6:9]]
 
-See note 1³ in [[Matthew-01|Matt. 1]].
+See [note 1³](<Matthew-01.fn#Footnote 1.3 — son>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 28
 

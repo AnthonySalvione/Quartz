@@ -15,7 +15,7 @@ chapter_num: 19
 
 **Verse:** [[Job-19#v6|Job 19:6]]
 
-Job’s complaint against his friends ([[Job-19#v1|vv. 1-5]]) and toward God shows that he was very sensitive. In his sensitivity he thought that others were intending to damage him, and he misunderstood God, thinking that God had sent a troop against him ([[Job-19#v12|v. 12]]). In contrast to Job, Paul could rejoice in all that happened to him ([[Philippians-01#v18|Phil. 1:18]]; [[Philippians-04#v4|4:4]]; [[Colossians-01#v24|Col. 1:24]]). See note 111 in [[Job-03|Job 3]].
+Job’s complaint against his friends ([[Job-19#v1|vv. 1-5]]) and toward God shows that he was very sensitive. In his sensitivity he thought that others were intending to damage him, and he misunderstood God, thinking that God had sent a troop against him ([[Job-19#v12|v. 12]]). In contrast to Job, Paul could rejoice in all that happened to him ([[Philippians-01#v18|Phil. 1:18]]; [[Philippians-04#v4|4:4]]; [[Colossians-01#v24|Col. 1:24]]). See [note 11¹](<Job-03.fn#Footnote 11.1 — die>) in [[Job-03|Job 3]].
 
 ## Footnotes for verse 9
 
@@ -39,7 +39,7 @@ Job’s hope had been to build up the “tree” of his integrity, but God would
 
 **Verse:** [[Job-19#v11|Job 19:11]]
 
-Although God was stripping Job, He surely was not angry with him; neither did God consider Job His adversary but His intimate friend. See note 131 in [[Job-10|Job 10]].
+Although God was stripping Job, He surely was not angry with him; neither did God consider Job His adversary but His intimate friend. See [note 13¹](<Job-10.fn#Footnote 13.1 — hidden>) in [[Job-10|Job 10]].
 
 ## Footnotes for verse 17
 

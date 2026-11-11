@@ -35,7 +35,7 @@ His judgments are in all the earth.
 
 ## v8
 
-He has remembered His covenant forever,  
+He has remembered His [[Psalm-105.fn#Footnote 8.1 — covenant|covenant]] forever,  
 The word that He commanded to a thousand generations,
 
 ## v9
@@ -56,7 +56,7 @@ The portion of your inheritance;
 ## v12
 
 When they were men few in number,  
-Indeed very few and strangers in the land.
+Indeed very few and strangers in [[Psalm-105.fn#Footnote 12.1 — the|the]] land.
 
 ## v13
 
@@ -222,4 +222,4 @@ And they took possession of the labor of the peoples,
 
 So that they might keep His statutes  
 And observe His laws.  
-Hallelujah.
+[[Psalm-105.fn#Footnote 45.1 — Hallelujah|Hallelujah]].

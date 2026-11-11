@@ -1,6 +1,6 @@
 ## v1
 
-Then the word of Jehovah came to me, saying,
+[[Ezekiel-33.fn#Footnote 1.1 — Then|Then]] the word of Jehovah came to me, saying,
 
 ## v2
 
@@ -24,7 +24,7 @@ But if the watchman sees the sword come and does not blow the trumpet and the pe
 
 ## v7
 
-It is you, O son of man, whom I have appointed as a watchman to the house of Israel; therefore when you hear the word from My mouth, give them warning from Me.
+It is you, O son of man, whom I have appointed as a [[Ezekiel-33.fn#Footnote 7.1 — watchman|watchman]] to the house of Israel; therefore when you hear the word from My mouth, give them warning from Me.
 
 ## v8
 
@@ -32,7 +32,7 @@ When I say to the wicked, O wicked man, you will surely die, and you do not spea
 
 ## v9
 
-Yet if you warn the wicked man of his way to turn from it and he does not turn from his way, he will die in his iniquity, and you have delivered your soul.
+Yet if you warn the wicked man of his way to turn from it and he does not turn from his way, he will die in his iniquity, and you have [[Ezekiel-33.fn#Footnote 9.1 — delivered|delivered]] your soul.
 
 ## v10
 
@@ -44,7 +44,7 @@ Say to them, As I live, declares the Lord Jehovah, I have no pleasure in the dea
 
 ## v12
 
-And you, son of man, say to the children of your people, The righteousness of the righteous will not deliver him on the day of his transgression, and the wickedness of the wicked will not stumble him on the day he turns away from his wickedness. The righteous cannot be kept alive just because of his righteousness on the day he sins.
+And you, son of man, say to the children of your people, The righteousness of the righteous will not deliver him on the day of his transgression, and the wickedness of the wicked will not stumble him on the day he turns away from his wickedness. The righteous cannot be kept alive just because of his [[Ezekiel-33.fn#Footnote 12.1 — righteousness|righteousness]] on the day he sins.
 
 ## v13
 

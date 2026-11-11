@@ -15,7 +15,7 @@ chapter_num: 48
 
 **Verse:** [[Genesis-48#v3|Genesis 48:3]]
 
-Heb. El Shaddai. See note 12 in [[Genesis-17|Genesis 17]].
+Heb. El Shaddai. See [note 1²](<Genesis-17.fn#Footnote 1.2 — All-sufficient>) in [[Genesis-17|Genesis 17]].
 
 ## Footnotes for verse 5
 
@@ -23,9 +23,9 @@ Heb. El Shaddai. See note 12 in [[Genesis-17|Genesis 17]].
 
 **Verse:** [[Genesis-48#v5|Genesis 48:5]]
 
-Jacob made the two sons of Joseph, who was born of Rachel, his first two sons to replace Reuben and Simeon, who were born of Leah. In blessing Ephraim and Manasseh, Jacob gave Joseph a double portion of the land ([[Joshua-16|Josh. 16—17]]). Thus, the birthright among Jacob’s sons was shifted from Reuben to Joseph through Jacob’s desire to remember Rachel ([[Genesis-48#v7|v. 7]]). God honored what Jacob did and made it a fact by the allotting of the land at the time the children of Israel entered the good land. See note 23 in [[Matthew-01|Matt. 1]]. 
+Jacob made the two sons of Joseph, who was born of Rachel, his first two sons to replace Reuben and Simeon, who were born of Leah. In blessing Ephraim and Manasseh, Jacob gave Joseph a double portion of the land ([[Joshua-16|Josh. 16—17]]). Thus, the birthright among Jacob’s sons was shifted from Reuben to Joseph through Jacob’s desire to remember Rachel ([[Genesis-48#v7|v. 7]]). God honored what Jacob did and made it a fact by the allotting of the land at the time the children of Israel entered the good land. See [note 2³](<Matthew-01.fn#Footnote 2.3 — Judah>) in [[Matthew-01|Matt. 1]]. 
 
-In Genesis there are four cases of the shifting of the birthright. The shifting of the birthright from Esau to Jacob ([[Genesis-25#v22|25:22-26]], [[Genesis-25#v29|29-34]]) reveals that receiving the birthright does not depend on our natural birth but on God’s predestination ([[Romans-09#v10|Rom. 9:10-13]]). The shifting of the birthright from Zarah to Pharez ([[Genesis-38#v27|38:27-30]]) illustrates the fact that the granting of the birthright does not depend on man’s doing but on God’s choosing. The shifting of the birthright from Reuben to Joseph ([[Genesis-49#v3|49:3-4]]; [[1 Chronicles-05#v1|1 Chron. 5:1-2]]) reveals that, although we may be predestinated to have the birthright, we can lose it by indulging in fornication. The shifting of the birthright from Manasseh to Ephraim ([[Genesis-48#v12|vv. 12-20]]) shows that the Lord’s blessing does not depend on man’s natural maneuvering but on God’s desire and selection. The last case of the shifting of the birthright in the Scriptures is the shifting of the birthright from Israel to the church (see note 311 in [[Matthew-21|Matt. 21]]).
+In Genesis there are four cases of the shifting of the birthright. The shifting of the birthright from Esau to Jacob ([[Genesis-25#v22|25:22-26]], [[Genesis-25#v29|29-34]]) reveals that receiving the birthright does not depend on our natural birth but on God’s predestination ([[Romans-09#v10|Rom. 9:10-13]]). The shifting of the birthright from Zarah to Pharez ([[Genesis-38#v27|38:27-30]]) illustrates the fact that the granting of the birthright does not depend on man’s doing but on God’s choosing. The shifting of the birthright from Reuben to Joseph ([[Genesis-49#v3|49:3-4]]; [[1 Chronicles-05#v1|1 Chron. 5:1-2]]) reveals that, although we may be predestinated to have the birthright, we can lose it by indulging in fornication. The shifting of the birthright from Manasseh to Ephraim ([[Genesis-48#v12|vv. 12-20]]) shows that the Lord’s blessing does not depend on man’s natural maneuvering but on God’s desire and selection. The last case of the shifting of the birthright in the Scriptures is the shifting of the birthright from Israel to the church (see [note 31¹](<Matthew-21.fn#Footnote 31.1 — first>) in [[Matthew-21|Matt. 21]]).
 
 ## Footnotes for verse 7
 
@@ -57,7 +57,7 @@ Or, crossing his hands. Jacob’s father, Isaac, blessed blindly ([[Genesis-27#v
 
 **Verse:** [[Genesis-48#v15|Genesis 48:15]]
 
-Jacob’s threefold mentioning of God in [[Genesis-48#v15|vv. 15-16]] is a reference to the Triune God. The God before whom Abraham and Isaac walked is the Father; the God who shepherded Jacob his whole life is the Spirit; and the Angel who redeemed him from all evil is the Son. This is the Triune God in Jacob’s experience. See note 141 in [[2 Corinthians-13|2 Cor. 13]].
+Jacob’s threefold mentioning of God in [[Genesis-48#v15|vv. 15-16]] is a reference to the Triune God. The God before whom Abraham and Isaac walked is the Father; the God who shepherded Jacob his whole life is the Spirit; and the Angel who redeemed him from all evil is the Son. This is the Triune God in Jacob’s experience. See [note 14¹](<2 Corinthians-13.fn#Footnote 14.1 — grace>) in [[2 Corinthians-13|2 Cor. 13]].
 
 ### Footnote 15.2 — all
 

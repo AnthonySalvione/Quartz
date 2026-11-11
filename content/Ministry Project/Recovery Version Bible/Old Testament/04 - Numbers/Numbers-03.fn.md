@@ -39,7 +39,7 @@ The Tabernacle of the Testimony with all its furnishings and the altar ([[Number
 
 **Verse:** [[Numbers-03#v10|Numbers 3:10]]
 
-Or, number. See note 3³ in [[Numbers-01|Numbers 1]].
+Or, number. See [note 3³](<Numbers-01.fn#Footnote 3.3 — number>) in [[Numbers-01|Numbers 1]].
 
 ### Footnote 10.2 — stranger
 
@@ -69,7 +69,7 @@ God gave Jacob twelve sons so that there could be twelve tribes encamped around 
 
 **Verse:** [[Numbers-03#v31|Numbers 3:31]]
 
-See note 81. The Kohathites were to take care of the contents of the tabernacle ([[Numbers-03#v30|vv. 30-31]]; [[Numbers-04#v15|4:15]]). Spiritually, this signifies taking care of Christ, i.e., ministering Christ to others by presenting to them all the aspects of the rich Christ signified by the Ark, the table of the bread of the Presence, the lampstand, the altar of burnt offering, the incense altar, the vessels of the sanctuary, and the veil. The principle is the same in caring for all the items related to the tabernacle. See notes in [[Exodus-25|Exo. 25—30]] concerning the different parts of the tabernacle.
+See [note 8¹](<Numbers-03.fn#Footnote 8.1 — furnishings>). The Kohathites were to take care of the contents of the tabernacle ([[Numbers-03#v30|vv. 30-31]]; [[Numbers-04#v15|4:15]]). Spiritually, this signifies taking care of Christ, i.e., ministering Christ to others by presenting to them all the aspects of the rich Christ signified by the Ark, the table of the bread of the Presence, the lampstand, the altar of burnt offering, the incense altar, the vessels of the sanctuary, and the veil. The principle is the same in caring for all the items related to the tabernacle. See notes in [[Exodus-25|Exo. 25—30]] concerning the different parts of the tabernacle.
 
 ## Footnotes for verse 38
 

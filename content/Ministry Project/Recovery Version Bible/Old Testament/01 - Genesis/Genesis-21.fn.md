@@ -21,7 +21,7 @@ For [[Genesis-21#v1|vv. 1-13]] in this chapter, see notes in [[Galatians-04#v22|
 
 **Verse:** [[Genesis-21#v1|Genesis 21:1]]
 
-See note 14¹ in [[Genesis-18|Genesis 18]].
+See [note 14¹](<Genesis-18.fn#Footnote 14.1 — appointed>) in [[Genesis-18|Genesis 18]].
 
 ## Footnotes for verse 2
 
@@ -45,13 +45,13 @@ Meaning he laughs.
 
 **Verse:** [[Genesis-21#v4|Genesis 21:4]]
 
-See note 10¹ in [[Genesis-17|Genesis 17]].
+See [note 10¹](<Genesis-17.fn#Footnote 10.1 — circumcised>) in [[Genesis-17|Genesis 17]].
 
 ### Footnote 4.2 — eight
 
 **Verse:** [[Genesis-21#v4|Genesis 21:4]]
 
-See note 12¹ in [[Genesis-17|Genesis 17]].
+See [note 12¹](<Genesis-17.fn#Footnote 12.1 — eight>) in [[Genesis-17|Genesis 17]].
 
 ## Footnotes for verse 8
 
@@ -59,7 +59,7 @@ See note 12¹ in [[Genesis-17|Genesis 17]].
 
 **Verse:** [[Genesis-21#v8|Genesis 21:8]]
 
-The growth of Isaac signifies the growth of Christ in the New Testament believers after He is born in them. The growth of Christ in us is needed that Christ may be formed in us ([[Galatians-04#v19|Gal. 4:19]] and note 4).
+The growth of Isaac signifies the growth of Christ in the New Testament believers after He is born in them. The growth of Christ in us is needed that Christ may be formed in us ([[Galatians-04#v19|Gal. 4:19]] and [note 4](<Galatians-04.fn#Footnote 19.4 — formed>)).
 
 ## Footnotes for verse 9
 
@@ -67,7 +67,7 @@ The growth of Isaac signifies the growth of Christ in the New Testament believer
 
 **Verse:** [[Genesis-21#v9|Genesis 21:9]]
 
-See notes 29² in [[Galatians-04|Gal. 4]] and 17³ in [[Galatians-03|Gal. 3]].
+See notes [29²](<Galatians-04.fn#Footnote 29.2 — persecuted>) in [[Galatians-04|Gal. 4]] and [17³](<Galatians-03.fn#Footnote 17.3 — four>) in [[Galatians-03|Gal. 3]].
 
 ## Footnotes for verse 10
 
@@ -75,7 +75,7 @@ See notes 29² in [[Galatians-04|Gal. 4]] and 17³ in [[Galatians-03|Gal. 3]].
 
 **Verse:** [[Genesis-21#v10|Genesis 21:10]]
 
-The casting out of Hagar and Ishmael signifies the casting out of the law and the result of the effort of the flesh, which have no place in God’s economy (see notes 245 and 301 in [[Galatians-04|Gal. 4]]).
+The casting out of Hagar and Ishmael signifies the casting out of the law and the result of the effort of the flesh, which have no place in God’s economy (see notes [24⁵](<Galatians-04.fn#Footnote 24.5 — Hagar>) and [30¹](<Galatians-04.fn#Footnote 30.1 — son>) in [[Galatians-04|Gal. 4]]).
 
 ## Footnotes for verse 19
 
@@ -121,7 +121,7 @@ The covenant here, involving the redeeming of the well at Beer-sheba, is a seed 
 
 **Verse:** [[Genesis-21#v32|Genesis 21:32]]
 
-In typology, the Philistines signify a people who accept God but handle the things of God according to human cleverness, not according to God’s economy ([[1 Samuel-06#v1|1 Sam. 6:1-9]] and note 41).
+In typology, the Philistines signify a people who accept God but handle the things of God according to human cleverness, not according to God’s economy ([[1 Samuel-06#v1|1 Sam. 6:1-9]] and [[1 Samuel-06.fn#Footnote 4.1 — tumors|note 4¹]]).
 
 ## Footnotes for verse 33
 

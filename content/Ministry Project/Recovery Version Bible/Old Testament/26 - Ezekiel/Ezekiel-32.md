@@ -28,7 +28,7 @@ And satisfy the beasts of the whole earth with you.
 ## v5
 
 And I will lay your flesh upon the mountains  
-And fill the valleys with your corpse.
+And fill the valleys with your [[Ezekiel-32.fn#Footnote 5.1 — corpse|corpse]].
 
 ## v6
 

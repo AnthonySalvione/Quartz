@@ -39,4 +39,4 @@ Lit., secure.
 
 **Verse:** [[Genesis-34#v30|Genesis 34:30]]
 
-See note 1¹, par. 1, in [[Genesis-35|Genesis 35]].
+See [note 1¹](<Genesis-35.fn#Footnote 1.1 — Bethel>), par. 1, in [[Genesis-35|Genesis 35]].

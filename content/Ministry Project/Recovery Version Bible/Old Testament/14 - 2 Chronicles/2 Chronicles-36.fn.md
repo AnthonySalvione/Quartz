@@ -23,7 +23,7 @@ A spelling variant of Jehoahaz in [[2 Chronicles-36#v1|v. 1]]. So also in [[2 Ch
 
 **Verse:** [[2 Chronicles-36#v11|2 Chronicles 36:11]]
 
-See note 181 in [[2 Kings-24|2 Kings 24]].
+See [note 18¹](<2 Kings-24.fn#Footnote 18.1 — Zedekiah>) in [[2 Kings-24|2 Kings 24]].
 
 ## Footnotes for verse 15
 

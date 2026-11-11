@@ -117,8 +117,8 @@ And make it deep darkness.
 ## v17
 
 And if you will not hear it,  
-My soul will weep in secret places for your pride;  
-And my eye will weep bitterly and shed tears,  
+My soul will [[Jeremiah-13.fn#Footnote 17.1 — weep|weep]] in secret places for your pride;  
+And my eye will [[Jeremiah-13.fn#Footnote 17.1 — weep|weep]] bitterly and shed tears,  
 Because the flock of Jehovah has been taken captive.
 
 ## v18
@@ -159,7 +159,7 @@ That your heels suffer violence.
 
 ## v23
 
-Can the Cushite change his skin,  
+Can the [[Jeremiah-13.fn#Footnote 23.1 — Cushite|Cushite]] change his skin,  
 Or the leopard his spots?  
 Then you also may be able to do good,  
 Who are accustomed to do evil.

@@ -11,7 +11,7 @@ All your iniquities.
 
 ## v3
 
-Will two walk together /  
+[[Amos-03.fn#Footnote 3.1 — Will|Will]] two walk together /  
 If they have not met at an appointed place?
 
 ## v4
@@ -88,14 +88,14 @@ Declares the Lord Jehovah, the God of hosts.
 
 For in the day when I visit /  
 The transgressions of Israel upon him, /  
-I will visit the altars of Bethel, /  
+I will visit the altars of [[Amos-03.fn#Footnote 14.1 — Bethel|Bethel]], /  
 And the horns of the altar will be cut off /  
 And will fall to the ground.
 
 ## v15
 
-And I will strike the winter house /  
-Along with the summer house; /  
+And I will strike the [[Amos-03.fn#Footnote 15.1 — winter|winter]] house /  
+Along with the [[Amos-03.fn#Footnote 15.1 — winter|summer]] house; /  
 And the houses of ivory will perish, /  
 And many houses will come to an end, /  
 Declares Jehovah.

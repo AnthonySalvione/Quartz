@@ -23,4 +23,4 @@ For them to enter into a curse meant that they would curse themselves if they di
 
 **Verse:** [[Nehemiah-10#v37|Nehemiah 10:37]]
 
-See note 28¹ in [[Numbers-18|Num. 18]].
+See [note 28¹](<Numbers-18.fn#Footnote 28.1 — Aaron>) in [[Numbers-18|Num. 18]].

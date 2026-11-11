@@ -1,6 +1,11 @@
+> *Of David, when he disguised his sanity before Abimelech, who drove him out, and he departed*
+
+> [!light] Note on Abimelech:
+>  Probably a title referring to the kings of Philistia, as Pharaoh referred to the kings of Egypt.
+---
 ## v1
 
-I will bless Jehovah at all times; / His praise will continually be in my mouth.
+[[Psalm-34.fn#Footnote 1.1 — I|I]] will [[Psalm-34.fn#Footnote 1.2 — bless|bless]] Jehovah at all times; / His praise will continually be in my mouth.
 
 ## v2
 
@@ -20,7 +25,7 @@ They looked to Him and were radiant; / And their faces will never be abashed.
 
 ## v6
 
-This poor man called out, and Jehovah heard; / And He saved him out of all his troubles.
+This poor man called out, and Jehovah heard; / And He [[Psalm-34.fn#Footnote 6.1 — saved|saved]] him out of all his troubles.
 
 ## v7
 
@@ -28,7 +33,7 @@ The angel of Jehovah encamps / Around those who fear Him, and He delivers them.
 
 ## v8
 
-Taste and see that Jehovah is good; / Blessed is the man who takes refuge in Him.
+[[Psalm-34.fn#Footnote 8.1 — Taste|Taste]] and see that Jehovah is good; / [[Psalm-34.fn#Footnote 8.2 — Blessed|Blessed]] is the man who takes refuge in Him.
 
 ## v9
 
@@ -76,7 +81,7 @@ Many are the troubles of the righteous man, / But Jehovah delivers him from all 
 
 ## v20
 
-He keeps all his bones; / Not one of them is broken.
+He keeps all his bones; / [[Psalm-34.fn#Footnote 20.1 — Not|Not]] one of them is broken.
 
 ## v21
 

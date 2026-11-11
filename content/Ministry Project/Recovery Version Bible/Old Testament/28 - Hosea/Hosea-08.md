@@ -2,8 +2,8 @@
 
 A trumpet to your lips!  
 Like an eagle he comes against the house of Jehovah,  
-Because they have trespassed My covenant  
-And have transgressed against My law.
+Because they have trespassed My [[Hosea-08.fn#Footnote 1.1 — covenant|covenant]]  
+And have transgressed against My [[Hosea-08.fn#Footnote 1.1 — covenant|law]].
 
 ## v2
 
@@ -25,9 +25,9 @@ That they might be cut off.
 
 ## v5
 
-Your calf has cast you off, O Samaria;  
+Your [[Hosea-08.fn#Footnote 5.1 — calf|calf]] has cast you off, O [[Hosea-08.fn#Footnote 5.1 — calf|Samaria]];  
 My anger burns against them.  
-How long will they be incapable of innocence?
+How long will they be incapable of [[Hosea-08.fn#Footnote 5.2 — innocence|innocence]]?
 
 ## v6
 
@@ -89,5 +89,5 @@ They will return to Egypt.
 For Israel has forgotten his Maker  
 And has built palaces,  
 And Judah has multiplied fortified cities;  
-But I will send fire into his cities,  
+But I will send [[Hosea-08.fn#Footnote 14.1 — fire|fire]] into his cities,  
 And it will devour its citadels.

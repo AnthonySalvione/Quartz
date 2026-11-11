@@ -123,7 +123,7 @@ The adding of one-fifth of the valuation to redeem the house signifies that we s
 
 **Verse:** [[Leviticus-27#v16|Leviticus 27:16]]
 
-Spiritually, the devoting of a field, a part of the land, is related to the enjoyment of Christ as the rich land (see note 71 in [[Deuteronomy-08|Deut. 8]]). The more we devote ourselves and our possessions to God, the more we will enjoy Christ. All our devotions consummate in the enjoyment of Christ.
+Spiritually, the devoting of a field, a part of the land, is related to the enjoyment of Christ as the rich land (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]). The more we devote ourselves and our possessions to God, the more we will enjoy Christ. All our devotions consummate in the enjoyment of Christ.
 
 ### Footnote 16.2 — seed
 
@@ -169,7 +169,7 @@ Not consecrating the firstborn, which already belonged to Jehovah, signifies tha
 
 **Verse:** [[Leviticus-27#v27|Leviticus 27:27]]
 
-See note 11¹.
+See [note 11¹](<Leviticus-27.fn#Footnote 11.1 — unclean>).
 
 ## Footnotes for verse 28
 

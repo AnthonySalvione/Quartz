@@ -1,7 +1,7 @@
 ## v1
 
 When you sit to eat with a ruler,  
-Consider carefully who is before you;
+Consider carefully [[Proverbs-23.fn#Footnote 1.1 — who|who]] is before you;
 
 ## v2
 
@@ -128,7 +128,7 @@ And let her who bore you exult.
 ## v26
 
 My son, give me your heart,  
-And let your eyes observe my ways.
+And let your eyes [[Proverbs-23.fn#Footnote 26.1 — observe|observe]] my ways.
 
 ## v27
 

@@ -33,7 +33,7 @@ In the divine unveilings to Job, nothing was revealed concerning the purpose of 
 
 **Verse:** [[Job-38#v4|Job 38:4]]
 
-When God created the earth, He created it in an orderly way ([[Isaiah-45#v18|Isa. 45:18]]), laying its foundations, measuring it out, placing it on solid bases, and laying its cornerstone ([[Job-38#v4|vv. 4-6]]). The earth has foundations ([[Zechariah-12#v1|Zech. 12:1b]]), but it seemingly does not have anything supporting it (cf. [[Job-26#v7|26:7b]]). Actually, all things are upheld by Christ ([[Hebrews-01#v3|Heb. 1:3]] and note 2).
+When God created the earth, He created it in an orderly way ([[Isaiah-45#v18|Isa. 45:18]]), laying its foundations, measuring it out, placing it on solid bases, and laying its cornerstone ([[Job-38#v4|vv. 4-6]]). The earth has foundations ([[Zechariah-12#v1|Zech. 12:1b]]), but it seemingly does not have anything supporting it (cf. [[Job-26#v7|26:7b]]). Actually, all things are upheld by Christ ([[Hebrews-01#v3|Heb. 1:3]] and [note 2](<Hebrews-01.fn#Footnote 3.2 — word>)).
 
 ## Footnotes for verse 7
 

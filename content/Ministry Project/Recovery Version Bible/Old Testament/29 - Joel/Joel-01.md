@@ -1,10 +1,10 @@
 ## v1
 
-The word of Jehovah which came to Joel the son of Pethuel.
+The word of Jehovah which came to [[Joel-01.fn#Footnote 1.1 — Joel|Joel]] the son of Pethuel.
 
 ## v2
 
-Hear this, you elders,  
+[[Joel-01.fn#Footnote 2.1 — Hear|Hear]] this, you elders,  
 And give heed, all you inhabitants of the land.  
 Has this ever happened in your days,  
 Or even in the days of your fathers?
@@ -17,7 +17,7 @@ And let their children tell the next generation.
 
 ## v4
 
-What the cutting locust has left, the swarming locust has eaten;  
+What the [[Joel-01.fn#Footnote 4.1 — cutting|cutting]] locust has left, the swarming locust has eaten;  
 And what the swarming locust has left, the licking locust has eaten;  
 And what the licking locust has left, the consuming locust has eaten.
 
@@ -30,7 +30,7 @@ For it has been cut off from your mouth.
 
 ## v6
 
-For a nation has come up against My land,  
+For a [[Joel-01.fn#Footnote 6.1 — nation|nation]] has come up against My land,  
 Mighty and without number;  
 Its teeth are the teeth of a lion,  
 And it has the cutting teeth of a lioness.
@@ -98,7 +98,7 @@ And cry unto Jehovah.
 ## v15
 
 Alas for the day!  
-For the day of Jehovah has drawn near,  
+For the [[Joel-01.fn#Footnote 15.1 — day|day]] of Jehovah has drawn near,  
 And as the destruction from the Almighty it will come.
 
 ## v16
@@ -111,7 +111,7 @@ From the house of our God?
 ## v17
 
 The seeds have shriveled  
-Under their clods;  
+Under their [[Joel-01.fn#Footnote 17.1 — clods|clods]];  
 The storehouses have been desolated;  
 The barns have been torn down;  
 For the grain is dried up.

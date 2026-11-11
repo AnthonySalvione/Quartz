@@ -15,7 +15,7 @@ chapter_num: 2
 
 **Verse:** [[2 Kings-02#v1|2 Kings 2:1]]
 
-Elijah is a type of the Old Testament age with the Old Testament economy, and Elisha is a type of the New Testament age with the New Testament economy. The age was changed by passing through four places—Gilgal, Bethel, Jericho, and the river Jordan ([[2 Kings-02#v1|vv. 1-8]]). Gilgal was a place where God’s people were circumcised to deal with their flesh ([[Joshua-05#v2|Josh. 5:2-9]]); Bethel is the place to give up the world and turn to God absolutely, taking God as everything ([[Genesis-12#v8|Gen. 12:8]]); Jericho, the first city that Joshua and the people of Israel had to defeat when they entered into the good land, signifies the head of God’s enemy, Satan ([[Joshua-06#v1|Josh. 6:1-27]]); and the river Jordan, where the New Testament baptism began, signifies death ([[Matthew-03#v5|Matt. 3:5-6]] and note 62). To cross the river Jordan, Elijah struck the water with his mantle, which typifies the outpoured Spirit, the Spirit of power ([[2 Kings-02#v8|v. 8]]). The Spirit of power dealt with the river of death so that the way was opened for Elijah and Elisha to cross over. All this signifies that in order for the age to be changed from the Old Testament to the New Testament in our experience, we must deal with our flesh ([[Galatians-05#v24|Gal. 5:24]]), give up the world and turn to God ([[1 John-02#v15|1 John 2:15-17]]), defeat Satan ([[Revelation-12#v11|Rev. 12:11]]), and pass through death ([[Romans-06#v3|Rom. 6:3-4]]; [[Galatians-02#v20|Gal. 2:20]]).
+Elijah is a type of the Old Testament age with the Old Testament economy, and Elisha is a type of the New Testament age with the New Testament economy. The age was changed by passing through four places—Gilgal, Bethel, Jericho, and the river Jordan ([[2 Kings-02#v1|vv. 1-8]]). Gilgal was a place where God’s people were circumcised to deal with their flesh ([[Joshua-05#v2|Josh. 5:2-9]]); Bethel is the place to give up the world and turn to God absolutely, taking God as everything ([[Genesis-12#v8|Gen. 12:8]]); Jericho, the first city that Joshua and the people of Israel had to defeat when they entered into the good land, signifies the head of God’s enemy, Satan ([[Joshua-06#v1|Josh. 6:1-27]]); and the river Jordan, where the New Testament baptism began, signifies death ([[Matthew-03#v5|Matt. 3:5-6]] and [[Matthew-03.fn#Footnote 6.2 — Jordan|note 6²]]). To cross the river Jordan, Elijah struck the water with his mantle, which typifies the outpoured Spirit, the Spirit of power ([[2 Kings-02#v8|v. 8]]). The Spirit of power dealt with the river of death so that the way was opened for Elijah and Elisha to cross over. All this signifies that in order for the age to be changed from the Old Testament to the New Testament in our experience, we must deal with our flesh ([[Galatians-05#v24|Gal. 5:24]]), give up the world and turn to God ([[1 John-02#v15|1 John 2:15-17]]), defeat Satan ([[Revelation-12#v11|Rev. 12:11]]), and pass through death ([[Romans-06#v3|Rom. 6:3-4]]; [[Galatians-02#v20|Gal. 2:20]]).
 
 ## Footnotes for verse 8
 
@@ -23,7 +23,7 @@ Elijah is a type of the Old Testament age with the Old Testament economy, and El
 
 **Verse:** [[2 Kings-02#v8|2 Kings 2:8]]
 
-Elijah’s mantle typifies the outpoured Spirit, the Spirit of power ([[Luke-24#v49|Luke 24:49]]; [[Acts-01#v8|Acts 1:8]]). In order to receive the mantle of Elijah, the Spirit of power, we must follow the Lord from Gilgal to Bethel, from Bethel to Jericho, and from Jericho to the Jordan (see note 11). Furthermore, we must “tear our clothes into two pieces” ([[2 Kings-02#v12|v. 12]]), indicating that we no longer treasure what we are or what we can do (cf. [[Matthew-16#v24|Matt. 16:24]]). Through all these steps we enter into a new age, the age of the New Testament, where Christ is doing gracious things.
+Elijah’s mantle typifies the outpoured Spirit, the Spirit of power ([[Luke-24#v49|Luke 24:49]]; [[Acts-01#v8|Acts 1:8]]). In order to receive the mantle of Elijah, the Spirit of power, we must follow the Lord from Gilgal to Bethel, from Bethel to Jericho, and from Jericho to the Jordan (see [note 1¹](<2 Kings-02.fn#Footnote 1.1 — Elijah>)). Furthermore, we must “tear our clothes into two pieces” ([[2 Kings-02#v12|v. 12]]), indicating that we no longer treasure what we are or what we can do (cf. [[Matthew-16#v24|Matt. 16:24]]). Through all these steps we enter into a new age, the age of the New Testament, where Christ is doing gracious things.
 
 ## Footnotes for verse 11
 
@@ -39,7 +39,7 @@ Elijah’s rapture typified the termination of the Old Testament age in God’s 
 
 **Verse:** [[2 Kings-02#v12|2 Kings 2:12]]
 
-See note 8¹.
+See [note 8¹](<2 Kings-02.fn#Footnote 8.1 — mantle>).
 
 ## Footnotes for verse 15
 

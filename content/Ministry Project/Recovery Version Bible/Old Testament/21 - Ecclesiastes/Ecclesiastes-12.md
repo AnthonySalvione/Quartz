@@ -1,14 +1,14 @@
 ## v1
 
 Remember also your Creator in the days of your youth,  
-Before the evil days come  
+Before the [[Ecclesiastes-12.fn#Footnote 1.1 — evil|evil]] days come  
 And the years draw near when you will say,  
 I have no pleasure in them;
 
 ## v2
 
 Before the sun and the light  
-And the moon and the stars are darkened,  
+And the moon and the stars are [[Ecclesiastes-12.fn#Footnote 2.1 — darkened|darkened]],  
 And the clouds return after the rain;
 
 ## v3
@@ -79,11 +79,11 @@ And much study is a weariness of the flesh.
 ## v13
 
 The end of the matter, when all has been heard, is this:  
-Fear God and keep His commandments,  
+[[Ecclesiastes-12.fn#Footnote 13.1 — Fear|Fear]] God and keep His commandments,  
 For this is the whole of man.
 
 ## v14
 
-For God will bring every deed to judgment,  
+For God will bring every deed to [[Ecclesiastes-12.fn#Footnote 14.1 — judgment|judgment]],  
 With every secret thing,  
 Whether good or evil.

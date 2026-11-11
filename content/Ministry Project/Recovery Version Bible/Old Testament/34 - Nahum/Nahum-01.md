@@ -1,7 +1,7 @@
 ## v1
 
-The burden concerning Nineveh.  
-The book of the vision of Nahum the Elkoshite.
+The burden concerning [[Nahum-01.fn#Footnote 1.1 — Nineveh|Nineveh]].  
+The book of the vision of [[Nahum-01.fn#Footnote 1.2 — Nahum|Nahum]] the Elkoshite.
 
 ## v2
 
@@ -46,8 +46,8 @@ And He knows those who take refuge in Him.
 
 ## v8
 
-But with an overflowing flood  
-He will make a full end of her place,  
+But with an overflowing [[Nahum-01.fn#Footnote 8.1 — flood|flood]]  
+He will make a full end of [[Nahum-01.fn#Footnote 8.2 — her|her]] place,  
 And He will pursue His enemies into darkness.
 
 ## v9
@@ -72,13 +72,13 @@ Who counsels wickedness.
 
 Thus says Jehovah,  
 Though they are complete in number and even numerous,  
-Even so they will be cut down; and they will pass away.  
+Even so they will be cut down; and [[Nahum-01.fn#Footnote 12.1 — they|they]] will pass away.  
 And though I have afflicted you,  
 I will afflict you no more.
 
 ## v13
 
-And now I will break his yoke from off you  
+And now I will break [[Nahum-01.fn#Footnote 13.1 — his|his]] yoke from off you  
 And will snap your bonds asunder.
 
 ## v14
@@ -92,7 +92,7 @@ I will make your grave, for you are worthless.
 ## v15
 
 See, upon the mountains  
-The feet of him who bears the glad news,  
+The feet of him who bears the [[Nahum-01.fn#Footnote 15.1 — glad|glad]] news,  
 Who announces peace!  
 Keep your feasts, O Judah;  
 Complete your vows;  

@@ -2,9 +2,9 @@
 
 The burden concerning Tyre:  
 Howl, O ships of Tarshish,  
-For it is destroyed — lacking house,  
+For [[Isaiah-23.fn#Footnote 1.1 — it|it]] is destroyed — lacking house,  
 Lacking entrance.  
-From as far away as the land of Kittim  
+From as far away as the land of [[Isaiah-23.fn#Footnote 1.2 — Kittim|Kittim]]  
 It is told to them.
 
 ## v2
@@ -80,7 +80,7 @@ There also you will have no rest.
 
 ## v13
 
-See the land of the Chaldeans, this people!  
+See the land of the [[Isaiah-23.fn#Footnote 13.1 — Chaldeans|Chaldeans]], this people!  
 They were not —  
 The Assyrians assigned it to desert animals;  
 They raised their siege towers;  

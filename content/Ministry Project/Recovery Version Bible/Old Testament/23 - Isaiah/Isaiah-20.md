@@ -1,6 +1,6 @@
 ## v1
 
-In the year that the Tartan came to Ashdod,  
+In the year that the [[Isaiah-20.fn#Footnote 1.1 — Tartan|Tartan]] came to Ashdod,  
 When Sargon the king of Assyria sent him,  
 And he fought against Ashdod and took it,
 
@@ -29,8 +29,8 @@ To Egypt’s shame.
 ## v5
 
 And they will be dismayed and ashamed  
-Of Cush, their expectation,  
-And of Egypt, their boast.
+Of Cush, their [[Isaiah-20.fn#Footnote 5.1 — expectation|expectation]],  
+And of Egypt, their [[Isaiah-20.fn#Footnote 5.1 — expectation|boast]].
 
 ## v6
 

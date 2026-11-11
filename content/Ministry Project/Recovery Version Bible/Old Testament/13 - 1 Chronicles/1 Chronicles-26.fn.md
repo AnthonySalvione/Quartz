@@ -15,4 +15,4 @@ chapter_num: 26
 
 **Verse:** [[1 Chronicles-26#v13|1 Chronicles 26:13]]
 
-Cf. note 2¹ in [[Joshua-14|Josh. 14]].
+Cf. [note 2¹](<Joshua-14.fn#Footnote 2.1 — lot>) in [[Joshua-14|Josh. 14]].

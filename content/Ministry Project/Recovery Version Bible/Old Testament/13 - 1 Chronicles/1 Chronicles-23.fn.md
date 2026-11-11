@@ -23,7 +23,7 @@ David’s arranging in order Israel’s services to God related to the temple of
 
 **Verse:** [[1 Chronicles-23#v3|1 Chronicles 23:3]]
 
-See note 3¹ in [[Numbers-04|Num. 4]].
+See [note 3¹](<Numbers-04.fn#Footnote 3.1 — thirty>) in [[Numbers-04|Num. 4]].
 
 ## Footnotes for verse 31
 
@@ -31,4 +31,4 @@ See note 3¹ in [[Numbers-04|Num. 4]].
 
 **Verse:** [[1 Chronicles-23#v31|1 Chronicles 23:31]]
 
-See note 111 in [[Numbers-28|Num. 28]].
+See [note 11¹](<Numbers-28.fn#Footnote 11.1 — beginnings>) in [[Numbers-28|Num. 28]].

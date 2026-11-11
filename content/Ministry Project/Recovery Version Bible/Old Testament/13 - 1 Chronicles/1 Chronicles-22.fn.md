@@ -39,7 +39,7 @@ Some read, Solomon his son, As for me,—
 
 **Verse:** [[1 Chronicles-22#v9|1 Chronicles 22:9]]
 
-David was a fighter to gain the provisions, and his son Solomon was a peaceful king, enjoying in peace what was gained and attained through his father’s victories. See note 11 in [[1 Kings-02|1 Kings 2]].
+David was a fighter to gain the provisions, and his son Solomon was a peaceful king, enjoying in peace what was gained and attained through his father’s victories. See [note 1¹](<1 Kings-02.fn#Footnote 1.1 — David’s>) in [[1 Kings-02|1 Kings 2]].
 
 ## Footnotes for verse 10
 
@@ -47,4 +47,4 @@ David was a fighter to gain the provisions, and his son Solomon was a peaceful k
 
 **Verse:** [[1 Chronicles-22#v10|1 Chronicles 22:10]]
 
-See note 13 in [[Matthew-01|Matt. 1]].
+See [note 1³](<Matthew-01.fn#Footnote 1.3 — son>) in [[Matthew-01|Matt. 1]].

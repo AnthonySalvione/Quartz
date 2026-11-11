@@ -1,6 +1,6 @@
 ## v1
 
-Woe to the rebellious and defiled one,  
+Woe to the [[Zephaniah-03.fn#Footnote 1.1 — rebellious|rebellious]] and defiled one,  
 To the oppressing city!
 
 ## v2
@@ -65,13 +65,13 @@ All the earth will be devoured.
 ## v9
 
 For then I will change the language of the peoples  
-Into a pure language  
+Into a [[Zephaniah-03.fn#Footnote 9.1 — pure|pure]] language  
 That they may all call upon the name of Jehovah,  
-To serve Him with one accord.
+To serve Him with one [[Zephaniah-03.fn#Footnote 9.2 — accord|accord]].
 
 ## v10
 
-From beyond the rivers of Cush My suppliants,  
+From beyond the rivers of [[Zephaniah-03.fn#Footnote 10.1 — Cush|Cush]] My suppliants,  
 The daughter of My dispersed,  
 Will bring My meal offering.
 
@@ -110,9 +110,9 @@ O daughter of Jerusalem!
 ## v15
 
 Jehovah has taken away your judgments;  
-He has turned aside your enemy.  
-The King of Israel, Jehovah, is in the midst of you;  
-You will not see evil again.
+He has turned aside your [[Zephaniah-03.fn#Footnote 15.1 — enemy|enemy]].  
+The [[Zephaniah-03.fn#Footnote 15.2 — King|King]] of Israel, Jehovah, is in the midst of you;  
+You will not [[Zephaniah-03.fn#Footnote 15.3 — see|see]] evil again.
 
 ## v16
 
@@ -132,7 +132,7 @@ He will exult over you with a ringing shout.
 
 I will gather those who mourn for the appointed assembly,  
 Who were of you.  
-The reproach was a burden upon them.
+The reproach was a burden upon [[Zephaniah-03.fn#Footnote 18.1 — them|them]].
 
 ## v19
 

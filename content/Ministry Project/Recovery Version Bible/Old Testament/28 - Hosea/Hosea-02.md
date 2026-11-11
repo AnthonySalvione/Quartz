@@ -1,13 +1,13 @@
 ## v1
 
-Say to your brothers, Ammi,  
-And to your sisters, Ruhamah.
+Say to your brothers, [[Hosea-02.fn#Footnote 1.1 — Ammi|Ammi]],  
+And to your sisters, [[Hosea-02.fn#Footnote 1.2 — Ruhamah|Ruhamah]].
 
 ## v2
 
 Contend with your mother; contend.  
-For she is not My wife,  
-And I am not her Husband.  
+For she is [[Hosea-02.fn#Footnote 2.1 — not|not]] My wife,  
+And I am [[Hosea-02.fn#Footnote 2.1 — not|not]] her Husband.  
 And let her turn away her harlotries from her face,  
 And her adulteries from between her breasts,
 
@@ -29,7 +29,7 @@ For they are the children of harlotries.
 For their mother has gone about as a harlot;  
 She who conceived them has acted shamefully;  
 For she has said,  
-I will go after my lovers,  
+I will go after my [[Hosea-02.fn#Footnote 5.1 — lovers|lovers]],  
 Who give me my bread and my water,  
 My wool and my flax,  
 My oil and my drink.
@@ -37,7 +37,7 @@ My oil and my drink.
 ## v6
 
 Therefore I will now hedge up  
-Her way with thorns;  
+[[Hosea-02.fn#Footnote 6.1 — Her|Her]] way with thorns;  
 And I will build up a wall against her,  
 So that she will not find her paths.
 
@@ -46,7 +46,7 @@ So that she will not find her paths.
 And she will pursue her lovers  
 But will not overtake them;  
 And she will seek them but not find them;  
-And she will say, I will go  
+And she will say, [[Hosea-02.fn#Footnote 7.1 — I|I]] will go  
 And return to my first Husband,  
 For it was better for me then than now.
 
@@ -56,7 +56,7 @@ For she did not know
 That it was I who gave her  
 The grain and the new wine and the fresh oil,  
 And who multiplied to her silver  
-And gold, which they used for Baal.
+And gold, which they [[Hosea-02.fn#Footnote 8.1 — used|used]] for Baal.
 
 ## v9
 
@@ -113,7 +113,7 @@ And as in the day when she came up out of the land of Egypt.
 
 And in that day, declares Jehovah,  
 You will call Me My Husband  
-And will no longer call Me Baali.
+And will no longer call Me [[Hosea-02.fn#Footnote 16.1 — Baali|Baali]].
 
 ## v17
 
@@ -122,7 +122,7 @@ And they will no longer be remembered by their name.
 
 ## v18
 
-And I will make a covenant for them  
+And I will make a [[Hosea-02.fn#Footnote 18.1 — covenant|covenant]] for them  
 In that day  
 With the beasts of the field  
 And with the birds of heaven  
@@ -152,13 +152,13 @@ And they will answer the earth,
 
 ## v22
 
-And the earth will answer the grain  
-And the new wine and the fresh oil,  
+And the earth will answer the [[Hosea-02.fn#Footnote 22.1 — grain|grain]]  
+And the [[Hosea-02.fn#Footnote 22.1 — grain|new]] wine and the [[Hosea-02.fn#Footnote 22.1 — grain|fresh]] oil,  
 And they will answer Jezreel.
 
 ## v23
 
 And I will sow her for Myself in the land;  
-And I will have compassion on Lo-ruhamah,  
-And I will say to Lo-ammi, You are My people;  
+And I will have compassion on [[Hosea-02.fn#Footnote 23.1 — Lo-ruhamah|Lo-ruhamah]],  
+And I will say to [[Hosea-02.fn#Footnote 23.2 — Lo-ammi|Lo-ammi]], You are My people;  
 And they will say, My God.

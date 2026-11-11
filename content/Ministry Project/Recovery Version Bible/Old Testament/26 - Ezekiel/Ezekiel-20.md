@@ -16,11 +16,11 @@ Will you judge them, will you judge, son of man? Make them know the abominations
 
 ## v5
 
-And say to them, Thus says the Lord Jehovah, On the day when I chose Israel and lifted up My hand to the seed of the house of Jacob and made Myself known to them in the land of Egypt; when I lifted up My hand to them, saying, I am Jehovah your God;
+And say to them, Thus says the Lord Jehovah, On the day when I chose Israel and [[Ezekiel-20.fn#Footnote 5.1 — lifted|lifted]] up My hand to the seed of the house of Jacob and made Myself known to them in the land of Egypt; when I lifted up My hand to them, saying, I am Jehovah your God;
 
 ## v6
 
-On that day I lifted up My hand to them to bring them out of the land of Egypt to a land that I had spied out for them, flowing with milk and honey, which is the glory of all the lands.
+On that day I lifted up My hand to them to bring them out of the [[Ezekiel-20.fn#Footnote 6.1 — land|land]] of Egypt to a land that I had spied out for them, flowing with milk and honey, which is the [[Ezekiel-20.fn#Footnote 6.1 — land|glory]] of all the lands.
 
 ## v7
 
@@ -156,7 +156,7 @@ As for you, O house of Israel, thus says the Lord Jehovah, Go, serve every one h
 
 ## v40
 
-For on My holy mountain, on the mountain of the height of Israel, declares the Lord Jehovah, there will the whole house of Israel, all of them, serve Me in the land; there will I accept them and there will I require your contributions and the firstfruits of your offerings with all your holy things.
+For on My holy mountain, on the [[Ezekiel-20.fn#Footnote 40.1 — mountain|mountain]] of the height of Israel, declares the Lord Jehovah, there will the whole house of Israel, all of them, serve Me in the land; there will I accept them and there will I require your contributions and the firstfruits of your offerings with all your holy things.
 
 ## v41
 
@@ -180,7 +180,7 @@ And the word of Jehovah came to me, saying,
 
 ## v46
 
-Son of man, set your face toward Teman, and utter something against the south and prophesy against the forest field of the Negev;
+Son of man, set your face toward Teman, and utter something against the south and prophesy against the forest field of the [[Ezekiel-20.fn#Footnote 46.1 — Negev|Negev]];
 
 ## v47
 

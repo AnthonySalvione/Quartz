@@ -35,7 +35,7 @@ The priest going forth outside the camp to examine the leper signifies the Lord 
 
 **Verse:** [[Leviticus-14#v3|Leviticus 14:3]]
 
-The healing of sin (leprosy) is the issue of our repentance and the working of the divine life within us (see note 321 in [[John-08|John 8]]).
+The healing of sin (leprosy) is the issue of our repentance and the working of the divine life within us (see [note 32¹](<John-08.fn#Footnote 32.1 — truth>) in [[John-08|John 8]]).
 
 ## Footnotes for verse 4
 
@@ -49,7 +49,7 @@ The two living clean birds are types of Christ, who is clean, without any defile
 
 **Verse:** [[Leviticus-14#v4|Leviticus 14:4]]
 
-Cedar wood (cf. [[1 Kings-04#v33|1 Kings 4:33]]) signifies the honorable and uplifted humanity of Jesus, which enables Him to be our Savior. Hyssop, being one of the smallest of the plants, signifies here that the Lord Jesus was willing to become lowly in His “becoming in the likeness of men” ([[Philippians-02#v7|Phil. 2:7]]) that He might be near to man and become man’s Savior (cf. [[Matthew-08#v2|Matt. 8:2-3]]). Scarlet, a dark red color, signifies the shedding of blood ([[Joshua-02#v18|Josh. 2:18]] and note) and also implies kingship ([[Matthew-27#v28|Matt. 27:28-29]]). All of this signifies that in order to cleanse us from our leprosy, the Lord lowered Himself to become a man of high standard but of low status that He might do the will of God and shed His blood on the cross for our redemption, thereby being glorified in His resurrection and becoming the honorable and high King ([[Philippians-02#v5|Phil. 2:5-11]]).
+Cedar wood (cf. [[1 Kings-04#v33|1 Kings 4:33]]) signifies the honorable and uplifted humanity of Jesus, which enables Him to be our Savior. Hyssop, being one of the smallest of the plants, signifies here that the Lord Jesus was willing to become lowly in His “becoming in the likeness of men” ([[Philippians-02#v7|Phil. 2:7]]) that He might be near to man and become man’s Savior (cf. [[Matthew-08#v2|Matt. 8:2-3]]). Scarlet, a dark red color, signifies the shedding of blood ([[Joshua-02#v18|Josh. 2:18]] and [note](<Joshua-02.fn#Footnote 18.1 — scarlet>)) and also implies kingship ([[Matthew-27#v28|Matt. 27:28-29]]). All of this signifies that in order to cleanse us from our leprosy, the Lord lowered Himself to become a man of high standard but of low status that He might do the will of God and shed His blood on the cross for our redemption, thereby being glorified in His resurrection and becoming the honorable and high King ([[Philippians-02#v5|Phil. 2:5-11]]).
 
 ### Footnote 4.3 — cleansed
 
@@ -71,7 +71,7 @@ Lit., living. So throughout the book. The earthen vessel signifies the humanity 
 
 **Verse:** [[Leviticus-14#v6|Leviticus 14:6]]
 
-The things recorded in [[Leviticus-14#v6|vv. 6-7]] signify that the Lord’s perfect redemption not only causes man to be cleansed objectively in his position but also causes man to experience subjectively, in the Holy Spirit, the Lord’s suffering in the shedding of His blood in His honorable, uplifted, and yet lowly humanity and to experience His death, resurrection, ascension, and glorification ([[Ephesians-02#v5|Eph. 2:5-6]]; [[Philippians-03#v10|Phil. 3:10]], [[Philippians-03#v21|21]]; [[Colossians-03#v1|Col. 3:1-4]]). These things are all implied in the significances of the two birds, the cedar wood, the hyssop, and the scarlet strands (see notes 41, 42, 71, and 72).
+The things recorded in [[Leviticus-14#v6|vv. 6-7]] signify that the Lord’s perfect redemption not only causes man to be cleansed objectively in his position but also causes man to experience subjectively, in the Holy Spirit, the Lord’s suffering in the shedding of His blood in His honorable, uplifted, and yet lowly humanity and to experience His death, resurrection, ascension, and glorification ([[Ephesians-02#v5|Eph. 2:5-6]]; [[Philippians-03#v10|Phil. 3:10]], [[Philippians-03#v21|21]]; [[Colossians-03#v1|Col. 3:1-4]]). These things are all implied in the significances of the two birds, the cedar wood, the hyssop, and the scarlet strands (see notes [4¹](<Leviticus-14.fn#Footnote 4.1 — birds>), [4²](<Leviticus-14.fn#Footnote 4.2 — cedar>), [7¹](<Leviticus-14.fn#Footnote 7.1 — sprinkle>), and [7²](<Leviticus-14.fn#Footnote 7.2 — let>)).
 
 ## Footnotes for verse 7
 
@@ -79,13 +79,13 @@ The things recorded in [[Leviticus-14#v6|vv. 6-7]] signify that the Lord’s per
 
 **Verse:** [[Leviticus-14#v7|Leviticus 14:7]]
 
-The sprinkling of the blood of the slain bird on the leper who was to be cleansed signifies that the blood shed by Christ was sprinkled on us, the sinners ([[1 Peter-01#v2|1 Pet. 1:2]]), and this sprinkling connects us to Christ, the Redeemer (cf. note 222 in [[Exodus-12|Exo. 12]]). The sprinkling of the blood seven times signifies the completeness of the cleansing of the Lord’s blood ([[1 John-01#v7|1 John 1:7]], [[1 John-01#v9|9]]).
+The sprinkling of the blood of the slain bird on the leper who was to be cleansed signifies that the blood shed by Christ was sprinkled on us, the sinners ([[1 Peter-01#v2|1 Pet. 1:2]]), and this sprinkling connects us to Christ, the Redeemer (cf. [note 22²](<Exodus-12.fn#Footnote 22.2 — outside>) in [[Exodus-12|Exo. 12]]). The sprinkling of the blood seven times signifies the completeness of the cleansing of the Lord’s blood ([[1 John-01#v7|1 John 1:7]], [[1 John-01#v9|9]]).
 
 ### Footnote 7.2 — let
 
 **Verse:** [[Leviticus-14#v7|Leviticus 14:7]]
 
-Christ’s ascension is signified by the living bird’s soaring in the air. Letting the living bird go into the open field signifies that the living Christ causes the cleansed sinner to experience not only Christ’s death and resurrection but also His ascension ([[2 Corinthians-05#v14|2 Cor. 5:14-15]]; [[Ephesians-02#v5|Eph. 2:5-6]]; [[Colossians-03#v1|Col. 3:1-3]]). See note 41.
+Christ’s ascension is signified by the living bird’s soaring in the air. Letting the living bird go into the open field signifies that the living Christ causes the cleansed sinner to experience not only Christ’s death and resurrection but also His ascension ([[2 Corinthians-05#v14|2 Cor. 5:14-15]]; [[Ephesians-02#v5|Eph. 2:5-6]]; [[Colossians-03#v1|Col. 3:1-3]]). See [note 4¹](<Leviticus-14.fn#Footnote 4.1 — birds>).
 
 ## Footnotes for verse 8
 
@@ -95,7 +95,7 @@ Christ’s ascension is signified by the living bird’s soaring in the air. Let
 
 The leper’s washing his clothes, shaving off all his hair, and bathing himself in water signifies that in addition to experiencing Christ’s death, resurrection, and ascension in his union with Christ through His redemption ([[Leviticus-14#v5|vv. 5-7]]), a sinner who is to be cleansed needs to bear the responsibility himself to deal with and cut off all that is of his old living and natural life. 
 
-For the significance of washing one’s clothes, shaving off one’s hair, and bathing oneself in water, see note 341 in [[Leviticus-13|Leviticus 13]], note 91 in this chapter, and note 51 in [[Leviticus-15|Leviticus 15]], respectively.
+For the significance of washing one’s clothes, shaving off one’s hair, and bathing oneself in water, see [note 34¹](<Leviticus-13.fn#Footnote 34.1 — wash>) in [[Leviticus-13|Leviticus 13]], note [9¹](<Leviticus-14.fn#Footnote 9.1 — hair>) in this chapter, and note [5¹](<Leviticus-15.fn#Footnote 5.1 — wash>) in [[Leviticus-15|Leviticus 15]], respectively.
 
 ### Footnote 8.2 — dwell
 
@@ -123,7 +123,7 @@ The leper’s shaving of his entire body, washing his clothes, and bathing his f
 
 **Verse:** [[Leviticus-14#v10|Leviticus 14:10]]
 
-As revealed in [[Leviticus-14#v10|vv. 10-32]], in addition to his cleansing ([[Leviticus-14#v9|v. 9]]), the leper who was to be cleansed still needed to solve the problem of his sin and sins before God by offering the trespass offering, the sin offering, the burnt offering, and the meal offering to make expiation for himself before God ([[Leviticus-14#v18|vv. 18-20]]). This signifies that a sinner who is to be cleansed, even though he has been cleansed, still needs to solve the problem of his sin and sins before God through Christ as the reality of the offerings to make propitiation for himself before God. Expiation (see note 11 in [[Leviticus-16|Leviticus 16]]) was needed in addition to healing ([[Leviticus-14#v3|v. 3]]) and cleansing ([[Leviticus-14#v4|vv. 4-9]]) in order to appease God and bring the leper (the sinner) back into fellowship with God.
+As revealed in [[Leviticus-14#v10|vv. 10-32]], in addition to his cleansing ([[Leviticus-14#v9|v. 9]]), the leper who was to be cleansed still needed to solve the problem of his sin and sins before God by offering the trespass offering, the sin offering, the burnt offering, and the meal offering to make expiation for himself before God ([[Leviticus-14#v18|vv. 18-20]]). This signifies that a sinner who is to be cleansed, even though he has been cleansed, still needs to solve the problem of his sin and sins before God through Christ as the reality of the offerings to make propitiation for himself before God. Expiation (see [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Leviticus 16]]) was needed in addition to healing ([[Leviticus-14#v3|v. 3]]) and cleansing ([[Leviticus-14#v4|vv. 4-9]]) in order to appease God and bring the leper (the sinner) back into fellowship with God.
 
 ### Footnote 10.2 — eighth
 
@@ -143,7 +143,7 @@ A liquid measure of approximately half a liter. Oil here typifies the Holy Spiri
 
 **Verse:** [[Leviticus-14#v12|Leviticus 14:12]]
 
-See note 241 in [[Exodus-29|Exo. 29]]. The offering of the male lamb for a trespass offering, with the log of oil, both of which were waved before Jehovah, signifies that the death of the Lord Jesus as the trespass offering deals with our sins, and His resurrection in the Holy Spirit frees us from our trespasses, that we, having died to sins, might live to righteousness ([[1 Peter-02#v24|1 Pet. 2:24]]).
+See [note 24¹](<Exodus-29.fn#Footnote 24.1 — wave>) in [[Exodus-29|Exo. 29]]. The offering of the male lamb for a trespass offering, with the log of oil, both of which were waved before Jehovah, signifies that the death of the Lord Jesus as the trespass offering deals with our sins, and His resurrection in the Holy Spirit frees us from our trespasses, that we, having died to sins, might live to righteousness ([[1 Peter-02#v24|1 Pet. 2:24]]).
 
 ## Footnotes for verse 13
 
@@ -157,7 +157,7 @@ The slaughtering of the male lamb for the trespass offering in the place where t
 
 **Verse:** [[Leviticus-14#v13|Leviticus 14:13]]
 
-Cf. note 26¹ in [[Leviticus-06|Leviticus 6]].
+Cf. [note 26¹](<Leviticus-06.fn#Footnote 26.1 — priest>) in [[Leviticus-06|Leviticus 6]].
 
 ## Footnotes for verse 14
 
@@ -165,7 +165,7 @@ Cf. note 26¹ in [[Leviticus-06|Leviticus 6]].
 
 **Verse:** [[Leviticus-14#v14|Leviticus 14:14]]
 
-This signifies that man has trespasses because, first, his ears are wrong in not listening to God; second, his hands are wrong in not doing the things of God; and third, his feet are wrong in not taking the ways of God. Therefore, he needs to be cleansed with the blood of the Lord Jesus as his trespass offering in all these aspects. Cf. note 201 in [[Exodus-29|Exo. 29]].
+This signifies that man has trespasses because, first, his ears are wrong in not listening to God; second, his hands are wrong in not doing the things of God; and third, his feet are wrong in not taking the ways of God. Therefore, he needs to be cleansed with the blood of the Lord Jesus as his trespass offering in all these aspects. Cf. [note 20¹](<Exodus-29.fn#Footnote 20.1 — ear>) in [[Exodus-29|Exo. 29]].
 
 ## Footnotes for verse 17
 
@@ -187,7 +187,7 @@ Putting the oil on the head signifies that the authority of the headship, the th
 
 **Verse:** [[Leviticus-14#v18|Leviticus 14:18]]
 
-See note 1¹ in [[Leviticus-16|Leviticus 16]].
+See [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Leviticus 16]].
 
 ## Footnotes for verse 19
 
@@ -327,7 +327,7 @@ This signifies that if no sin is spreading after the renewing of the church with
 
 **Verse:** [[Leviticus-14#v52|Leviticus 14:52]]
 
-This signifies that the whole church needs to be cleansed with the eternally efficacious blood of Christ and His eternal and living Spirit. See note 51.
+This signifies that the whole church needs to be cleansed with the eternally efficacious blood of Christ and His eternal and living Spirit. See [note 5¹](<Leviticus-14.fn#Footnote 5.1 — running>).
 
 ## Footnotes for verse 53
 
@@ -335,7 +335,7 @@ This signifies that the whole church needs to be cleansed with the eternally eff
 
 **Verse:** [[Leviticus-14#v53|Leviticus 14:53]]
 
-Letting the living bird go, outside the city into the open field signifies that the healed and cleansed church enters with Christ into the realm and experience of His resurrection and ascension. See note 72.
+Letting the living bird go, outside the city into the open field signifies that the healed and cleansed church enters with Christ into the realm and experience of His resurrection and ascension. See [note 7²](<Leviticus-14.fn#Footnote 7.2 — let>).
 
 ### Footnote 53.2 — clean
 

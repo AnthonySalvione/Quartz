@@ -1,6 +1,11 @@
+> *To the choir director. A Maschil of the sons of Korah*
+
+> [!light] Note on Maschil:
+> See note on the superscription of Psa. 32.
+---
 ## v1
 
-As the hart pants / After the streams of water, / So my soul pants / For You, O God.
+[[Psalm-42.fn#Footnote 1.1 — As|As]] the hart pants / After the streams of water, / So my soul [[Psalm-42.fn#Footnote 1.2 — pants|pants]] / For You, O [[Psalm-42.fn#Footnote 1.3 — God|God]].
 
 ## v2
 
@@ -12,15 +17,15 @@ My tears have been my food / Day and night, / While they say to me all day long,
 
 ## v4
 
-These things I remember, / And I pour out my soul within me: / That I passed through with the throng; / I led them to the house of God / With the voice of a joyous shout and praise, / The festal multitude.
+These things I [[Psalm-42.fn#Footnote 4.1 — remember|remember]], / And I pour out my soul within me: / That I passed through with the throng; / I led them to the house of God / With the voice of a joyous shout and [[Psalm-42.fn#Footnote 4.2 — praise|praise]], / The festal multitude.
 
 ## v5
 
-Why are you cast down, O my soul? / And why are you disquieted within me? / Hope in God, for I will yet praise Him / For the salvation of His countenance.
+Why are you cast down, O my soul? / And why are you disquieted within me? / Hope in God, for I will yet [[Psalm-42.fn#Footnote 5.1 — praise|praise]] Him / For the salvation of His [[Psalm-42.fn#Footnote 5.2 — countenance|countenance]].
 
 ## v6
 
-O my God, my soul is cast down within me; / Therefore I remember You / From the land of the Jordan and the Hermons, / From Mount Mizar.
+O my God, my soul is cast down within me; / Therefore I [[Psalm-42.fn#Footnote 6.1 — remember|remember]] You / From the land of the Jordan and the Hermons, / From Mount Mizar.
 
 ## v7
 

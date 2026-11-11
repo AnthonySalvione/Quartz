@@ -8,7 +8,7 @@ And Zephaniah the son of Maaseiah the priest, saying,
 ## v2
 
 Inquire for us of Jehovah,  
-For Nebuchadrezzar the king of Babylon  
+For [[Jeremiah-21.fn#Footnote 2.1 — Nebuchadrezzar|Nebuchadrezzar]] the king of Babylon  
 Is making war against us.  
 Perhaps Jehovah will deal with us  
 According to all His wonderful deeds,  

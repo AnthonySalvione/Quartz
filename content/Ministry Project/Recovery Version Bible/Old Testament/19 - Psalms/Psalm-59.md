@@ -1,3 +1,11 @@
+> *To the choir director: Do not destroy. Of David. A Michtam, when Saul sent men, and they watched the house in order to kill him*
+
+> [!light] Note on Do:
+> See note on the superscription of [[Psalm-57|Psa. 57]].
+
+> [!light] Note on Michtam:
+> See note on the superscription of [[Psalm-16|Psa. 16]].
+---
 ## v1
 
 Deliver me from my enemies, O my God;  
@@ -44,7 +52,7 @@ You have all the nations in derision.
 
 ## v9
 
-O my strength, I will watch for You;  
+O [[Psalm-59.fn#Footnote 9.1 — my|my]] strength, I will watch for You;  
 For God is my high retreat.
 
 ## v10
@@ -80,11 +88,11 @@ And go around the city.
 ## v15
 
 They wander about for food;  
-And if they are not filled, they linger.
+And if they are not filled, they [[Psalm-59.fn#Footnote 15.1 — linger|linger]].
 
 ## v16
 
-But I will sing of Your strength;  
+[[Psalm-59.fn#Footnote 16.1 — But|But]] I will sing of Your strength;  
 And I will joyfully sing of Your lovingkindness in the morning.  
 For You have been my high retreat  
 And a refuge in the day of my distress.

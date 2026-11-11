@@ -40,8 +40,8 @@ And these ruins will be under your hand;
 
 He will solemnly say,  
 I will not be the one who binds your wounds,  
-For in my house there is no food or clothing;  
-Do not appoint me as ruler of the people.
+For in my house there is no [[Isaiah-03.fn#Footnote 7.1 — food|food]] or clothing;  
+Do not appoint me as [[Isaiah-03.fn#Footnote 7.1 — food|ruler]] of the people.
 
 ## v8
 

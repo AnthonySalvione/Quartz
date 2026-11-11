@@ -1,11 +1,11 @@
 ## v1
 
-When Israel was a child, I loved him,  
-And out of Egypt I called My son.
+When Israel was a child, I [[Hosea-11.fn#Footnote 1.1 — loved|loved]] him,  
+And out of Egypt I called My [[Hosea-11.fn#Footnote 1.2 — son|son]].
 
 ## v2
 
-As they called them,  
+As [[Hosea-11.fn#Footnote 2.1 — they|they]] called them,  
 So they went from them;  
 To the Baals they sacrificed,  
 And to the idols they burned incense.
@@ -18,11 +18,11 @@ But they did not know that I healed them.
 
 ## v4
 
-I drew them with cords of a man,  
+I drew them [[Hosea-11.fn#Footnote 4.1 — with|with]] cords of a man,  
 With bands of love;  
 And I was to them like those  
-Who lift off the yoke on their jaws;  
-And I gently caused them to eat.
+Who lift off the [[Hosea-11.fn#Footnote 4.2 — yoke|yoke]] on their jaws;  
+And I gently caused them to [[Hosea-11.fn#Footnote 4.2 — yoke|eat]].
 
 ## v5
 
@@ -46,8 +46,8 @@ None at all exalts Him.
 
 How shall I give you up, O Ephraim?  
 How shall I deliver you up, O Israel?  
-How can I make you like Admah?  
-How can I treat you like Zeboim?  
+How can I make you like [[Hosea-11.fn#Footnote 8.1 — Admah|Admah]]?  
+How can I treat you like [[Hosea-11.fn#Footnote 8.1 — Admah|Zeboim]]?  
 My heart is turned within Me;  
 All My compassions have warmed.
 

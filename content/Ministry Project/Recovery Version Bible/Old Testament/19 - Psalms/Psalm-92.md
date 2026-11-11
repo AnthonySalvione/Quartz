@@ -1,6 +1,9 @@
+> *A Psalm; a Song for the Sabbath day*
+
+---
 ## v1
 
-It is good to give thanks to Jehovah  
+It is good to [[Psalm-92.fn#Footnote 1.1 — give|give]] thanks to Jehovah  
 And to sing psalms to Your name, O Most High;
 
 ## v2
@@ -11,7 +14,7 @@ And Your faithfulness in the nights,
 ## v3
 
 Upon an instrument of ten strings and upon a harp,  
-Upon the higgaion of the lyre.
+Upon the [[Psalm-92.fn#Footnote 3.1 — higgaion|higgaion]] of the lyre.
 
 ## v4
 
@@ -26,7 +29,7 @@ So very deep are Your thoughts!
 ## v6
 
 A senseless man does not know them,  
-Nor does a fool understand them.
+Nor does a fool understand [[Psalm-92.fn#Footnote 6.1 — them|them]].
 
 ## v7
 
@@ -46,8 +49,8 @@ All the workers of iniquity will be scattered.
 
 ## v10
 
-But You have exalted my horn like that of a wild ox;  
-I am anointed with fresh oil.
+But You have exalted my [[Psalm-92.fn#Footnote 10.1 — horn|horn]] like that of a wild ox;  
+I am [[Psalm-92.fn#Footnote 10.2 — anointed|anointed]] with fresh oil.
 
 ## v11
 
@@ -56,7 +59,7 @@ My ears have heard their desire for the evildoers who rise up against me.
 
 ## v12
 
-The righteous man will flourish like the palm tree;  
+The righteous man will [[Psalm-92.fn#Footnote 12.1 — flourish|flourish]] like the palm tree;  
 He will grow like a cedar in Lebanon.
 
 ## v13

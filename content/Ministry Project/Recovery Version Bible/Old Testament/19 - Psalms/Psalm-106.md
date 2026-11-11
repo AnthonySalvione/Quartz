@@ -1,6 +1,6 @@
 ## v1
 
-Hallelujah.  
+[[Psalm-106.fn#Footnote 1.1 — Hallelujah|Hallelujah]].  
 Give thanks to Jehovah, for He is good,  
 For His lovingkindness is forever.
 

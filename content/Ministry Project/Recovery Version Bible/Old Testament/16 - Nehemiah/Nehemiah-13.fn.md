@@ -15,7 +15,7 @@ chapter_num: 13
 
 **Verse:** [[Nehemiah-13#v1|Nehemiah 13:1]]
 
-See note 37², par. 1, in [[Genesis-19|Gen. 19]].
+See [note 37²](<Genesis-19.fn#Footnote 37.2 — Moabites>), par. 1, in [[Genesis-19|Gen. 19]].
 
 ## Footnotes for verse 30
 

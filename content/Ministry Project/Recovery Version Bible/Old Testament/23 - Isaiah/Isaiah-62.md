@@ -2,8 +2,8 @@
 
 For Zion’s sake I will not keep silent, /  
 And for Jerusalem’s sake I will not be quiet, /  
-Until her righteousness goes forth like brightness, /  
-And her salvation like a burning torch.
+Until her [[Isaiah-62.fn#Footnote 1.1 — righteousness|righteousness]] goes forth like brightness, /  
+And her [[Isaiah-62.fn#Footnote 1.1 — righteousness|salvation]] like a burning torch.
 
 ## v2
 
@@ -47,7 +47,7 @@ Do not be dumb;
 And do not give Him quiet /  
 Until He establishes /  
 And until He makes Jerusalem /  
-A praise in the earth.
+A [[Isaiah-62.fn#Footnote 7.1 — praise|praise]] in the earth.
 
 ## v8
 
@@ -71,7 +71,7 @@ Go through, go through the gates; /
 Prepare the way for the people; /  
 Cast up, cast up the highway; /  
 Free it of stones; /  
-Raise up a standard for the peoples.
+Raise up a [[Isaiah-62.fn#Footnote 10.1 — standard|standard]] for the peoples.
 
 ## v11
 

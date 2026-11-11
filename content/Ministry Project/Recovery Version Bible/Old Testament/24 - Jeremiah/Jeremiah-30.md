@@ -32,7 +32,7 @@ And every face turned pale?
 
 Alas! For that day is great,  
 And there is none like it;  
-And it is a time of distress for Jacob,  
+And it is a time of [[Jeremiah-30.fn#Footnote 7.1 — distress|distress]] for Jacob,  
 But he will be saved out of it.
 
 ## v8
@@ -41,7 +41,7 @@ And on that day, declares Jehovah of hosts, I will break his yoke from your neck
 
 ## v9
 
-But they will serve Jehovah their God and David their King, whom I will raise up for them.
+But they will serve Jehovah their God and [[Jeremiah-30.fn#Footnote 9.1 — David|David]] their King, whom I will raise up for them.
 
 ## v10
 
@@ -119,9 +119,9 @@ And I will cause them to be honored, so that they will not be small.
 
 ## v20
 
-And their children will be as they were of old,  
-And their assembly will be established before Me;  
-And I will punish all those who oppress them,
+And [[Jeremiah-30.fn#Footnote 20.1 — their|their]] children will be as they were of old,  
+And [[Jeremiah-30.fn#Footnote 20.1 — their|their]] assembly will be established before Me;  
+And I will punish all those who oppress [[Jeremiah-30.fn#Footnote 20.2 — them|them]],
 
 ## v21
 

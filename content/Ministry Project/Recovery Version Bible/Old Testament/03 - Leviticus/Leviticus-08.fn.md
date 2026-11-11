@@ -47,15 +47,15 @@ The clothing of Aaron with the high priest’s garments ([[Leviticus-08#v7|vv. 7
 
 **Verse:** [[Leviticus-08#v10|Leviticus 8:10]]
 
-Moses’ anointing of the tabernacle, the altar, and the laver, with all their utensils, to sanctify them ([[Leviticus-08#v10|vv. 10-11]]) signifies that Christ and the church (the tabernacle), the cross (the altar), and the washing of the Spirit (the laver) are related to the New Testament priesthood for the priests’ sanctification. See notes 92 in [[Exodus-25|Exo. 25]], 11 in [[Exodus-27|Exo. 27]], and 181 in [[Exodus-30|Exo. 30]]. 
+Moses’ anointing of the tabernacle, the altar, and the laver, with all their utensils, to sanctify them ([[Leviticus-08#v10|vv. 10-11]]) signifies that Christ and the church (the tabernacle), the cross (the altar), and the washing of the Spirit (the laver) are related to the New Testament priesthood for the priests’ sanctification. See notes [9²](<Exodus-25.fn#Footnote 9.2 — tabernacle>) in [[Exodus-25|Exo. 25]], [1¹](<Exodus-27.fn#Footnote 1.1 — altar>) in [[Exodus-27|Exo. 27]], and [18¹](<Exodus-30.fn#Footnote 18.1 — laver>) in [[Exodus-30|Exo. 30]]. 
 
-The anointing brings the Triune God compounded with Christ’s humanity, human living, death, resurrection, and ascension to the priests and to the church life. This indicates strongly that the anointing of the priesthood is to make God one with us, for the anointing signifies that whatever God is, is doing, and will do are ours (see notes 251 and 261 in [[Exodus-30|Exo. 30]]). In the consecration of the priests the sin offering and the burnt offering immediately followed the anointing ([[Leviticus-08#v14|vv. 14-21]]). These offerings remind us of who and what we are, and of what we should be and yet are not. See notes 141 and 181.
+The anointing brings the Triune God compounded with Christ’s humanity, human living, death, resurrection, and ascension to the priests and to the church life. This indicates strongly that the anointing of the priesthood is to make God one with us, for the anointing signifies that whatever God is, is doing, and will do are ours (see notes [25¹](<Exodus-30.fn#Footnote 25.1 — holy>) and [26¹](<Exodus-30.fn#Footnote 26.1 — anoint>) in [[Exodus-30|Exo. 30]]). In the consecration of the priests the sin offering and the burnt offering immediately followed the anointing ([[Leviticus-08#v14|vv. 14-21]]). These offerings remind us of who and what we are, and of what we should be and yet are not. See notes [14¹](<Leviticus-08.fn#Footnote 14.1 — bull>) and [18¹](<Leviticus-08.fn#Footnote 18.1 — ram>).
 
 ### Footnote 10.2 — sanctified
 
 **Verse:** [[Leviticus-08#v10|Leviticus 8:10]]
 
-God’s ordaining us to be priests is a matter of sanctification, a matter of being separated, of being made holy ([[Exodus-29#v1|Exo. 29:1]] and note 1).
+God’s ordaining us to be priests is a matter of sanctification, a matter of being separated, of being made holy ([[Exodus-29#v1|Exo. 29:1]] and [note 1](<Exodus-29.fn#Footnote 1.1 — sanctify>)).
 
 ## Footnotes for verse 12
 
@@ -71,7 +71,7 @@ This signifies that Christ as our High Priest, typified here by Aaron, was anoin
 
 **Verse:** [[Leviticus-08#v13|Leviticus 8:13]]
 
-Moses’ clothing the sons of Aaron with priestly garments signifies that the believers as New Testament priests are adorned with Christ’s divine attributes mingled with His human virtues ([[Exodus-28#v2|Exo. 28:2]] and notes). Our outward expression should be Christ’s divine attributes expressed in human virtues. See note 41 in [[John-13|John 13]].
+Moses’ clothing the sons of Aaron with priestly garments signifies that the believers as New Testament priests are adorned with Christ’s divine attributes mingled with His human virtues ([[Exodus-28#v2|Exo. 28:2]] and notes). Our outward expression should be Christ’s divine attributes expressed in human virtues. See [note 4¹](<John-13.fn#Footnote 4.1 — laid>) in [[John-13|John 13]].
 
 ## Footnotes for verse 14
 
@@ -79,7 +79,7 @@ Moses’ clothing the sons of Aaron with priestly garments signifies that the be
 
 **Verse:** [[Leviticus-08#v14|Leviticus 8:14]]
 
-The bull of the sin offering signifies the stronger and richer Christ as our sin offering to deal with the flesh, the old man, indwelling sin, Satan, the world, and the ruler of the world, for the assuming of our New Testament priesthood (see note 34, par. 3, in [[Leviticus-04|Leviticus 4]]). This reminds us that in ourselves we are a constitution of all the aforementioned negative things and need to offer Christ daily as our sin offering for our priesthood (see note 361 in [[Exodus-29|Exo. 29]]).
+The bull of the sin offering signifies the stronger and richer Christ as our sin offering to deal with the flesh, the old man, indwelling sin, Satan, the world, and the ruler of the world, for the assuming of our New Testament priesthood (see [note 3⁴](<Leviticus-04.fn#Footnote 3.4 — sin>), par. 3, in [[Leviticus-04|Leviticus 4]]). This reminds us that in ourselves we are a constitution of all the aforementioned negative things and need to offer Christ daily as our sin offering for our priesthood (see [note 36¹](<Exodus-29.fn#Footnote 36.1 — each>) in [[Exodus-29|Exo. 29]]).
 
 ### Footnote 14.2 — sin
 
@@ -115,7 +115,7 @@ This ram signifies the strong Christ for our consecration in the assuming of our
 
 **Verse:** [[Leviticus-08#v23|Leviticus 8:23]]
 
-See note 20¹ in [[Exodus-29|Exo. 29]].
+See [note 20¹](<Exodus-29.fn#Footnote 20.1 — ear>) in [[Exodus-29|Exo. 29]].
 
 ## Footnotes for verse 30
 
@@ -123,7 +123,7 @@ See note 20¹ in [[Exodus-29|Exo. 29]].
 
 **Verse:** [[Leviticus-08#v30|Leviticus 8:30]]
 
-See note 21¹, par. 1, in [[Exodus-29|Exo. 29]].
+See [note 21¹](<Exodus-29.fn#Footnote 21.1 — blood>), par. 1, in [[Exodus-29|Exo. 29]].
 
 ## Footnotes for verse 33
 
@@ -131,7 +131,7 @@ See note 21¹, par. 1, in [[Exodus-29|Exo. 29]].
 
 **Verse:** [[Leviticus-08#v33|Leviticus 8:33]]
 
-The consecrating priests remaining at the entrance of the Tent of Meeting for seven days for their expiation ([[Leviticus-08#v33|vv. 33-36]]) signifies that our assuming of the New Testament priesthood should be thorough and complete (signified by the seven days) for our propitiation (see note 11 in [[Leviticus-16|Leviticus 16]]) at our entering the church life.
+The consecrating priests remaining at the entrance of the Tent of Meeting for seven days for their expiation ([[Leviticus-08#v33|vv. 33-36]]) signifies that our assuming of the New Testament priesthood should be thorough and complete (signified by the seven days) for our propitiation (see [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Leviticus 16]]) at our entering the church life.
 
 ### Footnote 33.2 — seven
 

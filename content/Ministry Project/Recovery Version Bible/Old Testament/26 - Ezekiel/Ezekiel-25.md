@@ -1,6 +1,6 @@
 ## v1
 
-Then the word of Jehovah came to me, saying,
+[[Ezekiel-25.fn#Footnote 1.1 — Then|Then]] the word of Jehovah came to me, saying,
 
 ## v2
 
@@ -8,7 +8,7 @@ Son of man, set your face against the children of Ammon and prophesy concerning 
 
 ## v3
 
-And you shall say to the children of Ammon, Hear the word of the Lord Jehovah: Thus says the Lord Jehovah, Because you said, Aha! against My sanctuary when it was desecrated, and against the land of Israel when it was desolated, and against the house of Judah when it went off into exile;
+And you shall say to the children of [[Ezekiel-25.fn#Footnote 3.1 — Ammon|Ammon]], Hear the word of the Lord Jehovah: Thus says the Lord Jehovah, Because you said, Aha! against My sanctuary when it was desecrated, and against the land of Israel when it was desolated, and against the house of Judah when it went off into exile;
 
 ## v4
 
@@ -28,7 +28,7 @@ Therefore now I have stretched out My hand against you, and I will deliver you a
 
 ## v8
 
-Thus says the Lord Jehovah, Because Moab has said, Look, the house of Judah is just like all the other nations!
+Thus says the Lord Jehovah, Because [[Ezekiel-25.fn#Footnote 8.1 — Moab|Moab]] [[Ezekiel-25.fn#Footnote 8.2 — has|has]] said, Look, the house of Judah is just like all the other nations!
 
 ## v9
 
@@ -44,7 +44,7 @@ So I will execute judgments against Moab that they may know that I am Jehovah.
 
 ## v12
 
-Thus says the Lord Jehovah, Because Edom has acted full of vengeance against the house of Judah and has incurred serious guilt by taking vengeance on them,
+Thus says the Lord Jehovah, Because [[Ezekiel-25.fn#Footnote 12.1 — Edom|Edom]] has acted full of vengeance against the house of Judah and has incurred serious guilt by taking vengeance on them,
 
 ## v13
 
@@ -56,7 +56,7 @@ And I will inflict My vengeance upon Edom by the hand of My people Israel, and t
 
 ## v15
 
-Thus says the Lord Jehovah, Because the Philistines have acted in vengeance and have been full of vengeance acting with malice within them to destroy with a perpetual enmity,
+Thus says the Lord Jehovah, Because the [[Ezekiel-25.fn#Footnote 15.1 — Philistines|Philistines]] have acted in vengeance and have been full of vengeance acting with malice within them to destroy with a perpetual enmity,
 
 ## v16
 

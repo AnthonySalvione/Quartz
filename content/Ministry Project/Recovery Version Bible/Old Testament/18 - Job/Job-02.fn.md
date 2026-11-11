@@ -15,13 +15,13 @@ chapter_num: 2
 
 **Verse:** [[Job-02#v1|Job 2:1]]
 
-See note 6¹ in [[Job-01|Job 1]].
+See [note 6¹](<Job-01.fn#Footnote 6.1 — sons>) in [[Job-01|Job 1]].
 
 ### Footnote 1.2 — Satan
 
 **Verse:** [[Job-02#v1|Job 2:1]]
 
-See note 6³ in [[Job-01|Job 1]].
+See [note 6³](<Job-01.fn#Footnote 6.3 — among>) in [[Job-01|Job 1]].
 
 ## Footnotes for verse 3
 
@@ -29,7 +29,7 @@ See note 6³ in [[Job-01|Job 1]].
 
 **Verse:** [[Job-02#v3|Job 2:3]]
 
-See note 8¹ in [[Job-01|Job 1]].
+See [note 8¹](<Job-01.fn#Footnote 8.1 — considered>) in [[Job-01|Job 1]].
 
 ## Footnotes for verse 6
 
@@ -37,7 +37,7 @@ See note 8¹ in [[Job-01|Job 1]].
 
 **Verse:** [[Job-02#v6|Job 2:6]]
 
-See note 12¹ in [[Job-01|Job 1]].
+See [note 12¹](<Job-01.fn#Footnote 12.1 — only>) in [[Job-01|Job 1]].
 
 ## Footnotes for verse 13
 

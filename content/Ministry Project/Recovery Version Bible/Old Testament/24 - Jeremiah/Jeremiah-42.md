@@ -52,7 +52,7 @@ But if you say, We will not remain in this land, so that you do not listen to th
 
 ## v14
 
-Saying, No, but we will go to the land of Egypt, where we will not see war or hear the sound of the trumpet or be hungry for bread, and we will dwell there;
+Saying, No, but we will go to the land of [[Jeremiah-42.fn#Footnote 14.1 — Egypt|Egypt]], where we will not see war or hear the sound of the trumpet or be hungry for bread, and we will dwell there;
 
 ## v15
 

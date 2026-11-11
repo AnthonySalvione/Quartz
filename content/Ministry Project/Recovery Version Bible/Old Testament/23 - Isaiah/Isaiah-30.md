@@ -3,13 +3,13 @@
 Woe to the rebellious children,  
 Declares Jehovah,  
 Who devise counsel, but not of Me,  
-And who make an alliance, but not of My Spirit,  
+And who [[Isaiah-30.fn#Footnote 1.1 — make|make]] an alliance, but not of My Spirit,  
 In order to add  
 Sin upon sin;
 
 ## v2
 
-Who go down to Egypt,  
+Who go down to [[Isaiah-30.fn#Footnote 2.1 — Egypt|Egypt]],  
 Yet do not ask of My mouth,  
 To take refuge in the refuge of Pharaoh,  
 And to take shelter in the shadow of Egypt.
@@ -33,7 +33,7 @@ But rather a shame and also a reproach.
 
 ## v6
 
-The burden concerning the beasts of the Negev:  
+The burden concerning the beasts of the [[Isaiah-30.fn#Footnote 6.1 — Negev|Negev]]:  
 Through the land of distress and anguish,  
 From which come lioness and lion,  
 Viper and flying fiery serpent,  
@@ -52,7 +52,7 @@ Rahab, who sits still.
 Go now; write it on a tablet before them,  
 And inscribe it on a scroll,  
 That it may be, for the time to come,  
-As a witness forever.
+[[Isaiah-30.fn#Footnote 8.1 — As|As]] a witness forever.
 
 ## v9
 
@@ -103,7 +103,7 @@ Or to draw water from the cistern.
 ## v15
 
 For thus says the Lord Jehovah, the Holy One of Israel,  
-In returning and rest you will be saved;  
+In [[Isaiah-30.fn#Footnote 15.1 — returning|returning]] and rest you will be saved;  
 In quietness and in trust will be your strength;  
 But you were not willing,
 
@@ -140,7 +140,7 @@ When He hears it, He will answer you.
 
 And though the Lord has given you  
 The bread of adversity and the water of oppression,  
-Your Teacher will no longer hide Himself in a corner,  
+Your [[Isaiah-30.fn#Footnote 20.1 — Teacher|Teacher]] will no longer hide Himself in a corner,  
 But your eyes will see your Teacher.
 
 ## v21
@@ -180,7 +180,7 @@ In the day of the great slaughter, when the towers fall.
 ## v26
 
 And the light of the moon will be like the light of the sun,  
-And the light of the sun will be sevenfold, like the light of seven days,  
+And the light of the sun will be [[Isaiah-30.fn#Footnote 26.1 — sevenfold|sevenfold]], like the light of seven days,  
 On the day when Jehovah binds up the breach of His people  
 And heals the wound left from His stroke.
 
@@ -195,7 +195,7 @@ And His tongue is like a devouring fire;
 
 His breath, like an overflowing stream,  
 Reaches up to the neck,  
-To sift the nations with the sieve of nothingness;  
+To sift the nations with the sieve of [[Isaiah-30.fn#Footnote 28.1 — nothingness|nothingness]];  
 And a bridle that leads them to err is in the jaws of the peoples.
 
 ## v29
@@ -227,7 +227,7 @@ He will fight against them.
 
 ## v33
 
-For Topheth has been arranged since long ago;  
+For [[Isaiah-30.fn#Footnote 33.1 — Topheth|Topheth]] has been arranged since long ago;  
 Indeed it has been prepared for the king;  
 He made it deep; He made it large.  
 The pile in it is of fire and much wood;  

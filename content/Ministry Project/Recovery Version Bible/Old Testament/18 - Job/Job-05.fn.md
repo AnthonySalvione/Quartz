@@ -35,13 +35,13 @@ Lit., their.
 
 **Verse:** [[Job-05#v17|Job 5:17]]
 
-See note 8¹ in [[Job-04|Job 4]].
+See [note 8¹](<Job-04.fn#Footnote 8.1 — iniquity>) in [[Job-04|Job 4]].
 
 ### Footnote 17.2 — Almighty
 
 **Verse:** [[Job-05#v17|Job 5:17]]
 
-Heb. Shaddai. So throughout the book. See note 12 in [[Genesis-17|Gen. 17]].
+Heb. Shaddai. So throughout the book. See [note 1²](<Genesis-17.fn#Footnote 1.2 — All-sufficient>) in [[Genesis-17|Gen. 17]].
 
 ## Footnotes for verse 26
 

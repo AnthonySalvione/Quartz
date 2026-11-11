@@ -34,7 +34,7 @@ The song of those who terrify will be brought low.
 ## v6
 
 And Jehovah of hosts will make on this mountain  
-For all the peoples  
+For all the [[Isaiah-25.fn#Footnote 6.1 — peoples|peoples]]  
 A feast of fat things,  
 A feast of wine matured on the lees,  
 Of fat things full of marrow,  
@@ -43,12 +43,12 @@ And of filtered wine matured on the lees.
 ## v7
 
 And on this mountain He will swallow up  
-The covering that covers up all the peoples,  
+The [[Isaiah-25.fn#Footnote 7.1 — covering|covering]] that covers up all the peoples,  
 Even the veil that veils all the nations.
 
 ## v8
 
-He will swallow up death forever;  
+He will swallow up death [[Isaiah-25.fn#Footnote 8.1 — forever|forever]];  
 And the Lord Jehovah will wipe away the tears from all faces;  
 And the reproach of His people He will remove from all the earth;  
 For Jehovah has spoken.

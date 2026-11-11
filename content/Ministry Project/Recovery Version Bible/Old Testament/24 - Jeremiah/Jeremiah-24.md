@@ -1,7 +1,7 @@
 ## v1
 
 Jehovah showed me,  
-And there were two baskets of figs  
+And there were two baskets of [[Jeremiah-24.fn#Footnote 1.1 — figs|figs]]  
 Placed before the temple of Jehovah,  
 After Nebuchadrezzar the king of Babylon  
 Had exiled Jeconiah the son of Jehoiakim,  
@@ -68,14 +68,14 @@ So I will make Zedekiah, the king of Judah,
 And his princes  
 And the remnant of Jerusalem  
 Who remain in this land  
-And those who dwell in the land of Egypt —
+And [[Jeremiah-24.fn#Footnote 8.1 — those|those]] who dwell in the land of Egypt —
 
 ## v9
 
 I will even make them a terror  
 To all the kingdoms of the earth for evil,  
-To be a reproach and a proverb  
-And a byword and a curse  
+To be a reproach and a [[Jeremiah-24.fn#Footnote 9.1 — proverb|proverb]]  
+And a [[Jeremiah-24.fn#Footnote 9.1 — proverb|byword]] and a curse  
 In all the places where I will drive them.
 
 ## v10

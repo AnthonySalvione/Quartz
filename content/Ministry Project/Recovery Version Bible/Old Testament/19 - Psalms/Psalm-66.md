@@ -1,10 +1,13 @@
+> *To the choir director. A Song; a Psalm*
+
+---
 ## v1
 
 Shout joyfully to God, all the earth;
 
 ## v2
 
-Sing forth the glory of His name;  
+[[Psalm-66.fn#Footnote 2.1 — Sing|Sing]] forth the glory of His name;  
 Make glorious His praise.
 
 ## v3
@@ -85,7 +88,7 @@ And I will recount what He has done for my soul.
 ## v17
 
 To Him I called out with my mouth,  
-And He was extolled with my tongue.
+And [[Psalm-66.fn#Footnote 17.1 — He|He]] was extolled with my tongue.
 
 ## v18
 

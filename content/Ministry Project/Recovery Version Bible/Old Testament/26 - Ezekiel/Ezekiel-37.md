@@ -1,6 +1,6 @@
 ## v1
 
-The hand of Jehovah came upon me, and He brought me out in the Spirit of Jehovah and set me down in the midst of the valley; and it was full of bones.
+The hand of Jehovah came upon me, and He brought me out in the Spirit of Jehovah and set me down in the midst of the valley; and it was full of [[Ezekiel-37.fn#Footnote 1.1 — bones|bones]].
 
 ## v2
 
@@ -12,11 +12,11 @@ And He said to me, Son of man, can these bones live? And I answered, O Lord Jeho
 
 ## v4
 
-Then He said to me, Prophesy over these bones, and say to them, O dry bones, hear the word of Jehovah.
+Then He said to me, [[Ezekiel-37.fn#Footnote 4.1 — Prophesy|Prophesy]] over these bones, and say to them, O dry bones, hear the word of Jehovah.
 
 ## v5
 
-Thus says the Lord Jehovah to these bones: I will cause breath to enter into you, and you shall live.
+Thus says the Lord Jehovah to these bones: I will cause [[Ezekiel-37.fn#Footnote 5.1 — breath|breath]] to enter into you, and you shall live.
 
 ## v6
 
@@ -24,7 +24,7 @@ And I will put sinews on you and bring flesh back on you and cover you with skin
 
 ## v7
 
-So I prophesied as I was commanded. And as I prophesied, there was a noise, and suddenly, a rattling; and the bones came together, bone to its bone.
+So I prophesied as I was commanded. And as I prophesied, there was a noise, and suddenly, a rattling; and the bones [[Ezekiel-37.fn#Footnote 7.1 — came|came]] together, bone to its bone.
 
 ## v8
 
@@ -36,7 +36,7 @@ Then He said to me, Prophesy to the wind; prophesy, son of man, and say to the w
 
 ## v10
 
-So I prophesied as He commanded me, and the breath came into them; and they lived and stood up upon their feet, an exceedingly great army.
+So I prophesied as He commanded me, and the breath came into them; and they [[Ezekiel-37.fn#Footnote 10.1 — lived|lived]] and stood up upon their feet, an exceedingly great army.
 
 ## v11
 
@@ -60,7 +60,7 @@ The word of Jehovah came again to me, saying,
 
 ## v16
 
-And you, son of man, take one piece of wood, and write upon it, For Judah and for the children of Israel associated with him; then take another piece of wood, and write upon it, For Joseph, the piece of wood of Ephraim, and for all the house of Israel associated with him;
+And you, son of man, take one piece of [[Ezekiel-37.fn#Footnote 16.1 — wood|wood]], and write upon it, For Judah and for the children of Israel associated with him; then take another piece of [[Ezekiel-37.fn#Footnote 16.1 — wood|wood]], and write upon it, For Joseph, the piece of wood of Ephraim, and for all the house of Israel associated with him;
 
 ## v17
 
@@ -92,7 +92,7 @@ They will not defile themselves any longer with their idols, or their detestable
 
 ## v24
 
-And My Servant David will be King over them, and they all will have one Shepherd. They will also walk in My ordinances and observe My statutes and do them.
+And My Servant [[Ezekiel-37.fn#Footnote 24.1 — David|David]] will be King over them, and they all will have one Shepherd. They will also walk in My ordinances and observe My statutes and do them.
 
 ## v25
 

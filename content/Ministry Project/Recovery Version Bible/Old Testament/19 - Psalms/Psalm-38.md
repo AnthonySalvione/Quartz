@@ -1,6 +1,9 @@
+> *A Psalm of David, for remembrance*
+
+---
 ## v1
 
-O Jehovah, do not rebuke me in Your indignation, / Nor chasten me in Your burning wrath.
+[[Psalm-38.fn#Footnote 1.1 — O|O]] Jehovah, do not rebuke me in Your indignation, / Nor chasten me in Your burning wrath.
 
 ## v2
 
@@ -28,7 +31,7 @@ For my loins are filled with burning, / And there is no soundness in my flesh.
 
 ## v8
 
-I am benumbed and crushed utterly; / I cry out due to the groaning of my heart.
+I am benumbed and crushed utterly; / I cry out due to the [[Psalm-38.fn#Footnote 8.1 — groaning|groaning]] of my heart.
 
 ## v9
 

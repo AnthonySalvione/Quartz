@@ -1,7 +1,7 @@
 ## v1
 
 Woe to the land of the whirring of wings,  
-Which is beyond the rivers of Cush,
+Which is beyond the rivers of [[Isaiah-18.fn#Footnote 1.1 — Cush|Cush]],
 
 ## v2
 
@@ -43,7 +43,7 @@ And all the beasts of the earth will spend harvest time on them.
 ## v7
 
 At that time a gift will be brought to Jehovah of hosts  
-From a people tall and smooth of skin,  
+[[Isaiah-18.fn#Footnote 7.1 — From|From]] a people tall and smooth of skin,  
 Even from a people feared from there and beyond,  
 A nation of command upon command and of treading down others,  
 Whose land the rivers cut through,  

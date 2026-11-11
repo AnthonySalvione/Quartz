@@ -1,10 +1,10 @@
 ## v1
 
-And He brought me to the temple and measured the posts; six cubits wide on one side and six cubits wide on the other side was the width of the post.
+And He brought me to the temple and measured the posts; six cubits wide on one side and six cubits wide on the other side was the width of the [[Ezekiel-41.fn#Footnote 1.1 — post|post]].
 
 ## v2
 
-And the width of the entrance was ten cubits, and the sides of the entrance were five cubits on one side and five cubits on the other side. And He measured the length of the outer temple, forty cubits, and the width, twenty cubits.
+And the width of the entrance was [[Ezekiel-41.fn#Footnote 2.1 — ten|ten]] cubits, and the sides of the entrance were five cubits on one side and five cubits on the other side. And He measured the length of the [[Ezekiel-41.fn#Footnote 2.2 — outer|outer]] temple, forty cubits, and the width, twenty cubits.
 
 ## v3
 
@@ -16,15 +16,15 @@ And He measured the length of the inner temple, twenty cubits, and the width, tw
 
 ## v5
 
-Then He measured the wall of the house, six cubits thick; and the width of every side chamber, four cubits, all around the house on every side.
+Then He measured the wall of the house, [[Ezekiel-41.fn#Footnote 5.1 — six|six]] cubits thick; and the width of every side chamber, four cubits, all around the house on every side.
 
 ## v6
 
-And the side chambers were in three stories, one over another, with thirty units in each story; and they extended to the wall, which the house had for the side chambers all around to be supports, so that there would not be supports inserted into the wall of the house.
+And the [[Ezekiel-41.fn#Footnote 6.1 — side|side]] chambers were in [[Ezekiel-41.fn#Footnote 6.2 — three|three]] stories, one over another, with thirty units in each story; and they extended to the wall, which the house had for the side chambers all around to be supports, so that there would not be supports inserted into the wall of the house.
 
 ## v7
 
-And the side chambers that went around the house became wider as they went up by stories. Because the surrounding of the house increased upward around the house, therefore the house had width upward; and so one went up from the lowest story to the highest through the middle story.
+And the side chambers that went around the house became [[Ezekiel-41.fn#Footnote 7.1 — wider|wider]] as they went up by stories. Because the surrounding of the house increased upward around the house, therefore the house had width upward; and so one went up from the lowest story to the highest through the middle story.
 
 ## v8
 
@@ -32,11 +32,11 @@ I also saw that the house had a raised platform all around; the foundations of t
 
 ## v9
 
-The thickness of the outer wall of the side chambers was five cubits; and space that was left alongside the side chambers belonged to the house.
+The thickness of the outer wall of the side chambers was five cubits; and [[Ezekiel-41.fn#Footnote 9.1 — space|space]] that was left alongside the side chambers belonged to the house.
 
 ## v10
 
-And between the chambers and the house was a width of twenty cubits all around the house on every side.
+And between the [[Ezekiel-41.fn#Footnote 10.1 — chambers|chambers]] and the house was a width of twenty cubits all around the house on every side.
 
 ## v11
 
@@ -44,7 +44,7 @@ And the entrances of the side chambers were toward the space that was left, one 
 
 ## v12
 
-And the building that was in front of the separate place at the side toward the west was seventy cubits wide; and the wall of the building was five cubits thick all around, and its length ninety cubits.
+And the [[Ezekiel-41.fn#Footnote 12.1 — building|building]] that was in front of the separate place at the side toward the west was seventy cubits wide; and the wall of the building was five cubits thick all around, and its length ninety cubits.
 
 ## v13
 
@@ -60,7 +60,7 @@ And He measured the length of the building before the separate place, which was 
 
 ## v16
 
-The thresholds, the latticed windows, and the galleries of the surrounding side chambers with their three stories, opposite the threshold, were paneled with wood all around, even from the ground to the windows (now the windows were latticed),
+The thresholds, the [[Ezekiel-41.fn#Footnote 16.1 — latticed|latticed]] windows, and the galleries of the surrounding side chambers with their three stories, opposite the threshold, were paneled with [[Ezekiel-41.fn#Footnote 16.2 — wood|wood]] all around, even from the ground to the windows (now the windows were latticed),
 
 ## v17
 
@@ -68,11 +68,11 @@ To the top of the entrance, both in the inner house and outside. And on all the 
 
 ## v18
 
-Were both carved cherubim and palm trees. And a palm tree was between two cherubim, and every cherub had two faces.
+Were both carved [[Ezekiel-41.fn#Footnote 18.1 — cherubim|cherubim]] and [[Ezekiel-41.fn#Footnote 18.1 — cherubim|palm]] trees. And a palm tree was between two cherubim, and every cherub had two faces.
 
 ## v19
 
-So there was the face of a man toward the palm tree on one side and the face of a lion toward the palm tree on the other side. So it was carved in and around the whole house.
+So there was the face of a [[Ezekiel-41.fn#Footnote 19.1 — man|man]] toward the palm tree on one side and the face of a [[Ezekiel-41.fn#Footnote 19.1 — man|lion]] toward the palm tree on the other side. So it was carved in and around the whole house.
 
 ## v20
 
@@ -84,11 +84,11 @@ The temple doorposts were squared. And at the front of the sanctuary was somethi
 
 ## v22
 
-A wooden altar, three cubits high, and its length two cubits; and its corners, its length, and its walls were made of wood. And He said to me, This is the table that is before Jehovah.
+A wooden [[Ezekiel-41.fn#Footnote 22.1 — altar|altar]], [[Ezekiel-41.fn#Footnote 22.2 — three|three]] cubits high, and its length [[Ezekiel-41.fn#Footnote 22.2 — three|two]] cubits; and its corners, its length, and its walls were made of wood. And He said to me, This is the [[Ezekiel-41.fn#Footnote 22.1 — altar|table]] that is before Jehovah.
 
 ## v23
 
-Now the temple and the sanctuary had double doors.
+Now the temple and the sanctuary had [[Ezekiel-41.fn#Footnote 23.1 — double|double]] doors.
 
 ## v24
 
@@ -96,8 +96,8 @@ And the double doors had two swinging leaves, two leaves for one door and two le
 
 ## v25
 
-And carved on these, on the doors of the temple, were cherubim and palm trees, just like those carved on the walls. And there was a threshold of wood upon the front of the porch outside.
+And carved on these, on the doors of the temple, were [[Ezekiel-41.fn#Footnote 25.1 — cherubim|cherubim]] and [[Ezekiel-41.fn#Footnote 25.1 — cherubim|palm]] trees, just like those carved on the walls. And there was a threshold of wood upon the front of the porch outside.
 
 ## v26
 
-And there were latticed windows and palm trees on either side, on the sides of the porch, the side chambers of the house, and the thresholds.
+And there were latticed [[Ezekiel-41.fn#Footnote 26.1 — windows|windows]] and [[Ezekiel-41.fn#Footnote 26.1 — windows|palm]] trees on either side, on the sides of the porch, the side chambers of the house, and the thresholds.

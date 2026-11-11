@@ -43,11 +43,11 @@ My feet from stumbling.
 ## v9
 
 I will walk before Jehovah  
-In the land of the living.
+In the [[Psalm-116.fn#Footnote 9.1 — land|land]] of the living.
 
 ## v10
 
-I believed, therefore I spoke;  
+I believed, [[Psalm-116.fn#Footnote 10.1 — therefore|therefore]] I spoke;  
 I was afflicted greatly.
 
 ## v11
@@ -62,8 +62,8 @@ For all His benefits toward me?
 
 ## v13
 
-I will take up the cup of salvation  
-And call upon the name of Jehovah.
+I will take up the [[Psalm-116.fn#Footnote 13.1 — cup|cup]] of salvation  
+And [[Psalm-116.fn#Footnote 13.1 — cup|call]] upon the name of Jehovah.
 
 ## v14
 

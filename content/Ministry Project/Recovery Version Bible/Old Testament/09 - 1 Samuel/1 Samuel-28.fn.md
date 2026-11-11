@@ -31,4 +31,4 @@ Or, a god; Heb. elohim.
 
 **Verse:** [[1 Samuel-28#v19|1 Samuel 28:19]]
 
-On Saul’s tragic end ([[1 Samuel-31#v1|31:1-5]]), see note 61 in [[1 Samuel-31|1 Samuel 31]].
+On Saul’s tragic end ([[1 Samuel-31#v1|31:1-5]]), see [note 6¹](<1 Samuel-31.fn#Footnote 6.1 — died>) in [[1 Samuel-31|1 Samuel 31]].

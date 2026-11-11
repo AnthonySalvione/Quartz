@@ -1,6 +1,9 @@
+> *A Prayer of David*
+
+---
 ## v1
 
-Incline Your ear, O Jehovah; answer me;  
+[[Psalm-86.fn#Footnote 1.1 — Incline|Incline]] Your ear, O Jehovah; answer me;  
 For I am poor and needy.
 
 ## v2

@@ -23,7 +23,7 @@ Moab was a son born of Lot and one of his daughters through incest ([[Genesis-19
 
 **Verse:** [[Numbers-22#v5|Numbers 22:5]]
 
-Balaam was a Gentile prophet of God (see note 153 in [[2 Peter-02|2 Pet. 2]]). After Israel defeated the three kings on the east of the Jordan ([[Numbers-21#v1|21:1-3]], [[Numbers-21#v21|21-35]]), Satan changed his mode of fighting against Israel and took a religious way.
+Balaam was a Gentile prophet of God (see [note 15³](<2 Peter-02.fn#Footnote 15.3 — Balaam>) in [[2 Peter-02|2 Pet. 2]]). After Israel defeated the three kings on the east of the Jordan ([[Numbers-21#v1|21:1-3]], [[Numbers-21#v21|21-35]]), Satan changed his mode of fighting against Israel and took a religious way.
 
 ### Footnote 5.2 — River
 
@@ -45,7 +45,7 @@ Balaam’s asking God whether he should go with the messengers or not was self-d
 
 **Verse:** [[Numbers-22#v12|Numbers 22:12]]
 
-See note 3¹ in [[Genesis-12|Gen. 12]].
+See [note 3¹](<Genesis-12.fn#Footnote 3.1 — curses>) in [[Genesis-12|Gen. 12]].
 
 ## Footnotes for verse 20
 
@@ -61,7 +61,7 @@ Because Balaam wanted to do so, God allowed him to go with the rulers of Moab. I
 
 **Verse:** [[Numbers-22#v22|Numbers 22:22]]
 
-The Angel of Jehovah here was Jehovah Himself (see note 21 in [[Exodus-03|Exo. 3]]), who came in to deal directly with this greedy prophet ([[2 Peter-02#v15|2 Pet. 2:15]]).
+The Angel of Jehovah here was Jehovah Himself (see [note 2¹](<Exodus-03.fn#Footnote 2.1 — Angel>) in [[Exodus-03|Exo. 3]]), who came in to deal directly with this greedy prophet ([[2 Peter-02#v15|2 Pet. 2:15]]).
 
 ## Footnotes for verse 41
 

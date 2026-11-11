@@ -5,7 +5,7 @@ hymn:
   - "[[Hymn-1275]]"
 training: Semi-Annual Summer
 ---
-[[Ministry Project/Assembly/Semi-annual/Summer-2026/Messages/Message 8|⇐ Previous Message]] | [[Message 10|Next Message ⇒]]
+[[Ministry Project/Assembly/Semi-annual/Summer-2026/Messages/Message 8|⇐ Previous Message]] | [[Ministry Project/Assembly/Semi-annual/Summer-2026/Messages/Message 10|Next Message ⇒]]
 
 ---
 Singing brothers — shepherd tao, Tim adkins

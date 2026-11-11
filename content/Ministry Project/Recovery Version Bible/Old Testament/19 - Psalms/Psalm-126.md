@@ -1,23 +1,26 @@
-### v1
+> *A Song of Ascents*
 
-When Jehovah turned again the captivity of Zion, / We were like those who dream.
+---
+## v1
 
-### v2
+When Jehovah turned again the [[Psalm-126.fn#Footnote 1.1 — captivity|captivity]] of Zion, / We were like those who dream.
 
-At that time our mouth was filled with laughter / And our tongue with a ringing shout. / At that time they said among the nations, / Jehovah has done great things for them.
+## v2
 
-### v3
+At that time our mouth was filled with laughter / And our tongue with a ringing shout. / At that time they said among the nations, / Jehovah has done [[Psalm-126.fn#Footnote 2.1 — great|great]] things for them.
+
+## v3
 
 Jehovah has done great things for us; / We are joyful.
 
-### v4
+## v4
 
-Turn again, O Jehovah, our captivity / Like the streams in the south.
+Turn [[Psalm-126.fn#Footnote 4.1 — again|again]], O Jehovah, our captivity / Like the streams in the south.
 
-### v5
+## v5
 
 Those who sow in tears / Will reap with a ringing shout.
 
-### v6
+## v6
 
-He who goes forth and weeps, / Bearing seed for scattering, / Will no doubt come in with a ringing shout, / Bearing his sheaves with him.
+He who goes forth and weeps, / Bearing [[Psalm-126.fn#Footnote 6.1 — seed|seed]] for scattering, / Will no doubt come in with a ringing shout, / Bearing his sheaves with him.

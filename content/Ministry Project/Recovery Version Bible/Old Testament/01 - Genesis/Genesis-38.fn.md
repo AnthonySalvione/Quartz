@@ -39,7 +39,7 @@ Lit., said.
 
 **Verse:** [[Genesis-38#v15|Genesis 38:15]]
 
-Judah behaved in a blind way, indulging in his lust in darkness. In contrast, Joseph, living as a star of light (see note 51 in [[Genesis-37|Genesis 37]]), overcame his lust ([[Genesis-39#v7|39:7-12]]).
+Judah behaved in a blind way, indulging in his lust in darkness. In contrast, Joseph, living as a star of light (see [note 5¹](<Genesis-37.fn#Footnote 5.1 — dream>) in [[Genesis-37|Genesis 37]]), overcame his lust ([[Genesis-39#v7|39:7-12]]).
 
 ## Footnotes for verse 29
 

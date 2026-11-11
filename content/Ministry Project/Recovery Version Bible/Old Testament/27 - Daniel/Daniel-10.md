@@ -1,10 +1,10 @@
 ## v1
 
-In the third year of Cyrus the king of Persia a word was revealed to Daniel, who was named Belteshazzar; and the word was true and concerning a great distress. And he understood the word and had an understanding of the vision.
+In the [[Daniel-10.fn#Footnote 1.1 — third|third]] year of Cyrus the king of Persia a word was revealed to Daniel, who was named Belteshazzar; and the word was true and concerning a great [[Daniel-10.fn#Footnote 1.2 — distress|distress]]. And he understood the word and had an understanding of the vision.
 
 ## v2
 
-In those days I, Daniel, had been mourning for three full weeks.
+In those days I, Daniel, had been mourning for [[Daniel-10.fn#Footnote 2.1 — three|three]] full weeks.
 
 ## v3
 
@@ -12,11 +12,11 @@ I ate no desirable food, nor did meat or wine enter my mouth, nor did I anoint m
 
 ## v4
 
-And on the twenty-fourth day of the first month, while I was by the great river, that is, the Hiddekel,
+And on the twenty-fourth day of the first month, while I was by the great river, that is, the [[Daniel-10.fn#Footnote 4.1 — Hiddekel|Hiddekel]],
 
 ## v5
 
-I lifted up my eyes and I looked, and there was a certain man, clothed in linen, whose loins were girded with the fine gold of Uphaz.
+I lifted up my eyes and I looked, and there was a certain [[Daniel-10.fn#Footnote 5.1 — man|man]], clothed in linen, whose loins were girded with the fine gold of Uphaz.
 
 ## v6
 
@@ -24,11 +24,11 @@ His body also was like beryl, His face like the appearance of lightning, His eye
 
 ## v7
 
-And I, Daniel, alone saw the vision, for the men who were with me did not see the vision; instead, a great dread fell on them, and they fled to hide themselves.
+And I, Daniel, [[Daniel-10.fn#Footnote 7.1 — alone|alone]] saw the vision, for the men who were with me did not see the vision; instead, a great dread fell on them, and they fled to hide themselves.
 
 ## v8
 
-Thus I was left alone and I saw this great vision; and no strength was left in me, but my color turned deathly pale; and I retained no strength.
+Thus I was left alone and I saw this great vision; and no strength was left in me, but my color turned [[Daniel-10.fn#Footnote 8.1 — deathly|deathly]] pale; and I retained no strength.
 
 ## v9
 
@@ -40,7 +40,7 @@ And at that moment a hand touched me and sent me trembling on my knees and the p
 
 ## v11
 
-And he said to me, Daniel, man of preciousness, understand the words that I am about to tell you and stand in your place, for I have now been sent to you. And when he had spoken this word to me, I stood up trembling.
+And [[Daniel-10.fn#Footnote 11.1 — he|he]] said to me, Daniel, man of preciousness, understand the words that I am about to tell you and stand in your place, for I have now been sent to you. And when he had spoken this word to me, I stood up trembling.
 
 ## v12
 
@@ -76,7 +76,7 @@ And he said, Do not be afraid, man of preciousness. Peace to you. Be strong, yes
 
 ## v20
 
-Then he said, Do you know why I have come to you? And now I will return to fight with the prince of Persia; so I go forth, and the prince of Javan is now about to come.
+Then he said, Do you know why I have come to you? And now I will return to fight with the prince of Persia; so I go forth, and the prince of [[Daniel-10.fn#Footnote 20.1 — Javan|Javan]] is now about to come.
 
 ## v21
 

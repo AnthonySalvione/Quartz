@@ -47,7 +47,7 @@ This signifies that we, the ones who minister Christ to God as food for God’s 
 
 **Verse:** [[Leviticus-21#v7|Leviticus 21:7]]
 
-[[Leviticus-21#v7|Verses 7]], [[Leviticus-21#v9|9]], and 13-15 speak of purity in marriage, even concerning the high priest’s offspring. This signifies that we who serve God as priests and who bear the highest responsibility in God’s service should be pure in our closest human relationship, for ourselves and even for our offspring.
+[[Leviticus-21#v7|Verses 7]], [[Leviticus-21#v9|9]], and [[Leviticus-21#v13|13-15]] speak of purity in marriage, even concerning the high priest’s offspring. This signifies that we who serve God as priests and who bear the highest responsibility in God’s service should be pure in our closest human relationship, for ourselves and even for our offspring.
 
 ### Footnote 7.2 — priest
 
@@ -61,7 +61,7 @@ Lit., he.
 
 **Verse:** [[Leviticus-21#v10|Leviticus 21:10]]
 
-The anointing oil being poured on the head of the high priest (who typifies Christ—see note 11 in [[Exodus-28|Exo. 28]]) signifies that we, the New Testament priests as Christ’s Body, have the anointing Spirit upon us for our priestly service ([[2 Corinthians-01#v21|2 Cor. 1:21]]; [[Psalm-133#v2|Psa. 133:2]]). To put on the priestly garments signifies that we should live a life that befits our priestly service. Not letting the hair go loose signifies that we submit to God’s authority and are not disobedient, unrestrained, or disorderly in our actions. Not tearing one’s clothes (signifying one’s behavior—[[Revelation-19#v8|Rev. 19:8]]) signifies that we should not make ourselves bankrupt in morality.
+The anointing oil being poured on the head of the high priest (who typifies Christ—see [note 1¹](<Exodus-28.fn#Footnote 1.1 — Aaron>) in [[Exodus-28|Exo. 28]]) signifies that we, the New Testament priests as Christ’s Body, have the anointing Spirit upon us for our priestly service ([[2 Corinthians-01#v21|2 Cor. 1:21]]; [[Psalm-133#v2|Psa. 133:2]]). To put on the priestly garments signifies that we should live a life that befits our priestly service. Not letting the hair go loose signifies that we submit to God’s authority and are not disobedient, unrestrained, or disorderly in our actions. Not tearing one’s clothes (signifying one’s behavior—[[Revelation-19#v8|Rev. 19:8]]) signifies that we should not make ourselves bankrupt in morality.
 
 ## Footnotes for verse 11
 

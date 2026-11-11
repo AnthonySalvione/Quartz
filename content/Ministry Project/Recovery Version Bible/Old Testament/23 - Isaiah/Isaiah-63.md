@@ -1,6 +1,6 @@
 ## v1
 
-Who is this who comes from Edom /  
+[[Isaiah-63.fn#Footnote 1.1 — Who|Who]] is this who comes from Edom /  
 With red-stained garments, from Bozrah? /  
 This One who is majestic in His apparel, /  
 Marching in the greatness of His strength? /  
@@ -10,7 +10,7 @@ Mighty to save.
 ## v2
 
 Why are You red in apparel, /  
-And Your garments like those of him who treads in the winepress?
+And Your garments like those of him who treads in the [[Isaiah-63.fn#Footnote 2.1 — winepress|winepress]]?
 
 ## v3
 
@@ -57,7 +57,7 @@ So He became their Savior.
 ## v9
 
 In all their affliction He was afflicted, /  
-And the Angel of His presence saved them; /  
+And the [[Isaiah-63.fn#Footnote 9.1 — Angel|Angel]] of His presence saved them; /  
 In His love and in His mercy /  
 He redeemed them, /  
 And He bore them up and carried them /  
@@ -66,15 +66,15 @@ All the days of old.
 ## v10
 
 But they rebelled and grieved /  
-His Spirit of holiness; /  
+His [[Isaiah-63.fn#Footnote 10.1 — Spirit|Spirit]] of holiness; /  
 Therefore He turned to become their enemy; /  
 He fought against them.
 
 ## v11
 
-Then He remembered the days of old, Moses and His people: /  
+[[Isaiah-63.fn#Footnote 11.1 — Then|Then]] He remembered the days of old, Moses and His people: /  
 Where is He who brought them up out of the sea /  
-With the shepherds of His flock? /  
+With the [[Isaiah-63.fn#Footnote 11.2 — shepherds|shepherds]] of His flock? /  
 Where is He who put in their midst /  
 His Spirit of holiness;
 
@@ -108,11 +108,11 @@ And Your compassions are restrained toward me.
 
 ## v16
 
-For You are our Father, /  
+For You are our [[Isaiah-63.fn#Footnote 16.1 — Father|Father]], /  
 Since Abraham does not know us, /  
 And Israel does not acknowledge us. /  
 You, Jehovah, are our Father; /  
-Our Redeemer from eternity is Your name.
+Our [[Isaiah-63.fn#Footnote 16.1 — Father|Redeemer]] from eternity is Your name.
 
 ## v17
 

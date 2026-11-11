@@ -10,8 +10,8 @@ Proclaim His salvation from day to day.
 
 ## v3
 
-Declare His glory among the nations,  
-His wondrous deeds among all the peoples.
+Declare His glory among the [[Psalm-96.fn#Footnote 3.1 — nations|nations]],  
+His wondrous deeds among all the [[Psalm-96.fn#Footnote 3.2 — peoples|peoples]].
 
 ## v4
 
@@ -40,13 +40,13 @@ Bring an offering, and come into His courts.
 
 ## v9
 
-Worship Jehovah in holy splendor;  
+Worship Jehovah in holy [[Psalm-96.fn#Footnote 9.1 — splendor|splendor]];  
 Tremble before Him, all the earth.
 
 ## v10
 
 Say among the nations, Jehovah reigns;  
-Indeed the world has been established; it will not be moved;  
+Indeed the world has been [[Psalm-96.fn#Footnote 10.1 — established|established]]; it will not be moved;  
 He will judge the peoples with equity.
 
 ## v11

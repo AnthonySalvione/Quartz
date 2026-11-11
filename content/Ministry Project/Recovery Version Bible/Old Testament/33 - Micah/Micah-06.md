@@ -42,14 +42,14 @@ With one-year-old calves?
 
 Will Jehovah be pleased with thousands of rams,  
 With tens of thousands of rivers of oil?  
-Shall I give my firstborn for my transgression,  
+Shall I give my [[Micah-06.fn#Footnote 7.1 — firstborn|firstborn]] for my transgression,  
 The fruit of my body for the sin of my soul?
 
 ## v8
 
 He has declared to you, O man, what is good;  
 And what does Jehovah require of you,  
-But that you would execute justice and love mercy  
+[[Micah-06.fn#Footnote 8.1 — But|But]] that you would execute justice and love mercy  
 And walk humbly with your God?
 
 ## v9
@@ -70,7 +70,7 @@ And with a bag of deceitful weights?
 
 ## v12
 
-For the rich men of the city are full of violence,  
+For the rich men of [[Micah-06.fn#Footnote 12.1 — the|the]] city are full of violence,  
 And those who inhabit it speak falsehood,  
 And their tongue is deceitful in their mouth.
 

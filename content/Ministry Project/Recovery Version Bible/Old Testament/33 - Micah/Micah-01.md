@@ -1,10 +1,10 @@
 ## v1
 
-The word of Jehovah which came to Micah the Morashtite in the days of Jotham, Ahaz, and Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem.
+The word of Jehovah which came to [[Micah-01.fn#Footnote 1.1 — Micah|Micah]] the Morashtite in the days of Jotham, Ahaz, and Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem.
 
 ## v2
 
-Hear, all you peoples,  
+[[Micah-01.fn#Footnote 2.1 — Hear|Hear]], all you peoples,  
 And give heed, O earth and its fullness;  
 And let the Lord Jehovah be a witness against you,  
 The Lord from His holy temple.

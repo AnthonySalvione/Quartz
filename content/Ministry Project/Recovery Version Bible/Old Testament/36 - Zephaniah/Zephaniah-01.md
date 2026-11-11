@@ -1,6 +1,6 @@
 ## v1
 
-The word of Jehovah that came to Zephaniah the son of Cushi, the son of Gedaliah, the son of Amariah, the son of Hezekiah, in the days of Josiah the son of Amon, the king of Judah.
+The word of Jehovah that came to [[Zephaniah-01.fn#Footnote 1.1 — Zephaniah|Zephaniah]] the son of Cushi, the son of Gedaliah, the son of Amariah, the son of Hezekiah, in the days of Josiah the son of Amon, the king of Judah.
 
 ## v2
 
@@ -29,7 +29,7 @@ And the name of the idol priests with the priests,
 And those who worship upon the housetops  
 The host of heaven,  
 And the worshippers who swear to Jehovah  
-And swear by Malcam,
+And swear by [[Zephaniah-01.fn#Footnote 5.1 — Malcam|Malcam]],
 
 ## v6
 
@@ -40,9 +40,9 @@ And have not inquired of Him.
 ## v7
 
 Be silent before the Lord Jehovah,  
-For the day of Jehovah is near;  
-For Jehovah has prepared a sacrifice;  
-He has consecrated those whom He has called.
+For the [[Zephaniah-01.fn#Footnote 7.1 — day|day]] of Jehovah is near;  
+For Jehovah has prepared a [[Zephaniah-01.fn#Footnote 7.2 — sacrifice|sacrifice]];  
+He has [[Zephaniah-01.fn#Footnote 7.3 — consecrated|consecrated]] those whom He has called.
 
 ## v8
 

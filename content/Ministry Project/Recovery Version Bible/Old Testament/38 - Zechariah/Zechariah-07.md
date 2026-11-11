@@ -8,7 +8,7 @@ Now the people of Bethel had sent Sharezer and Regemmelech and their men to entr
 
 ## v3
 
-By speaking to the priests who belong to the house of Jehovah of hosts and to the prophets, saying, Shall I weep in the fifth month and separate myself, as I have done these many years?
+By speaking to the priests who belong to the house of Jehovah of hosts and to the prophets, saying, Shall I [[Zechariah-07.fn#Footnote 3.1 — weep|weep]] in the fifth month and separate myself, as I have done these many years?
 
 ## v4
 
@@ -24,7 +24,7 @@ And when you eat and when you drink, are you not the ones eating and are you not
 
 ## v7
 
-Are not these the words which Jehovah proclaimed by the former prophets when Jerusalem was inhabited and prosperous and had cities round about her, when the Negev and the lowlands were inhabited?
+Are not these the words which Jehovah proclaimed by the former prophets when Jerusalem was inhabited and prosperous and had cities round about her, when the [[Zechariah-07.fn#Footnote 7.1 — Negev|Negev]] and the lowlands were inhabited?
 
 ## v8
 

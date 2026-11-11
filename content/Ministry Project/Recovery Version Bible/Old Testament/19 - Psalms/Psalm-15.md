@@ -1,11 +1,14 @@
+> *A Psalm of David*
+
+---
 ## v1
 
-O Jehovah, who may sojourn in Your tent?  
+[[Psalm-15.fn#Footnote 1.1 — O|O]] Jehovah, who may sojourn in Your [[Psalm-15.fn#Footnote 1.2 — tent|tent]]?  
 Who may dwell on Your holy mountain?
 
 ## v2
 
-He who walks in integrity  
+[[Psalm-15.fn#Footnote 2.1 — He|He]] who walks in integrity  
 And does righteousness  
 And speaks truth from his heart.
 

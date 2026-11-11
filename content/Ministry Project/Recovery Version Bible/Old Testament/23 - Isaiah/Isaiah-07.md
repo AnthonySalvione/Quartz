@@ -8,14 +8,14 @@ But they were not able to prevail against it.
 ## v2
 
 And it was reported to the house of David  
-That Aram allied with Ephraim,  
+That Aram allied with [[Isaiah-07.fn#Footnote 2.1 — Ephraim|Ephraim]],  
 And his heart and the heart of his people quivered  
 As the trees of the forest quiver in the face of a wind.
 
 ## v3
 
 Then Jehovah said to Isaiah,  
-Go out to meet Ahaz, you and Shear-jashub your son,  
+Go out to meet Ahaz, you and [[Isaiah-07.fn#Footnote 3.1 — Shear-jashub|Shear-jashub]] your son,  
 At the end of the conduit of the upper pool,  
 On the road to the Fuller’s Field;
 
@@ -64,7 +64,7 @@ Then Jehovah spoke further to Ahaz, saying,
 ## v11
 
 Ask for a sign from Jehovah your God;  
-Make it as deep as Sheol,  
+[[Isaiah-07.fn#Footnote 11.1 — Make|Make]] it as deep as [[Isaiah-07.fn#Footnote 11.2 — Sheol|Sheol]],  
 Or make it as high as high can go.
 
 ## v12
@@ -83,12 +83,12 @@ That you will exhaust the patience of my God as well?
 
 Therefore the Lord Himself will give you a sign:  
 Behold, the virgin will conceive and will bear a son,  
-And she will call his name Immanuel.
+And she will call his name [[Isaiah-07.fn#Footnote 14.1 — Immanuel|Immanuel]].
 
 ## v15
 
 He will eat curds and honey  
-Until he knows how to refuse evil and choose good.
+[[Isaiah-07.fn#Footnote 15.1 — Until|Until]] he knows how to refuse evil and choose good.
 
 ## v16
 
@@ -105,8 +105,8 @@ He will bring upon you the king of Assyria.
 ## v18
 
 And in that day Jehovah will whistle  
-For the flies which are at the ends of the rivers of Egypt  
-And for the bees which are in the land of Assyria.
+For the [[Isaiah-07.fn#Footnote 18.1 — flies|flies]] which are at the ends of the rivers of Egypt  
+And for the [[Isaiah-07.fn#Footnote 18.1 — flies|bees]] which are in the land of Assyria.
 
 ## v19
 
@@ -118,10 +118,10 @@ And on all watering places.
 ## v20
 
 In that day the Lord will shave with the razor  
-Hired from beyond the River,  
+Hired from beyond the [[Isaiah-07.fn#Footnote 20.1 — River|River]],  
 With the king of Assyria,  
-The head and the hair of the legs;  
-And it will take away the beard as well.
+The [[Isaiah-07.fn#Footnote 20.2 — head|head]] and the [[Isaiah-07.fn#Footnote 20.2 — head|hair]] of the legs;  
+And it will take away the [[Isaiah-07.fn#Footnote 20.2 — head|beard]] as well.
 
 ## v21
 

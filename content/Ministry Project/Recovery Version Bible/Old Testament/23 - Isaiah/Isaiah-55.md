@@ -1,6 +1,6 @@
 ## v1
 
-Ho! Everyone who thirsts, come to the waters; /  
+Ho! Everyone who thirsts, [[Isaiah-55.fn#Footnote 1.1 — come|come]] to the [[Isaiah-55.fn#Footnote 1.2 — waters|waters]]; /  
 And you who have no money, /  
 Come, buy and eat; /  
 Yes, come, buy wine and milk /  
@@ -17,12 +17,12 @@ And let your soul delight itself in fatness.
 
 Incline your ear and come to Me; /  
 Hear, so that your soul may live; /  
-And I will make an eternal covenant with you, /  
-Even the sure mercies shown to David.
+And I will make an eternal [[Isaiah-55.fn#Footnote 3.1 — covenant|covenant]] with you, /  
+Even the sure [[Isaiah-55.fn#Footnote 3.2 — mercies|mercies]] shown to [[Isaiah-55.fn#Footnote 3.3 — David|David]].
 
 ## v4
 
-Indeed, I have given Him as a Witness to the peoples, /  
+Indeed, I have given [[Isaiah-55.fn#Footnote 4.1 — Him|Him]] as a Witness to the peoples, /  
 A Leader and a Commander to the peoples.
 
 ## v5
@@ -30,24 +30,24 @@ A Leader and a Commander to the peoples.
 Indeed, you will call a nation that you do not know, /  
 And a nation that does not know you will run to you, /  
 Because of Jehovah your God, even the Holy One of Israel, /  
-For He has glorified you.
+For He has [[Isaiah-55.fn#Footnote 5.1 — glorified|glorified]] you.
 
 ## v6
 
-Seek Jehovah while He may be found; /  
-Call upon Him while He is near.
+[[Isaiah-55.fn#Footnote 6.1 — Seek|Seek]] Jehovah while He may be found; /  
+[[Isaiah-55.fn#Footnote 6.2 — Call|Call]] upon Him while He is near.
 
 ## v7
 
 Let the wicked forsake his way, /  
-And the evildoer, his thoughts; /  
+And the [[Isaiah-55.fn#Footnote 7.1 — evildoer|evildoer]], his thoughts; /  
 And let him return to Jehovah, and He will have compassion on him; /  
 And to our God, for He will pardon abundantly.
 
 ## v8
 
-For My thoughts are not your thoughts, /  
-And your ways are not My ways, declares Jehovah.
+For My [[Isaiah-55.fn#Footnote 8.1 — thoughts|thoughts]] are not your thoughts, /  
+And your ways are not My [[Isaiah-55.fn#Footnote 8.1 — thoughts|ways]], declares Jehovah.
 
 ## v9
 
@@ -67,9 +67,9 @@ That it may give seed to the sower and bread to the eater;
 ## v11
 
 So will My word be which goes forth from My mouth; /  
-It will not return to Me vainly, /  
+It will not return to Me [[Isaiah-55.fn#Footnote 11.1 — vainly|vainly]], /  
 But it will accomplish what I delight in, /  
-And it will prosper in the matter to which I have sent it.
+And it will prosper in the matter to which I have [[Isaiah-55.fn#Footnote 11.2 — sent|sent]] it.
 
 ## v12
 
@@ -83,5 +83,5 @@ And all the trees of the field will clap their hands.
 
 In place of the thornbush, the fir tree will come up; /  
 In place of the brier, the myrtle will come up; /  
-And it will be to Jehovah as a name, /  
-As an eternal sign that will not be cut off.
+And it will be to Jehovah as a [[Isaiah-55.fn#Footnote 13.1 — name|name]], /  
+As an eternal [[Isaiah-55.fn#Footnote 13.1 — name|sign]] that will not be cut off.

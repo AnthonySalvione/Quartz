@@ -56,7 +56,7 @@ Thus says Jehovah of hosts, the God of Israel, Take these deeds, this deed of pu
 
 ## v15
 
-For thus says Jehovah of hosts, the God of Israel, Houses and fields and vineyards will again be bought in this land.
+For thus says Jehovah of hosts, the God of Israel, [[Jeremiah-32.fn#Footnote 15.1 — Houses|Houses]] and fields and vineyards will again be bought in this land.
 
 ## v16
 
@@ -112,7 +112,7 @@ Therefore thus says Jehovah, I am now giving this city into the hand of the Chal
 
 ## v29
 
-And the Chaldeans who are fighting against this city will come and set this city on fire, and they will burn it and the houses upon whose roofs the people have offered incense to Baal and poured out drink offerings to other gods to provoke Me to anger.
+And the Chaldeans who are fighting against this city will come and set this city on fire, and they will burn it and the houses upon whose roofs [[Jeremiah-32.fn#Footnote 29.1 — the|the]] people have offered incense to Baal and poured out drink offerings to other gods to provoke Me to anger.
 
 ## v30
 
@@ -144,7 +144,7 @@ And now therefore thus says Jehovah the God of Israel concerning this city of wh
 
 ## v37
 
-Indeed, I will gather them out from all the lands where I have driven them in My anger and in My wrath and in great indignation; and I will bring them back to this place and make them dwell in safety.
+Indeed, I will [[Jeremiah-32.fn#Footnote 37.1 — gather|gather]] them out from all the lands where I have driven them in My anger and in My wrath and in great indignation; and I will bring them back to this place and make them dwell in safety.
 
 ## v38
 
@@ -152,11 +152,11 @@ And they will be My people, and I will be their God;
 
 ## v39
 
-And I will give them one heart and one way, to fear Me all the days, for their own good and for the good of their children after them.
+And I will give them [[Jeremiah-32.fn#Footnote 39.1 — one|one]] heart and one way, to fear Me all the days, for their own good and for the good of their children after them.
 
 ## v40
 
-And I will make an eternal covenant with them that I will not turn away from them, to do them good; and I will put My fear into their hearts, so that they will not turn away from Me.
+And I will make an [[Jeremiah-32.fn#Footnote 40.1 — eternal|eternal]] covenant with them that I will not turn away from them, to do them good; and I will put My fear into their hearts, so that they will not turn away from Me.
 
 ## v41
 
@@ -172,4 +172,4 @@ And fields will be bought in this land of which you are saying, It is a desolati
 
 ## v44
 
-They will buy fields with money and sign and seal deeds and call witnesses in the land of Benjamin and all around Jerusalem and in the cities of Judah and in the cities of the hill country and in the cities of the lowland and in the cities of the Negev, for I will turn their captivity, declares Jehovah.
+They will buy fields with money and sign and seal deeds and call witnesses in the land of Benjamin and all around Jerusalem and in the cities of Judah and in the cities of the hill country and in the cities of the lowland and in the cities of the [[Jeremiah-32.fn#Footnote 44.1 — Negev|Negev]], for I will turn their captivity, declares Jehovah.

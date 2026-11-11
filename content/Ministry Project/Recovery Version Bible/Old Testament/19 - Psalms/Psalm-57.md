@@ -1,6 +1,14 @@
+> *To the choir director: Do not destroy. Of David. A Michtam, when he fled from Saul, in the cave*
+
+> [!light] Note on Do:
+> According to the Masoretic text. Others understand a reference to a melody common at the time beginning with the word Destroy, referring to the enemies of the nation.
+
+> [!light] Note on Michtam:
+> See note on the superscription of [[Psalm-16|Psa. 16]].
+---
 ## v1
 
-Be gracious to me, O God, be gracious to me;  
+[[Psalm-57.fn#Footnote 1.1 — Be|Be]] gracious to me, O God, be gracious to me;  
 For my soul takes refuge in You;  
 Indeed in the shadow of Your wings I will take refuge,  
 Until the destruction passes by.
@@ -15,7 +23,7 @@ To the God who accomplishes all things for me.
 He sends forth from heaven and saves me;  
 He reproaches him who would trample me; Selah  
 God sends forth  
-His lovingkindness and His faithfulness.
+His lovingkindness and His [[Psalm-57.fn#Footnote 3.1 — faithfulness|faithfulness]].
 
 ## v4
 

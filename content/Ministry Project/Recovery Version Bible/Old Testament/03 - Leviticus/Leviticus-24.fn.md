@@ -23,7 +23,7 @@ chapter_num: 24
 
 **Verse:** [[Leviticus-24#v2|Leviticus 24:2]]
 
-The pure oil of beaten olives for the light signifies the pure Holy Spirit coming out of the crucified Christ (cf. [[John-19#v34|John 19:34]]), typified by the beaten olives, for the shining of Christ as the lampstand in God’s dwelling place. See note 361 in [[Matthew-26|Matt. 26]] and note 311, par. 2, in [[Exodus-25|Exo. 25]].
+The pure oil of beaten olives for the light signifies the pure Holy Spirit coming out of the crucified Christ (cf. [[John-19#v34|John 19:34]]), typified by the beaten olives, for the shining of Christ as the lampstand in God’s dwelling place. See [note 36¹](<Matthew-26.fn#Footnote 36.1 — Gethsemane>) in [[Matthew-26|Matt. 26]] and note [31¹](<Exodus-25.fn#Footnote 31.1 — lampstand>), par. 2, in [[Exodus-25|Exo. 25]].
 
 ### Footnote 2.2 — make
 
@@ -45,7 +45,7 @@ Or, tend it. So also in [[Leviticus-24#v4|v. 4]]. The burning of the lamps conti
 
 **Verse:** [[Leviticus-24#v5|Leviticus 24:5]]
 
-This signifies that the resurrected Christ, the Christ who produced the church (typified by the two-tenths of an ephah of fine flour—[[Leviticus-23#v13|23:13]], [[Leviticus-23#v17|17]]), is the element that constitutes the food in full (the number twelve signifies fullness—[[Matthew-14#v20|Matt. 14:20]] and note) for all God’s people (represented by the twelve tribes, who are referred to in the twelve cakes) and for God to enjoy.
+This signifies that the resurrected Christ, the Christ who produced the church (typified by the two-tenths of an ephah of fine flour—[[Leviticus-23#v13|23:13]], [[Leviticus-23#v17|17]]), is the element that constitutes the food in full (the number twelve signifies fullness—[[Matthew-14#v20|Matt. 14:20]] and [note](<Matthew-14.fn#Footnote 20.1 — twelve>)) for all God’s people (represented by the twelve tribes, who are referred to in the twelve cakes) and for God to enjoy.
 
 ## Footnotes for verse 7
 

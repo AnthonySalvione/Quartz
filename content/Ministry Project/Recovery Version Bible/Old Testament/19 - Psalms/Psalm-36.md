@@ -1,6 +1,9 @@
+> *To the choir director. Of the servant of Jehovah; of David*
+
+---
 ## v1
 
-Transgression speaks to the wicked / Within his heart; / There is no dread of God / Before his eyes.
+Transgression speaks to the wicked / Within [[Psalm-36.fn#Footnote 1.1 — his|his]] heart; / There is no dread of God / Before his eyes.
 
 ## v2
 
@@ -16,7 +19,7 @@ He plans wickedness on his bed; / He sets himself on a way that is not good; / H
 
 ## v5
 
-O Jehovah, Your lovingkindness is in the heavens; / Your faithfulness reaches unto the skies.
+[[Psalm-36.fn#Footnote 5.1 — O|O]] Jehovah, Your lovingkindness is in the heavens; / Your faithfulness reaches unto the skies.
 
 ## v6
 
@@ -28,7 +31,7 @@ How precious is Your lovingkindness, O God! / Thus the sons of men take refuge i
 
 ## v8
 
-They are saturated with the fatness of Your house, / And You cause them to drink of the river of Your pleasures.
+They are saturated with the [[Psalm-36.fn#Footnote 8.1 — fatness|fatness]] of Your [[Psalm-36.fn#Footnote 8.2 — house|house]], / And You cause them to drink of the river of Your pleasures.
 
 ## v9
 

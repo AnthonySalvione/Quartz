@@ -65,4 +65,4 @@ Miriam’s becoming leprous was God’s governmental dealing. God punished Miria
 
 **Verse:** [[Numbers-12#v13|Numbers 12:13]]
 
-Moses’ praying for Miriam is a further indication of Moses’ meekness ([[Numbers-12#v3|v. 3]]). See note 51 in [[Matthew-05|Matt. 5]].
+Moses’ praying for Miriam is a further indication of Moses’ meekness ([[Numbers-12#v3|v. 3]]). See [note 5¹](<Matthew-05.fn#Footnote 5.1 — meek>) in [[Matthew-05|Matt. 5]].

@@ -1,0 +1,119 @@
+---
+speaker:
+  - Albert Lim
+hymn:
+  - "[[Hymn-1299]]"
+reading:
+  - "[[FTTA/Term 3/06 - Reading Assignments/Life of Service/Week 12 Reading|Week 12 Reading]]"
+---
+We are on the last message of the book called Character by Witness Lee. *reads title*
+
+I have read this over and over again... and I feel like it seems like it is impossible. If our character is not that good, what do we do about it? You can have all the understanding of what you need... and still, you are you. This is probably a situation that only God can do for us. By becoming a man... and going through all those processes, so that He could become the Life-giving Spirit to enter into us. This is the only way that He could actually turn us more and more into being like Him... otherwise, it is impossible to change.
+
+In this time while I was in the Philipines - i shared this with you a little bit... I met my junior high teachers - i have not see him for 50 years... but we had dinner together... with another classmate of mine, which is now one of a very famouys cardiologist in the Philipines... So, we were talking and fellowshipping, and they are all believers... especially this teacher, always tried to get me to love the Lord.
+
+She was questinging me if I went to meetings or not... When we were talking, my teacher was telling me... you know we have 3 years of jr high, and 3 years of sr high... Do you call it middle school? Anyways...
+
+This teacher was sharing, and she said - when she was teaching us... it seemed like I was not too interested in studying. But then my classmate who went with me all the way to Senior in highschool - we also went to the same university... a cardiologist. We were talking together - "oh, how much you hgave changed since that year when you taught us." Our teacher was a little schocked - which is good... sometimes they need to be shocked.
+
+How did I change? Changing is so difficult... if you don't like to study, you don't like to study.. even your parents can try to teach you everytihng, but you still won't change. It must have been in 1969,,,, the first time I heard about calling on the name of the Lord. That was quite something. When we call on the name of the Lord, something actually entered into us, and makes a big differece in our life. Dont you think so?
+
+As I was considering this.. I remember, this is what I was telling you today - about this D&M realm book - i hiope you would read this over and over again... but in chapter 4 there - you know, the spirit within our spirit - w which actually opened the third section which is DISPOSITIONAL SANCTIFICATION.
+
+You know, when books like this are printed... you know, the editor will try to do it for a book - and those books need to be read for brother Lee for his final approval... and sometimes, brother Lee would change what he had spoken in the conference.... and this part is really wonderful.
+
+If you go to page 56 there, under dispositional sanctification... There is a not from the editor - "this point of the message is recomposed to replace what was spoken in the conference. All the attendance of the ITERO should please read this recomposed portion as a speical loving requets."
+
+I don't know how you pursue the truth... There is a lot of speaking in the 7 feasts -it comes out on the ministry magazine... The ministry magazine made changes for the better.... sometimes when we speak, we make some mistakes actually... even the references of the bible verses... We are human - you are liable to make mistakes... that is what all humans are. Anyways. Let me read you this portion. Dispositional sanctification can only be done IN THE HOLY SPIRIT. This is the Holy Spirit, after the glorification of our Lord, which is now the all-inc. life giving spirit... even today is the 7fold intensified spirit - dispositional sanctification - through the spirit. So, if you don't turn to your spirit and exercise your spirit - the spirit that is in your spirit... you could never have the proper character serving the Lord. This is a day by day thing... don't think that 10 years ago you turned to your spirit it still works... no, every day we need to turn to our spirit.
+
+The first aspect is His seeking sanctification... this is why we need to come to the word every day, so that this word would continue to enlighten us... 
+
+secondly, positional sanctification by the redeeming blood of Christ judicially... this is the judicial sanctification - or judicial redemption... then the third aspect - dispositional sanctification by the holy spirit organically... We have covered the first two aspects, so this book is trying to cover tthe third aspect - the main verse there is Romans 15:16. Let's read this verse together.
+
+![[Romans-15#v16]]
+
+
+Okay, so, it says that Romans 15:16 unveils to us that the believers in Christ are sanctified in the holy spirit to be acceptable to God... To be acceptable to God means we would have the proper disposition and character acceptable to God... especially the Gentile believers which are us... All the regenerated, and growing believers need to be sanctified in their disposition... WITH THE ELEMENT OF THE RESURRECTION LIFE OF CHRIST!! Which they receievd through the FEEDING, their eating, so that they may be sanctified with the holy anture of God... that they may be made holy unto God... the sanctification mentioned in Romans 6:19 and 20 refers to this kind of sanctification... our fallen nature became a fallen disposition, distorted, crooked, and perverted... which needs to be adnusted, strengthened, particularly in God's sanctification with His holy nature.
+
+How do we help or improve or change our character... our character and disposition is just distorted, --- so God's sanctifiaction is needed with His holy nature... He talks about this sanctirication, this change of us... begins from our SPIRIT. The dispositional and positional sanctification BEGINS WITH OUR SPIRIT - but it has to go through our soul, and eventually unto our body, so that our entire being can be wholly sanctified.
+
+1 Thes. 5:23 says... clearly, that the holy spirit is anctifying us THROUGH OUR SOUL FROM OUR SPIRIT INTO OUR BODY - so that our entire being may be holy unto God.... I was very touched b ythis - I always feel like it is so important and impossible to talk about Chracter... how do we change? This is another thing.
+
+When brother Lee talks about character - what is your impression of why he is talking about character? We need such a proper character so that we can contact Him... so we will read all the 6 chapters without reading the 7 chapter - the last chapter is telling us why we need such a proper character... so that we can contact people PROPERLY. That is why we need to deal with our character...and by dealing with our character, the divine nature of our Lord will be infused and saturated in us.. So what will happen to us? We will be more and more lik the Lord - we see from Watchman Nee's chapter 2 - the Lord's nature IS TO LOVE PEOPLE
+
+That is why He came to be a man!! With the Pharisees - "I come to save sinners,..." but the pharasees dont think that is a good thing - they thought the lord should come to the good people, the pharisees and scribes... the religious people - but the Lord came to save sinners.
+
+We need to deal with our character so that we would LOVE TO CONTACT PEOPLE.
+
+In the last section of this chapter... contacting people in giving grace at all times.... 
+
+Hopefully you read this section - i will leave that for you to share... there are so many points... Let's come to Watchman Nee's book on loving the lovers of men. I am always quite amazed... how brother Nee comes to approach this matter of character. The first thing that he is saying is that we need to be a good person.. in the second chapter it says right away that... As a good person, you will be a lover of men - i would NOT start with this... i would tell people how to improve themselves first... but brohter Nee said we need to be such a good LISTENER... All these things are actually telling us we need to have such a proper character SO THAT WE CAN SHEPHERD OTHERS. The being a good listener is for your SHPHERDING PEOPLE!!
+
+We have our preconceptions when we approach people, what we want to tell them, but you can tell them a lot of things that they dont need - but if you just go and listen it will be wonderful becasue you will know what they need - and you will help and talk to them according to their need and according to their concept... for you to be willing to listen to people YOU MUST LOVE THEM - if you don't love them, you would never spend time with them.. You would never want to listen to what they have to say 
+
+You go to visit them, but you just perform your duty telling them what you think they need... But what you think probably IS NOT THEIR NEED - you need to be patient, sit down and listen to them... 
+
+Let's read 2 Peter 1:5-8
+
+![[2 Peter-01#v5]]![[2 Peter-01#v6]]![[2 Peter-01#v7]]![[2 Peter-01#v8]]
+
+
+If you see what Peter is say8ng... he is actually saying that just to have brotherly love is not enough.. we need to go on to love. This love according to the minstry, the book brother Lee wrote - the LOVE OF ALL MEN... The love in John 3:16 - for God so lovd the world... it is the love that one lost sheep would go to find, the one lost coin... IT IS NOT THE LOVE OF JUST OUR BROTHERS... if we say we love our brothers, that is already quite good... but John 3:16 says our God is not just that... HE LOVES THE WORLD. Don't you think that is wonderful?
+
+If you have brotherly love, it is great, but it is not enough... Maybe that is why a lot of us dont like to preach the gospel.. but rather just blend with saints... To go preach the gospel - why do I have to go contact all these sinners and gentiles?!? They dont even want to believe, that is their problem...
+
+I read a lot of biographies... whenever brother Lee recommends it... Some of them are very good... One of the biographies that brother Lee says is very good is HUDSON TAYLOR... written by his daughter in law.. The one that brother Lee loved is the one that is written by his daughter-in-law. Anyways.
+
+Anyways, so you know, one of the things that I Was so touched about - HUDSON TAYLOR, somehow, just wanted to go to China... At that time, England is one of the top countries... All these people lining up to go to hell... so he wants to go and save all thse people so that they would NOT FOLLOW ... So he went to china... if you look at some of the pictures in Hudson taylor... he would wear those chinese gowns and all this - so very different... He would do that - and he actualy speak pretty good chinese - quite something...
+
+IDK if i told you this, my grandma was saved by two of his missionaries in the china inland mission - these two were just about 18 or 19 years old... and they all came from England - these two sistesr travelled together by WALKING in the mountainous area of ... - these places have idols, tigers... and hoodlum bandits... but they would travel, they traveled to the village of my grandma... and one of the things that my grandma says.. "these two sisters SPEAK our local dialect..." They also spoke manderin.. but they spoke the LOCAL LANGUGAE - that was why they could gain these people...
+
+I wonder why omst of us are only one language... If you don't speak your local language, it is very hard to gain people - they may listen to you... but may not be gained by you. Anyways.
+
+I hope the Lord would touch us very much... I just pray very much... in this training, we would train up SO MANY EFFECTIVE WORKERS of the Lord. The Lord wants to return... but if you all dont have such a feeling for the Lord... it may be you dont love man, you just love yourself.. .so you don't want to be trained to go out into these difficult places... When you go to Euriope, you are actually going to another 1st world countrie... but Judson taylor in China was going to a THIRD WORLD... but they still have such a burden of the Lord.
+
+Sometimes i was fellowshipping with some brothers... "it is so difficult to gain caucasians" i said - this is a big lie ... all my ancestors were SAVED by caucasion... They are SOOO BUDDHIST - SO many caucasinos were willing to leave their countrie to come to a heathen land... The Lord will and wants to SAVE ALL MAN.
+
+I hope the Lord would really gain us for this... I hope you have read all this chapters already... This is why you are here. To be CONSTITUTED with all these things... If you don't want to read it... I have no way to force you to read it. I hope the Lord would force you to read it - and the Lord CAN.
+
+
+there is one more thing i was really touched by ...
+
+It talks about ➤ we need an ENLARGED HEART. In speaking this point - the reason i was s touched... is because some time ago, i read in the bible some of the verses that touched me...
+
+For us to care for people, we need PROPER DISCERNMENT of where people are... this is why we need to be a careful and good listener, so that we can understand the people we are caring for.
+
+So, the Lord answered him... if we want to serve the Lord we should pray such prayers... I have been praying this prayer for a long time - i travelled so much meeting all kinds of people... it is hard to understand all kinds of people because of their background, culture and beliefs... but if the Lord gives you a heart of wisdom and revelation.. you can actually understand where they are, and that is how you would be able to render some help to them.
+
+When you read the next chapter, in chapter 4... there is another answer of the Lord! He did not just answer one time... but he actually did something for solomon, and this part is very much what I desire and enjoy... so in chapter 4 ,verse 29, "and god gave solomon wisdom" We need to pray that we could have an enlarged heart to love all the saints... all beleivers, loving the world as the Lord loves the world - then we will become an effective co-workers with the Lord - this is what the Lord is working on... He is working on all these lost sheep... all the lost coins... He is working on the prodigal son - these people that weemed to be not doing so well - but because of the largeness of heart, we can actually take care.
+
+---
+
+Melissa - The first portion, when I read by myself... I like to pray out loud... starting to agree what the Lord is shining, but I couldn't do that because I was with a student... I like to be by myself... I don't like anyone else to be around me. On Monday, I went with a sister - a fulltime mom... and asked my GP and I to come cook with her and be with her children... but she was very busy, doing all these things, multitasking... I felt it would not be good to invite more trainees to their house with all these things to do... but her heart was so great for us - so cherished for us to be there. It exposed me. I like to do things by myself. The Lord liked to bring the disciples everywhere he went...
+
+I have a life within me that loves to contact people - we need to igive Him the way to live this life in me.
+
+Bethany - we need a heart for man... especially in this second chapter - brother Nee talks about "how small is your heart for man." We love the other saints... maybe we don't love them, but we think we do... but do we have a heart for MAN? All of mankind is created by God... man is God's hobby, He loves man... we need this heart reproduced in us... When I was reading this - i was thinking of my time on the gospel - when I am in the park ,who do I talk to? Do I have a heart for everybody I see in the park??? Men were created by God... all of them... and God wants to reach all of them - we need to spend time with the Lord to impart this heart and vision into us.
+
+Anthony M. - gods goal is the church, but God's heart is to gain man... He still loves man. All men were created in the image of God... even if it was just one sinner, he still would have came and died... in the reading, he brought out that the only difference btween us and an unsaved man is that we love the Lord. That is the only difference... we should thank the Lord for giving us grace. Faith and love is not out of yourselves... but is from the Lord, as we continue to stay in this organic union with the Lord, he is just infusing more of Himself into us as love... and He is faithful to work this out in us.
+
+Raymond - He loved man, and gave His life. So many times... I realize... I might hold back my love until a person receives the Lord... I don't want to waste my affectoion on people i dont think will receive the lord... what kind of heart is that??? IT IS FOR EVERY SINGLE PERSON - we need to open our hearts... Hie entire plan rested on him becoming a man... The Lord wants to bring, redeem, fill and bring man to Himself.
+
+Matty Wu - so many conditionals... if you don't have a heart for manm, you are not qualified to serve the Lord... None of us meet any of those conditions... How important is it for us to be uplifted in our view of what the Lord is after - you know, if we were the only person in the entire universe, the Lord would still come and die for us - are we willing to die for our fellow brothers and sisters?? Lord, keep uplifting my view, show me what you see... bring me into what your view is. first and foremost, my brothers and sistesr, then a heart for all men.
+
+Camilla - Lord, I do not see this... I am so narrow... My heart is so narrow... and I just felt so convicted, sometimes when I am on the gospel, I see people - have so many concepts built up in me... I had an experience recently... out on theg ospel - with my gp - there was a girl who looked different.. the Lord bothered me to talk to her - but I was like no way she would talk to me... no way. Like, Lord, do you see her?!? But I was judging her on the way she was dressed!! We started walking in her direction, she slowed her pace and we talked to her - we asked what her name is - she said im an international student, but feel so lonely and have no friends...
+
+Casey - the Lord loves all man... brother Lee in the first few sentences - the flavor of the word "children of God" is not weightier than the love of men... GOd had to become a man to carry out His eocnomy - this economy can only be carried out by man becoming one with God - we are here to serve the Lord, consecrating ourselves to serve the Lord... but when we serve the Lord, we should also serve and have a heart for man. SOmetimes I have a preference in my love.... but especially men, who we talk to,
+
+Crystal Kan - brother Lee gave an example - there is a conference, then he asked a brother "who came from overseas?" Then it was only 2 - 1 from hongkong and indonesia... but the brother didnt' even know the name - they stayed for months together in the training, yet he still does not know the name - this reminds me of my conversation with my GP in the beginning of this term - we thought it was hard to memorize the saints names... but the more we talked, we realized it is because we are NOT interested in people... because if we are interested, we like or love someone... we will remember their name - AT LEAST their name. It just exposed... "oh, we are just not interested in people." There was a fire near SJC... so we went to Irvine one week, then Irvine came to us- there was blending two days in a row...  I don't even talk to the irvine saints, I just talk to those who I am comfortable with and like...  OUR HEART IS SO NARROW. Very practical exercise given by brother Lee- before and after every meeting, we should at least contact one or two people - don't think this is too legal... but Chracter - you need to TRAIN CHARACTER. Don't say "it is too legal" when you are not wanting to do it.
+
+Rebeca E... I remember my grandma preaching the gospel to every waiter, uber driver, cashier... and I would always hide because I was so uncomfortable... but I am learning now that this is the Lord's heart. We should be interested in every man. I was so exposed and convicted, as other trainees shared, it is a mercy to be humble and reminded... I was reminded of 1 Cor. paul says "by the grace of God i am what I am.." it is a mercy to be reminded that we are not, but the Lord is. Only grace can cause us to prostrate ourselvse toward the Lord in this way. It is a mercy to be humbled in this way - reminded that we are not any different than other believers if not for the grace of God.
+
+Alexis Mills - this reading convicted me... the love for man was so strong in these chapters. I have been coming to the character classes, and even my vew of  serving the Lord without relaizing the purpose of my service-  which is what God's heart is - his heart is entire for man... our service and work to the Lord is entirely related to man. I was really touched that we have a responsiblity to cultivate a love for man... this is not something spontaneous that we just develop over night... but like some others have shared... it is a day by day turning to the Lord... even moment by moment that He is able to infuse His heart into us. The reading brought out in chapter 7... most problems are caused by our character - our love for man is short because of our character... our character is just really our naturalness in position, and natural makeup and habits together... I was touched,  we need to allow the Lord to break us absolutely... even the good parts. As we are learning to serve the Lord and contact man... we must be in constant fellowship with Him, and we must rely on His grace. Last night we saw in Mark 12:30 we are commanded to love the Lord - and in 31... we are also commanded to lvoe man... It is a commandment to love man!! I cannto do it in myself... but through our intrinsic touh with the Lord he is working this out in us.
+
+I hate cheese... so I don't think I could work in a place that sold cheese or has cheese, but I love coffee... so i would be more than happy to spend the rest of my life in the coffee shop.... but if we dont lvoe man, we wouldn't be around man that much... I was struck with this part - the Lord Jesus first loved and served man... Love first, then the sacrifice of life comes afterwards... Luke 7:47... ![[Luke-07#v47]]It is not because she loved the Lrod because her sins were forgiven... out of the sins being forgiven, issued forth love. Most times we just don't want to reach man or forgive them... this is the pattern that we have... the Lord's heart which is now - "this person is in us." We just need to follow this pattern. Like we were saying in GE... every organ, it is healing in every part of us... we dont need to try to lvoe man... the more we try to lvoe them, the more I hat them - i just need to be simple and follow him.
+
+I was reminded = We think we are going to save sinners, like we ARENT sinners... but we are just the same... Doctors don't reject sick patients... so when I am out, I am just contacting people in my normal life... I think that I am different from any other person... that would be like a doctor saying they aren't just the same body as anyone else... God views us all the SAME WAY. I really want to see more that that phrase "fellow man..." is not just fellow believers, but fellow men. We all have received this grace freely, we did not deserve it, but the Lord wants us to give this grace to others - we must see we are all equal... through the Lord enlarging our heart for all of men, we can provide the proper care in the way that we need.
+
+
+Albert - for us to shepherd people... we need to love Cheese, coffee, durian... so we can actually gain people accodring to what they love. I was just in Paris not too long ago... and there was a Malaysian there, with a durian transported in a sealed packt...

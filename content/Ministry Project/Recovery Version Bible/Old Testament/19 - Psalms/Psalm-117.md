@@ -7,4 +7,4 @@ Laud Him, all you peoples.
 
 For His lovingkindness is great toward us,  
 And the faithfulness of Jehovah is forever.  
-Hallelujah.
+[[Psalm-117.fn#Footnote 2.1 — Hallelujah|Hallelujah]].

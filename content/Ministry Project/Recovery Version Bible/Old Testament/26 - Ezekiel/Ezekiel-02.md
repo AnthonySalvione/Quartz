@@ -8,7 +8,7 @@ And the Spirit entered into me when He spoke to me and caused me to stand up on 
 
 ## v3
 
-And He said to me, Son of man, I am sending you to the children of Israel, to rebellious heathen who have rebelled against Me; they and their fathers have transgressed against Me unto this very day;
+And He said to me, Son of man, I am sending you to the children of Israel, to [[Ezekiel-02.fn#Footnote 3.1 — rebellious|rebellious]] heathen who have rebelled against Me; they and their fathers have transgressed against Me unto this very day;
 
 ## v4
 
@@ -20,11 +20,11 @@ And they, whether they hear or not — for they are a rebellious house — they 
 
 ## v6
 
-And you, son of man, do not be afraid of them and do not be afraid of their words; though thistles and thorns are with you and you dwell among scorpions, do not be afraid of their words and do not be dismayed at their faces; for they are a rebellious house.
+And you, son of man, do not be afraid of them and do not be afraid of their words; though [[Ezekiel-02.fn#Footnote 6.1 — thistles|thistles]] and thorns are with you and you dwell among scorpions, do not be afraid of their words and do not be dismayed at their faces; for they are a rebellious house.
 
 ## v7
 
-And you shall speak My words to them, whether they hear or not; for they are rebellious.
+And you shall speak My words to them, whether they hear or not; for they are [[Ezekiel-02.fn#Footnote 7.1 — rebellious|rebellious]].
 
 ## v8
 

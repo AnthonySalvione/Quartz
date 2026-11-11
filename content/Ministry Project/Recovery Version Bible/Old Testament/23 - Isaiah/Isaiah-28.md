@@ -1,13 +1,13 @@
 ## v1
 
-Woe to the proud crown of the drunkards of Ephraim  
+Woe to the proud crown of the drunkards of [[Isaiah-28.fn#Footnote 1.1 — Ephraim|Ephraim]]  
 And to the fading flower of its glorious beauty,  
 Which is at the head of the fat valley  
 Of those who are overcome by wine.
 
 ## v2
 
-Indeed the Lord has someone strong and mighty;  
+Indeed the Lord has [[Isaiah-28.fn#Footnote 2.1 — someone|someone]] strong and mighty;  
 As a hailstorm and a tempest of destruction,  
 As a storm of mighty overflowing waters,  
 He will cast down to the earth with His hand.
@@ -28,8 +28,8 @@ And in an instant it is in his hand, and he swallows it up.
 ## v5
 
 In that day Jehovah of hosts  
-Will become a crown of glory  
-And a diadem of beauty  
+Will become a [[Isaiah-28.fn#Footnote 5.1 — crown|crown]] of glory  
+And a [[Isaiah-28.fn#Footnote 5.1 — crown|diadem]] of beauty  
 To the remnant of His people,
 
 ## v6
@@ -62,14 +62,14 @@ Those drawn from the breasts?
 ## v10
 
 For his words are:  
-Rule upon rule, rule upon rule;  
+[[Isaiah-28.fn#Footnote 10.1 — Rule|Rule]] upon rule, rule upon rule;  
 Line upon line, line upon line;  
 Here a little, there a little.
 
 ## v11
 
 For with stammering lips  
-And with a foreign tongue  
+And with a [[Isaiah-28.fn#Footnote 11.1 — foreign|foreign]] tongue  
 He will speak to this people,
 
 ## v12
@@ -82,7 +82,7 @@ But they would not hear.
 ## v13
 
 Therefore Jehovah’s word to them will be:  
-Rule upon rule, rule upon rule;  
+[[Isaiah-28.fn#Footnote 13.1 — Rule|Rule]] upon rule, rule upon rule;  
 Line upon line, line upon line;  
 Here a little, there a little;  
 That they may go and stumble backward,  
@@ -93,7 +93,7 @@ And be broken, snared, and taken.
 Therefore hear the word of Jehovah,  
 You scoffing men,  
 Who rule this people  
-Who are in Jerusalem:
+Who are in [[Isaiah-28.fn#Footnote 14.1 — Jerusalem|Jerusalem]]:
 
 ## v15
 
@@ -110,9 +110,9 @@ And have hidden ourselves in deception.
 
 Therefore thus says  
 The Lord Jehovah:  
-Indeed I lay a stone in Zion as a foundation,  
+Indeed I lay a [[Isaiah-28.fn#Footnote 16.1 — stone|stone]] in Zion as a foundation,  
 A tested stone,  
-A precious cornerstone as a foundation firmly established;  
+A precious [[Isaiah-28.fn#Footnote 16.1 — stone|cornerstone]] as a foundation firmly established;  
 He who believes will not hasten away.
 
 ## v17
@@ -145,7 +145,7 @@ And the sheet is too narrow for him to wrap himself in.
 
 ## v21
 
-For Jehovah will rise as on Mount Perazim,  
+For Jehovah will [[Isaiah-28.fn#Footnote 21.1 — rise|rise]] as on Mount Perazim,  
 He will be agitated as in the valley of Gibeon,  
 To do His deed, His strange deed,  
 And to do His work, His most different work.
@@ -164,7 +164,7 @@ Attend and hear my speech.
 
 ## v24
 
-Does the plowman plow all day long to sow his seed?  
+Does the [[Isaiah-28.fn#Footnote 24.1 — plowman|plowman]] plow all day long to sow his seed?  
 Does he open and harrow his ground continually?
 
 ## v25

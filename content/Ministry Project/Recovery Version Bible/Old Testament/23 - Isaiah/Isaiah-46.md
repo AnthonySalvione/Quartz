@@ -1,8 +1,8 @@
 ## v1
 
-Bel has bowed down; Nebo stoops; /  
+[[Isaiah-46.fn#Footnote 1.1 — Bel|Bel]] has bowed down; [[Isaiah-46.fn#Footnote 1.2 — Nebo|Nebo]] stoops; /  
 Their idols are on beasts and cattle; /  
-The things which you carry are a burden, /  
+The things which you carry are a [[Isaiah-46.fn#Footnote 1.3 — burden|burden]], /  
 A load for a weary beast.
 
 ## v2
@@ -66,7 +66,7 @@ And all My desire I will accomplish;
 
 ## v11
 
-Who calls for a bird of prey from the east, /  
+Who calls for a [[Isaiah-46.fn#Footnote 11.1 — bird|bird]] of prey from the east, /  
 And from a distant land a man to be My counselor. /  
 Indeed, I have spoken; surely I will bring it to pass. /  
 I have purposed; surely I will do it.

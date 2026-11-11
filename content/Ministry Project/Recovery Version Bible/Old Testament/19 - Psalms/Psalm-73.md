@@ -1,11 +1,14 @@
+> *A Psalm of Asaph*
+
+---
 ## v1
 
-Surely God is good to Israel,  
-To those who are pure in heart.
+[[Psalm-73.fn#Footnote 1.1 — Surely|Surely]] God is good to Israel,  
+To those who are [[Psalm-73.fn#Footnote 1.2 — pure|pure]] in heart.
 
 ## v2
 
-But as for me, my feet were nearly turned aside;  
+But as for me, my feet were nearly [[Psalm-73.fn#Footnote 2.1 — turned|turned]] aside;  
 My steps had almost slipped.
 
 ## v3
@@ -60,7 +63,7 @@ And always at ease, they heap up riches.
 
 ## v13
 
-Surely I have purified my heart in vain,  
+Surely I have purified my heart in [[Psalm-73.fn#Footnote 13.1 — vain|vain]],  
 And I have washed my hands in innocence.
 
 ## v14
@@ -80,7 +83,7 @@ It was a troublesome task in my sight,
 
 ## v17
 
-Until I went into the sanctuary of God;  
+Until I went into the [[Psalm-73.fn#Footnote 17.1 — sanctuary|sanctuary]] of God;  
 Then I perceived their end.
 
 ## v18
@@ -120,13 +123,13 @@ And afterward You will receive me in glory.
 
 ## v25
 
-Whom do I have in heaven but You?  
+[[Psalm-73.fn#Footnote 25.1 — Whom|Whom]] do I have in heaven but You?  
 And besides You there is nothing I desire on earth.
 
 ## v26
 
 My flesh and my heart fail,  
-But God is the rock of my heart and my portion forever.
+But God is the rock of my heart and my [[Psalm-73.fn#Footnote 26.1 — portion|portion]] forever.
 
 ## v27
 

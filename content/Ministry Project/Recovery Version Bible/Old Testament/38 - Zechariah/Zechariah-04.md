@@ -1,14 +1,14 @@
 ## v1
 
-Then the angel who spoke with me returned and roused me as a man is roused from his sleep.
+[[Zechariah-04.fn#Footnote 1.1 — Then|Then]] the angel who spoke with me returned and roused me as a man is roused from his sleep.
 
 ## v2
 
-And he said to me, What do you see? And I said, I see that there is a lampstand all of gold, with its bowl on top of it and its seven lamps upon it, with seven pipes for each of the lamps on top of it;
+And he said to me, What do you see? And I said, I see that there is a [[Zechariah-04.fn#Footnote 2.1 — lampstand|lampstand]] all of gold, with its bowl on top of it and its [[Zechariah-04.fn#Footnote 2.2 — seven|seven]] lamps upon it, with [[Zechariah-04.fn#Footnote 2.2 — seven|seven]] pipes for each of the lamps on top of it;
 
 ## v3
 
-And there are two olive trees beside it, one to the right of the bowl and one to the left.
+And there are [[Zechariah-04.fn#Footnote 3.1 — two|two]] olive trees beside it, one to the right of the bowl and one to the left.
 
 ## v4
 
@@ -20,11 +20,11 @@ And the angel who spoke with me answered and said to me, Do you not know what th
 
 ## v6
 
-And he answered and spoke to me, saying, This is the word of Jehovah to Zerubbabel, saying, Not by might nor by power, but by My Spirit, says Jehovah of hosts.
+And he answered and spoke to me, saying, [[Zechariah-04.fn#Footnote 6.1 — This|This]] is the word of Jehovah to Zerubbabel, saying, Not by might nor by power, but by My [[Zechariah-04.fn#Footnote 6.2 — Spirit|Spirit]], says Jehovah of hosts.
 
 ## v7
 
-Who are you, O great mountain? Before Zerubbabel you will become a plain, and he will bring forth the topstone with shouts of Grace, grace to it!
+Who are you, O great mountain? Before Zerubbabel you will become a plain, and he will [[Zechariah-04.fn#Footnote 7.1 — bring|bring]] forth the topstone with shouts of Grace, grace to it!
 
 ## v8
 
@@ -36,7 +36,7 @@ The hands of Zerubbabel have laid the foundation of this house, and his hands wi
 
 ## v10
 
-For who has despised the day of small things? For these seven rejoice when they see the plummet in the hand of Zerubbabel; they are the eyes of Jehovah running to and fro on the whole earth.
+For who has despised the day of small things? For these [[Zechariah-04.fn#Footnote 10.1 — seven|seven]] rejoice when they see the plummet in the hand of Zerubbabel; they are the eyes of Jehovah running to and fro on the whole earth.
 
 ## v11
 
@@ -44,7 +44,7 @@ Then I answered and said to him, What are these two olive trees on the right of 
 
 ## v12
 
-And I answered a second time and said to him, What are the two olive branches that are by the side of the two golden spouts, which empty the gold from themselves?
+And I answered a second time and said to him, What are the two olive [[Zechariah-04.fn#Footnote 12.1 — branches|branches]] that are by the side of the two golden spouts, [[Zechariah-04.fn#Footnote 12.2 — which|which]] empty the [[Zechariah-04.fn#Footnote 12.3 — gold|gold]] from themselves?
 
 ## v13
 

@@ -10,7 +10,7 @@ And your lips may guard knowledge.
 
 ## v3
 
-For the lips of a strange woman drip honey,  
+For the lips of a [[Proverbs-05.fn#Footnote 3.1 — strange|strange]] woman drip honey,  
 And her mouth is smoother than oil;
 
 ## v4

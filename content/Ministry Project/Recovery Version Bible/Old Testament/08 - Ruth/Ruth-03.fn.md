@@ -47,7 +47,7 @@ Ruth’s approaching Boaz in [[Ruth-03#v7|vv. 7-9]] was based on God’s ordinat
 
 **Verse:** [[Ruth-03#v9|Ruth 3:9]]
 
-See note 12¹.
+See [note 12¹](<Ruth-03.fn#Footnote 12.1 — kinsman>).
 
 ## Footnotes for verse 11
 
@@ -63,7 +63,7 @@ Lit., gate.
 
 **Verse:** [[Ruth-03#v12|Ruth 3:12]]
 
-In this verse the first kinsman of Ruth’s husband, Ruth’s closest kinsman, typifies our natural man, who cannot and will not redeem us from the indebtedness (sin) of our old man ([[Ruth-04#v1|4:1-6]]). Boaz, the second kinsman of Ruth’s husband, typifies Christ, who partook of blood and flesh ([[Hebrews-02#v14|Heb. 2:14]]) to be our Kinsman and who can redeem us from our sin, recover the lost right of our natural man in God’s creation, be our new Husband in His divine organic union with us, and take us as His counterpart for His increase ([[Ruth-04#v7|4:7-13]]). Cf. note 42 in [[Ruth-01|Ruth 1]].
+In this verse the first kinsman of Ruth’s husband, Ruth’s closest kinsman, typifies our natural man, who cannot and will not redeem us from the indebtedness (sin) of our old man ([[Ruth-04#v1|4:1-6]]). Boaz, the second kinsman of Ruth’s husband, typifies Christ, who partook of blood and flesh ([[Hebrews-02#v14|Heb. 2:14]]) to be our Kinsman and who can redeem us from our sin, recover the lost right of our natural man in God’s creation, be our new Husband in His divine organic union with us, and take us as His counterpart for His increase ([[Ruth-04#v7|4:7-13]]). Cf. [note 4²](<Ruth-01.fn#Footnote 4.2 — Ruth>) in [[Ruth-01|Ruth 1]].
 
 ## Footnotes for verse 15
 

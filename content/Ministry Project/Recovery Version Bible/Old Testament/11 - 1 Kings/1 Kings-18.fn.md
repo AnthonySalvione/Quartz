@@ -15,4 +15,4 @@ chapter_num: 18
 
 **Verse:** [[1 Kings-18#v46|1 Kings 18:46]]
 
-Referring to the Spirit of Jehovah. Cf. note 62 in [[Ezra-07|Ezra 7]].
+Referring to the Spirit of Jehovah. Cf. [note 6²](<Ezra-07.fn#Footnote 6.2 — hand>) in [[Ezra-07|Ezra 7]].

@@ -1,7 +1,7 @@
 ## v1
 
 Thus says Jehovah to His anointed, /  
-To Cyrus, whose right hand I have grasped, /  
+To [[Isaiah-45.fn#Footnote 1.1 — Cyrus|Cyrus]], whose right hand I have grasped, /  
 To subdue the nations before him; /  
 And I will loosen the loins of kings; /  
 To open before him double doors /  
@@ -49,8 +49,8 @@ I am Jehovah who makes all these things.
 ## v8
 
 Drip down, O heavens, from above, /  
-And let the clouds flow down righteousness; /  
-Let the earth open /  
+And let the clouds [[Isaiah-45.fn#Footnote 8.1 — flow|flow]] down righteousness; /  
+Let the earth [[Isaiah-45.fn#Footnote 8.1 — flow|open]] /  
 And bring forth salvation and righteousness; /  
 Let them spring forth together; /  
 I, Jehovah, have created it.
@@ -83,7 +83,7 @@ And I commanded all of their host.
 
 ## v13
 
-I raised him up in righteousness, /  
+I raised [[Isaiah-45.fn#Footnote 13.1 — him|him]] up in righteousness, /  
 And will make straight all his ways; /  
 He will build My city, /  
 And send away My captives, /  
@@ -93,7 +93,7 @@ Says Jehovah of hosts.
 ## v14
 
 Thus says Jehovah, /  
-The wealth of Egypt, and the merchandise of Cush, /  
+The wealth of Egypt, and the merchandise of [[Isaiah-45.fn#Footnote 14.1 — Cush|Cush]], /  
 And the Sabeans, men of stature, /  
 Will pass to you and will be yours. /  
 They will walk behind you; they will come over in chains /  
@@ -125,7 +125,7 @@ Who created the heavens — /
 He is the God /  
 Who formed the earth and made it; /  
 He established it; /  
-He did not create it waste, /  
+He did not create it [[Isaiah-45.fn#Footnote 18.1 — waste|waste]], /  
 But He formed it to be inhabited: /  
 I am Jehovah and there is no one else;
 
@@ -175,11 +175,11 @@ And every tongue shall swear.
 ## v24
 
 It shall be said of Me, Only in Jehovah /  
-Is there righteousness and strength. /  
+Is there [[Isaiah-45.fn#Footnote 24.1 — righteousness|righteousness]] and [[Isaiah-45.fn#Footnote 24.1 — righteousness|strength]]. /  
 To Him shall men come, /  
 And all those who are burning in anger against Him shall be ashamed.
 
 ## v25
 
 In Jehovah all the seed of Israel /  
-Shall be justified and shall glory.
+Shall be [[Isaiah-45.fn#Footnote 25.1 — justified|justified]] and shall glory.

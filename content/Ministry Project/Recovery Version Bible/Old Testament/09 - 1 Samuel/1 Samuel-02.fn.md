@@ -31,7 +31,7 @@ Some MSS read, Though actions are not weighed.
 
 **Verse:** [[1 Samuel-02#v11|1 Samuel 2:11]]
 
-Samuel was of the tribe of Levi ([[1 Chronicles-06#v33|1 Chron. 6:33-38]]) but was not of the house of Aaron, the family of the priests ordained by God. Samuel ministered to the Lord as one who was a priest not by birth but by the Nazarite vow. At the time of Samuel the priesthood of the house of Aaron was utterly fallen. God, however, foresaw the situation. Besides His ordaining the house of Aaron to be the priests, He made a supplement—the Nazarite vow in [[Numbers-06|Num. 6]]—in case there should be an inadequacy in the ordained priests. When the house of Aaron fell, this supplement was put into practical use. Samuel became a priest by being consecrated, separated, and lent to God ([[1 Samuel-01#v11|1:11]], [[1 Samuel-01#v28|28]]). See note 21 in [[Numbers-06|Num. 6]].
+Samuel was of the tribe of Levi ([[1 Chronicles-06#v33|1 Chron. 6:33-38]]) but was not of the house of Aaron, the family of the priests ordained by God. Samuel ministered to the Lord as one who was a priest not by birth but by the Nazarite vow. At the time of Samuel the priesthood of the house of Aaron was utterly fallen. God, however, foresaw the situation. Besides His ordaining the house of Aaron to be the priests, He made a supplement—the Nazarite vow in [[Numbers-06|Num. 6]]—in case there should be an inadequacy in the ordained priests. When the house of Aaron fell, this supplement was put into practical use. Samuel became a priest by being consecrated, separated, and lent to God ([[1 Samuel-01#v11|1:11]], [[1 Samuel-01#v28|28]]). See [note 2¹](<Numbers-06.fn#Footnote 2.1 — makes>) in [[Numbers-06|Num. 6]].
 
 ### Footnote 11.2 — Eli
 

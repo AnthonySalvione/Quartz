@@ -1,6 +1,6 @@
 ## v1
 
-But in the last days  
+[[Micah-04.fn#Footnote 1.1 — But|But]] in the last days  
 The mountain of the house of Jehovah  
 Will be established on the top of the mountains;  
 And it will be lifted up above the hills;  

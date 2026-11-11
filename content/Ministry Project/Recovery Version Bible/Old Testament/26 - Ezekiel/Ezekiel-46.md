@@ -20,7 +20,7 @@ And the meal offering shall be an ephah for the ram, and the meal offering for t
 
 ## v6
 
-And on the day of the new moon he shall offer a bull of the herd without blemish, six lambs, and a ram; they shall be without blemish.
+And on the day of the [[Ezekiel-46.fn#Footnote 6.1 — new|new]] moon he shall offer a bull of the herd without blemish, six lambs, and a ram; they shall be without blemish.
 
 ## v7
 
@@ -48,7 +48,7 @@ And when the prince prepares a freewill offering, a burnt offering or peace offe
 
 ## v13
 
-And you shall provide a lamb a year old without blemish for a burnt offering to Jehovah daily, every morning you shall provide it.
+And you shall provide a lamb a year old without blemish for a burnt offering to Jehovah daily, [[Ezekiel-46.fn#Footnote 13.1 — every|every]] morning you shall provide it.
 
 ## v14
 
@@ -72,7 +72,7 @@ Moreover the prince shall not take any of the people’s inheritance, casting th
 
 ## v19
 
-Then He brought me through the entry, which was at the side of the gate, into the holy chambers for the priests, which face north. And there was a place there, at the rear toward the west.
+Then He brought me through the entry, which was at the side of the gate, into the holy chambers for the priests, which face north. And there was a [[Ezekiel-46.fn#Footnote 19.1 — place|place]] there, at the rear toward the west.
 
 ## v20
 
@@ -80,7 +80,7 @@ And He said to me, This is the place where the priests shall boil the trespass o
 
 ## v21
 
-Then He brought me out into the outer court and led me past the four corners of the court; and there in each corner of the court was a court.
+Then He brought me out into the outer court and led me past the four corners of the court; and there in each corner of the court was a [[Ezekiel-46.fn#Footnote 21.1 — court|court]].
 
 ## v22
 

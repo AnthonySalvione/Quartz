@@ -31,7 +31,7 @@ Saul’s disobedience was exposed in the matter of his sinful offering ([[1 Samu
 
 **Verse:** [[1 Samuel-13#v14|1 Samuel 13:14]]
 
-Referring to David, to whom God would shift the kingship ([[1 Samuel-16#v1|16:1-13]]; [[1 Samuel-28#v17|28:17]]). See note 221 in [[Acts-13|Acts 13]].
+Referring to David, to whom God would shift the kingship ([[1 Samuel-16#v1|16:1-13]]; [[1 Samuel-28#v17|28:17]]). See [note 22¹](<Acts-13.fn#Footnote 22.1 — heart>) in [[Acts-13|Acts 13]].
 
 ## Footnotes for verse 21
 

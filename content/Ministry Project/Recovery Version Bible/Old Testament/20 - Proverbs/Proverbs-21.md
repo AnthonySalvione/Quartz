@@ -26,7 +26,7 @@ But everyone who is hasty comes only to want.
 ## v6
 
 The getting of treasures by a lying tongue  
-Is a fleeting vapor, a snare of death.
+Is a fleeting vapor, a [[Proverbs-21.fn#Footnote 6.1 — snare|snare]] of death.
 
 ## v7
 

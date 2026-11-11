@@ -4,7 +4,7 @@ Moreover the word of Jehovah came to me, saying,
 
 ## v2
 
-Son of man, set your face against Mount Seir, and prophesy against it,
+Son of man, set your face against [[Ezekiel-35.fn#Footnote 2.1 — Mount|Mount]] Seir, and prophesy against it,
 
 ## v3
 
@@ -41,7 +41,7 @@ I will make you a perpetual desolation, and your cities will not be inhabited, a
 
 ## v10
 
-Because you have said, These two nations and these two countries will belong to me, and we will possess them — even though Jehovah was there —
+Because you have said, These two nations and these two countries will belong to me, and we will possess [[Ezekiel-35.fn#Footnote 10.1 — them|them]] — even though Jehovah was there —
 
 ## v11
 
@@ -61,4 +61,4 @@ Thus says the Lord Jehovah, When the whole earth rejoices, I will make you desol
 
 ## v15
 
-As you rejoiced over the inheritance of the house of Israel because it was desolate, so I will do to you. You will be desolate, O Mount Seir and all Edom, the whole land. Then they will know that I am Jehovah.
+As you rejoiced over the inheritance of the house of Israel because it was desolate, so I will do to you. You will be desolate, O Mount Seir and all Edom, the whole [[Ezekiel-35.fn#Footnote 15.1 — land|land]]. Then they will know that I am Jehovah.

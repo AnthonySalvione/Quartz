@@ -2,8 +2,8 @@
 
 Woe to those who devise wickedness  
 And who prepare evil upon their beds!  
-In the light of the morning they do it  
-Because it is in the power of their hand to do so.
+In the light of the morning they do it 
+Because [[Micah-02.fn#Footnote 1.1 — it|it]] is in the power of their hand to do so.
 
 ## v2
 
@@ -43,7 +43,7 @@ The reproaches will not be turned back.
 ## v7
 
 Will it be said, O house of Jacob,  
-Is the Spirit of Jehovah hasty?  
+Is the Spirit of Jehovah [[Micah-02.fn#Footnote 7.1 — hasty|hasty]]?  
 Are these His doings?  
 Do not My words benefit  
 Him who walks uprightly?
@@ -81,7 +81,7 @@ He would indeed become a prophet of this people.
 
 ## v12
 
-I will surely gather all of you, O Jacob;  
+I will surely [[Micah-02.fn#Footnote 12.1 — gather|gather]] all of you, O Jacob;  
 I will surely assemble the remnant of Israel.  
 I will place them together like the sheep of Bozrah,  
 Like the flock in the midst of its pasture;  

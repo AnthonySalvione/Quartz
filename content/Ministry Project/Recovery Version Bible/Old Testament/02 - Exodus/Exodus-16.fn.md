@@ -15,7 +15,7 @@ chapter_num: 16
 
 **Verse:** [[Exodus-16#v2|Exodus 16:2]]
 
-Murmuring is an expression of the flesh, the totality of man’s fallen being (cf. [[Philippians-02#v14|Phil. 2:14]]). Although the thirst of the people had been quenched by the twelve springs at Elim ([[Exodus-15#v27|15:27]]), the people were still hungry because of the lack of food. In such a situation the flesh of God’s people was exposed. This shows that the shortage of Christ as our spiritual nourishment will always cause our flesh with its lusts to be exposed. After the flesh was exposed, God sent manna to nourish His people ([[Exodus-16#v13|vv. 13-15]]). God’s way of dealing with the flesh of His people is to change their diet. The only way to conquer the flesh is to be filled with Christ by enjoying Him daily as the heavenly life supply, signified by manna (see notes 41 and 151).
+Murmuring is an expression of the flesh, the totality of man’s fallen being (cf. [[Philippians-02#v14|Phil. 2:14]]). Although the thirst of the people had been quenched by the twelve springs at Elim ([[Exodus-15#v27|15:27]]), the people were still hungry because of the lack of food. In such a situation the flesh of God’s people was exposed. This shows that the shortage of Christ as our spiritual nourishment will always cause our flesh with its lusts to be exposed. After the flesh was exposed, God sent manna to nourish His people ([[Exodus-16#v13|vv. 13-15]]). God’s way of dealing with the flesh of His people is to change their diet. The only way to conquer the flesh is to be filled with Christ by enjoying Him daily as the heavenly life supply, signified by manna (see notes [4¹](<Exodus-16.fn#Footnote 4.1 — bread>) and [15¹](<Exodus-16.fn#Footnote 15.1 — What>)).
 
 ## Footnotes for verse 3
 
@@ -23,7 +23,7 @@ Murmuring is an expression of the flesh, the totality of man’s fallen being (c
 
 **Verse:** [[Exodus-16#v3|Exodus 16:3]]
 
-The Egyptian diet denotes the worldly things and amusements that people feed on in order to find satisfaction. In Egypt the children of Israel had eaten only Egyptian food; hence, they had become Egyptian in both their constitution and their appetite. Their desire here for Egyptian food indicates that their experience of redemption through the passover lamb and the exodus from Egypt with the crossing of the Red Sea had not changed their inward constitution and worldly taste ([[Numbers-11#v4|Num. 11:4-5]]). Contrary to God’s desire, the people wanted to live the same way as they had lived in Egypt (cf. [[1 Peter-01#v18|1 Pet. 1:18]] and note 2).
+The Egyptian diet denotes the worldly things and amusements that people feed on in order to find satisfaction. In Egypt the children of Israel had eaten only Egyptian food; hence, they had become Egyptian in both their constitution and their appetite. Their desire here for Egyptian food indicates that their experience of redemption through the passover lamb and the exodus from Egypt with the crossing of the Red Sea had not changed their inward constitution and worldly taste ([[Numbers-11#v4|Num. 11:4-5]]). Contrary to God’s desire, the people wanted to live the same way as they had lived in Egypt (cf. [[1 Peter-01#v18|1 Pet. 1:18]] and [note 2](<1 Peter-01.fn#Footnote 18.2 — vain>)).
 
 ## Footnotes for verse 4
 
@@ -125,9 +125,9 @@ The open manna, the manna that lay on the ground every morning, was for the enjo
 
 **Verse:** [[Exodus-16#v33|Exodus 16:33]]
 
-According to [[Hebrews-09#v3|Heb. 9:3-4]], the manna was kept in a golden pot in the Ark of the Testimony, which was in the Holy of Holies in the tabernacle. In the Bible gold signifies the divine nature. The manna in the golden pot signifies that the Christ whom we enjoy as our life supply is preserved within us in the divine nature, which we received through regeneration ([[2 Peter-01#v4|2 Pet. 1:4]]). The Ark, in which the golden pot with the manna was kept, typifies Christ. Christ as the hidden manna is preserved in the divine nature, and the divine nature is in Christ, typified by the Ark. This Christ is in our spirit ([[2 TImothy-04#v22|2 Tim. 4:22]]), which in our experience is the Holy of Holies (see note 191 in [[Hebrews-10|Heb. 10]]). The manna preserved in the golden pot was the center of the tabernacle, God’s dwelling place in the Old Testament; likewise, the Christ whom we have eaten, digested, and assimilated is the center of our being as a part of the church, God’s dwelling place today ([[2 TImothy-04#v22|2 Tim. 4:22]]; [[Ephesians-02#v22|Eph. 2:22]]). 
+According to [[Hebrews-09#v3|Heb. 9:3-4]], the manna was kept in a golden pot in the Ark of the Testimony, which was in the Holy of Holies in the tabernacle. In the Bible gold signifies the divine nature. The manna in the golden pot signifies that the Christ whom we enjoy as our life supply is preserved within us in the divine nature, which we received through regeneration ([[2 Peter-01#v4|2 Pet. 1:4]]). The Ark, in which the golden pot with the manna was kept, typifies Christ. Christ as the hidden manna is preserved in the divine nature, and the divine nature is in Christ, typified by the Ark. This Christ is in our spirit ([[2 TImothy-04#v22|2 Tim. 4:22]]), which in our experience is the Holy of Holies (see [note 19¹](<Hebrews-10.fn#Footnote 19.1 — entering>) in [[Hebrews-10|Heb. 10]]). The manna preserved in the golden pot was the center of the tabernacle, God’s dwelling place in the Old Testament; likewise, the Christ whom we have eaten, digested, and assimilated is the center of our being as a part of the church, God’s dwelling place today ([[2 TImothy-04#v22|2 Tim. 4:22]]; [[Ephesians-02#v22|Eph. 2:22]]). 
 
-[[Revelation-02#v17|Revelation 2:17]] indicates that the overcomers, who overcome the degradation of the worldly church, will be given to eat the hidden manna and will be given a white stone (see notes 172 and 173 in [[Revelation-02|Rev. 2]]). This indicates that as we eat Christ and preserve Him as the hidden manna within us, He makes us overcomers and also transforms us into white stones for the building of God’s dwelling place, which will consummate in the New Jerusalem.
+[[Revelation-02#v17|Revelation 2:17]] indicates that the overcomers, who overcome the degradation of the worldly church, will be given to eat the hidden manna and will be given a white stone (see notes [17²](<Revelation-02.fn#Footnote 17.2 — hidden>) and [17³](<Revelation-02.fn#Footnote 17.3 — stone>) in [[Revelation-02|Rev. 2]]). This indicates that as we eat Christ and preserve Him as the hidden manna within us, He makes us overcomers and also transforms us into white stones for the building of God’s dwelling place, which will consummate in the New Jerusalem.
 
 ## Footnotes for verse 34
 
@@ -135,7 +135,7 @@ According to [[Hebrews-09#v3|Heb. 9:3-4]], the manna was kept in a golden pot in
 
 **Verse:** [[Exodus-16#v34|Exodus 16:34]]
 
-Since the golden pot with the manna was in the Ark ([[Hebrews-09#v4|Heb. 9:4]]), the testimony here must refer not to the Ark but to the tablets of the law that were in the Ark ([[Exodus-34#v1|34:1]], [[Exodus-34#v29|29]]; [[Exodus-25#v21|25:21]]; [[Exodus-40#v20|40:20]]). The law is a testimony of what God is (see note 11 in [[Exodus-20|Exodus 20]]). Hence, the fact that the manna in the golden pot was placed before the testimony indicates that manna corresponds to God’s testimony, God’s law, and meets its requirements. When we take Christ as our heavenly life supply, Christ as the hidden manna preserved in the divine nature within us causes us to correspond to God’s testimony and to fulfill its requirements ([[Romans-08#v4|Rom. 8:4]]), thereby making us God’s expression.
+Since the golden pot with the manna was in the Ark ([[Hebrews-09#v4|Heb. 9:4]]), the testimony here must refer not to the Ark but to the tablets of the law that were in the Ark ([[Exodus-34#v1|34:1]], [[Exodus-34#v29|29]]; [[Exodus-25#v21|25:21]]; [[Exodus-40#v20|40:20]]). The law is a testimony of what God is (see [note 1¹](<Exodus-20.fn#Footnote 1.1 — words>) in [[Exodus-20|Exodus 20]]). Hence, the fact that the manna in the golden pot was placed before the testimony indicates that manna corresponds to God’s testimony, God’s law, and meets its requirements. When we take Christ as our heavenly life supply, Christ as the hidden manna preserved in the divine nature within us causes us to correspond to God’s testimony and to fulfill its requirements ([[Romans-08#v4|Rom. 8:4]]), thereby making us God’s expression.
 
 ## Footnotes for verse 35
 
@@ -143,4 +143,4 @@ Since the golden pot with the manna was in the Ark ([[Hebrews-09#v4|Heb. 9:4]]),
 
 **Verse:** [[Exodus-16#v35|Exodus 16:35]]
 
-See note 12¹ in [[Joshua-05|Josh. 5]].
+See [note 12¹](<Joshua-05.fn#Footnote 12.1 — manna>) in [[Joshua-05|Josh. 5]].

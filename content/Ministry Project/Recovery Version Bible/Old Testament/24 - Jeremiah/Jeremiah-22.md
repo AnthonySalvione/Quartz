@@ -27,7 +27,7 @@ Nor shed innocent blood in this place.
 For if you indeed do this thing,  
 Then kings sitting in David’s place on his throne,  
 Riding in chariots and on horses —  
-The king and his servants and his people —  
+[[Jeremiah-22.fn#Footnote 4.1 — The|The]] king and his servants and his people —  
 Will come through the gates of this house;
 
 ## v5
@@ -77,7 +77,7 @@ The land of his birth.
 ## v11
 
 For thus says Jehovah  
-Concerning Shallum the son of Josiah,  
+Concerning [[Jeremiah-22.fn#Footnote 11.1 — Shallum|Shallum]] the son of Josiah,  
 The king of Judah,  
 Who became king in the place of Josiah his father,  
 Who went away from this place:  
@@ -174,7 +174,7 @@ Anguish like that of a woman giving birth.
 ## v24
 
 As I live, declares Jehovah,  
-Even though Coniah the son of Jehoiakim,  
+Even though [[Jeremiah-22.fn#Footnote 24.1 — Coniah|Coniah]] the son of Jehoiakim,  
 The king of Judah,  
 Were a signet ring on My right hand,  
 Yet I would tear you off,
@@ -216,6 +216,6 @@ Hear the word of Jehovah:
 Thus says Jehovah,  
 Write down this man as childless,  
 A man who will not prosper in his days;  
-For none of his seed will prosper  
+For none of his [[Jeremiah-22.fn#Footnote 30.1 — seed|seed]] will prosper  
 By sitting on the throne of David  
 Or by ruling again in Judah.

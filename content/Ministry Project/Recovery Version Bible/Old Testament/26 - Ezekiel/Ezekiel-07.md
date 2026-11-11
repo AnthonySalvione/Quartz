@@ -48,7 +48,7 @@ The time has come; the day has drawn near. Let not the buyer rejoice, nor the se
 
 ## v13
 
-For the seller will not return to what he has sold, while they live among the living; for the vision, which regards all the land’s multitude, will not be turned; not one of them will assure his life by his iniquity.
+For the seller will not return to what he has sold, while they live among the living; for the vision, which regards all [[Ezekiel-07.fn#Footnote 13.1 — the|the]] land’s multitude, will not be turned; not one of them will assure his life by his iniquity.
 
 ## v14
 

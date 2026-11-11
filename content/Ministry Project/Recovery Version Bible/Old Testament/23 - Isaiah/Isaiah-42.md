@@ -1,26 +1,26 @@
 ## v1
 
-Here is My Servant, whom I uphold, / My chosen One in whom My soul delights; / I have put My Spirit upon Him, / And He will bring forth justice to the nations.
+Here is My [[Isaiah-42.fn#Footnote 1.1 — Servant|Servant]], whom I uphold, / My chosen One in whom My soul delights; / I have put My [[Isaiah-42.fn#Footnote 1.2 — Spirit|Spirit]] upon Him, / And He will bring forth [[Isaiah-42.fn#Footnote 1.3 — justice|justice]] to the nations.
 
 ## v2
 
-He will not cry out, nor lift up His voice, / Nor make His voice heard in the street.
+He will not [[Isaiah-42.fn#Footnote 2.1 — cry|cry]] out, nor lift up His voice, / Nor make His voice heard in the street.
 
 ## v3
 
-A bruised reed He will not break; / And a dimly burning flax He will not extinguish; / He will bring forth justice in truth.
+A [[Isaiah-42.fn#Footnote 3.1 — bruised|bruised]] reed He will not break; / And a [[Isaiah-42.fn#Footnote 3.1 — bruised|dimly]] burning flax He will not extinguish; / He will bring forth justice in truth.
 
 ## v4
 
-He will not faint, nor will He be discouraged, / Until He has established justice in the earth; / And the coastlands will wait for His instruction.
+He will not [[Isaiah-42.fn#Footnote 4.1 — faint|faint]], nor will He [[Isaiah-42.fn#Footnote 4.2 — be|be]] discouraged, / Until He has established [[Isaiah-42.fn#Footnote 4.3 — justice|justice]] in the earth; / And the coastlands will wait for His instruction.
 
 ## v5
 
-Thus says God Jehovah, / Who created the heavens and stretched them out, / Who spread forth the earth and what springs up from it, / Who gives breath to the people upon it / And spirit to those who walk on it:
+Thus says God Jehovah, / Who created the heavens and stretched them out, / Who spread forth the earth and what springs up from it, / Who gives breath to the people upon it / And [[Isaiah-42.fn#Footnote 5.1 — spirit|spirit]] to those who walk on it:
 
 ## v6
 
-I am Jehovah; I have called You in righteousness; / I have held You by the hand; / I have kept You and I have given You / As a covenant for the people, as a light for the nations;
+I am Jehovah; I have called You in righteousness; / I have held You by the hand; / I have kept You and I have given You / As a [[Isaiah-42.fn#Footnote 6.1 — covenant|covenant]] for the people, as a [[Isaiah-42.fn#Footnote 6.2 — light|light]] for the nations;
 
 ## v7
 
@@ -40,7 +40,7 @@ Sing a new song to Jehovah; / Sing His praise from the end of the earth; / You w
 
 ## v11
 
-Let the wilderness and its cities, / The villages which Kedar inhabits, lift up their voices; / Let the inhabitants of Sela sing for joy; / Let them shout from the tops of the mountains.
+Let the wilderness and its cities, / The villages which Kedar inhabits, lift up their voices; / Let the inhabitants of [[Isaiah-42.fn#Footnote 11.1 — Sela|Sela]] sing for joy; / Let them shout from the tops of the mountains.
 
 ## v12
 
@@ -52,7 +52,7 @@ Jehovah will go forth as a mighty man, / Like a man of war He will stir up His j
 
 ## v14
 
-For a long time I have been silent; / I have kept still, I have restrained Myself. / Now I will cry like a woman in travail; / I will gasp and pant at the same time.
+For a long time I have been silent; / I have kept still, I have restrained Myself. / Now I will cry like a woman in travail; / I will [[Isaiah-42.fn#Footnote 14.1 — gasp|gasp]] and pant at the same time.
 
 ## v15
 
@@ -72,7 +72,7 @@ You who are deaf, Hear; / And you who are blind, Look, that you may see.
 
 ## v19
 
-Who is blind except My servant, / And as deaf as My messenger, whom I will send? / Who is as blind as the one at peace with Me, / And as blind as the servant of Jehovah?
+Who is blind except My [[Isaiah-42.fn#Footnote 19.1 — servant|servant]], / And as deaf as My messenger, whom I will send? / Who is as blind as the one at peace with Me, / And as blind as the servant of Jehovah?
 
 ## v20
 

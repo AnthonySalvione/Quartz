@@ -36,8 +36,8 @@ And in the day of the feast of Jehovah?
 
 For they will go because of destruction;  
 Egypt will gather them;  
-Moph will bury them.  
-As for their desirable things of silver, nettles will dispossess them;  
+[[Hosea-09.fn#Footnote 6.1 — Moph|Moph]] will bury them.  
+As for their desirable [[Hosea-09.fn#Footnote 6.2 — things|things]] of silver, nettles will dispossess them;  
 Thistles will be in their tents.
 
 ## v7
@@ -46,28 +46,28 @@ The days of the visitation have come;
 The days of the recompense have come;  
 Israel will know it.  
 The prophet is a fool,  
-The inspired man is mad,  
+The [[Hosea-09.fn#Footnote 7.1 — inspired|inspired]] man is mad,  
 Because of the greatness of your iniquity  
 And because of the greatness of the enmity.
 
 ## v8
 
-Ephraim was a watchman  
+Ephraim was a [[Hosea-09.fn#Footnote 8.1 — watchman|watchman]]  
 With my God.  
-As for the prophet, a fowler’s trap  
+As for the [[Hosea-09.fn#Footnote 8.2 — prophet|prophet]], a fowler’s trap  
 Is in all his ways;  
 Enmity is in the house of his God.
 
 ## v9
 
 They have deeply corrupted themselves  
-As in the days of Gibeah;  
+As in the days of [[Hosea-09.fn#Footnote 9.1 — Gibeah|Gibeah]];  
 He will remember their iniquity;  
 He will punish their sins.
 
 ## v10
 
-I found Israel  
+I [[Hosea-09.fn#Footnote 10.1 — found|found]] Israel  
 Like grapes in the wilderness;  
 I saw your fathers  
 As the first ripe fruit on the fig tree at its beginning.  

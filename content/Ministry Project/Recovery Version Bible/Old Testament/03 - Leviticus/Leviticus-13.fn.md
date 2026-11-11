@@ -15,7 +15,7 @@ chapter_num: 13
 
 **Verse:** [[Leviticus-13#v2|Leviticus 13:2]]
 
-Leprosy signifies the serious sin issuing from within man, such as willful sin, presumptuous sin, and opposing God with determination. As seen in the cases of Miriam ([[Numbers-12#v1|Num. 12:1-10]]), Gehazi ([[2 Kings-05#v20|2 Kings 5:20-27]]), and Uzziah ([[2 Chronicles-26#v16|2 Chron. 26:16-21]]), leprosy issues from rebellion against God’s authority, against God’s deputy authority, against God’s regulation, and against God’s economy. In the biblical sense, sin is rebellion ([[1 John-03#v4|1 John 3:4]] and note 2). Thus, leprosy signifies sin. The first case of sin in the Bible was Satan’s rebellion against God ([[Ezekiel-28#v13|Ezek. 28:13-18]]; [[Isaiah-14#v12|Isa. 14:12-15]]). Hence, sin as rebellion was invented, inaugurated, by the rebellious archangel Lucifer. Eventually, this sin, this leprosy, entered into mankind through Adam ([[Romans-05#v12|Rom. 5:12]], [[Romans-05#v19|19a]]; [[Romans-07#v20|7:20]]), and having entered into man, it issues from within man as many kinds of sins, i.e., many manifestations of rebellion. Hence, a leper represents the fallen descendants of Adam, all of whom are lepers. See note 21 in [[Matthew-08|Matt. 8]]. 
+Leprosy signifies the serious sin issuing from within man, such as willful sin, presumptuous sin, and opposing God with determination. As seen in the cases of Miriam ([[Numbers-12#v1|Num. 12:1-10]]), Gehazi ([[2 Kings-05#v20|2 Kings 5:20-27]]), and Uzziah ([[2 Chronicles-26#v16|2 Chron. 26:16-21]]), leprosy issues from rebellion against God’s authority, against God’s deputy authority, against God’s regulation, and against God’s economy. In the biblical sense, sin is rebellion ([[1 John-03#v4|1 John 3:4]] and [note 2](<1 John-03.fn#Footnote 4.2 — lawlessness>)). Thus, leprosy signifies sin. The first case of sin in the Bible was Satan’s rebellion against God ([[Ezekiel-28#v13|Ezek. 28:13-18]]; [[Isaiah-14#v12|Isa. 14:12-15]]). Hence, sin as rebellion was invented, inaugurated, by the rebellious archangel Lucifer. Eventually, this sin, this leprosy, entered into mankind through Adam ([[Romans-05#v12|Rom. 5:12]], [[Romans-05#v19|19a]]; [[Romans-07#v20|7:20]]), and having entered into man, it issues from within man as many kinds of sins, i.e., many manifestations of rebellion. Hence, a leper represents the fallen descendants of Adam, all of whom are lepers. See [note 2¹](<Matthew-08.fn#Footnote 2.1 — leper>) in [[Matthew-08|Matt. 8]]. 
 
 As signs of leprosy, a swelling, eruption, or a bright spot on the skin of one’s flesh signifies man’s outward expressions in unruliness, in friction with others, and in pride and self-exaltation.
 
@@ -37,7 +37,7 @@ Being brought to the priest, being examined by him, and being shut up (isolated)
 
 **Verse:** [[Leviticus-13#v3|Leviticus 13:3]]
 
-The hair turning white signifies that the strength for behavior, the strength to live a normal life, is deteriorating. In contrast, black hair signifies that one is strong in the spirit to live a proper Christian life through one’s submission to God ([[Song-05#v11|S.S. 5:11]] and note; cf. [[Revelation-01#v14|Rev. 1:14]] and note 1).
+The hair turning white signifies that the strength for behavior, the strength to live a normal life, is deteriorating. In contrast, black hair signifies that one is strong in the spirit to live a proper Christian life through one’s submission to God ([[Song-05#v11|S.S. 5:11]] and [note](<Song-05.fn#Footnote 11.1 — head>); cf. [[Revelation-01#v14|Rev. 1:14]] and [note 1](<Revelation-01.fn#Footnote 14.1 — hair>)).
 
 ### Footnote 3.2 — deeper
 
@@ -109,7 +109,7 @@ An infection on the head signifies something wrong in the subjection to authorit
 
 **Verse:** [[Leviticus-13#v30|Leviticus 13:30]]
 
-Thin yellowish hair signifies the deteriorating of the strength to live a normal Christian life because of one’s disobedience to God’s word. See note 31.
+Thin yellowish hair signifies the deteriorating of the strength to live a normal Christian life because of one’s disobedience to God’s word. See [note 3¹](<Leviticus-13.fn#Footnote 3.1 — white>).
 
 ## Footnotes for verse 31
 

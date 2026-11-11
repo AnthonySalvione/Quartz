@@ -28,7 +28,7 @@ And the reproach of your widowhood you will no longer remember.
 
 ## v5
 
-For your Maker is your Husband; /  
+For your Maker is your [[Isaiah-54.fn#Footnote 5.1 — Husband|Husband]]; /  
 Jehovah of hosts is His name. /  
 And the Holy One of Israel is your Redeemer; /  
 He is called the God of all the earth.
@@ -65,7 +65,7 @@ Nor will I rebuke you.
 For the mountains may depart, /  
 And the hills may shake, /  
 But My lovingkindness will not depart from you, /  
-And My covenant of peace will not shake, /  
+And My [[Isaiah-54.fn#Footnote 10.1 — covenant|covenant]] of peace will not shake, /  
 Says Jehovah who has compassion on you.
 
 ## v11
@@ -105,7 +105,7 @@ And it is I who have created the destroyer to ruin.
 
 ## v17
 
-No weapon that is formed against you will prosper, /  
+[[Isaiah-54.fn#Footnote 17.1 — No|No]] weapon that is formed against you will prosper, /  
 And every tongue that rises up to judge you, you will condemn. /  
 This is the heritage of the servants of Jehovah, /  
 And their righteousness which is of Me, declares Jehovah.

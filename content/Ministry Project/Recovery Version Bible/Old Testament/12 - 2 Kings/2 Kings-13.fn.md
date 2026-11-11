@@ -45,7 +45,7 @@ A spelling variant of Joash (cf. [[2 Kings-13#v12|vv. 12-13]]).
 
 **Verse:** [[2 Kings-13#v14|2 Kings 13:14]]
 
-Elisha performed miracles of divine healing for others, but, in the will of God, he himself was not healed by a miracle (cf. note 202 in [[2 TImothy-04|2 Tim. 4]]).
+Elisha performed miracles of divine healing for others, but, in the will of God, he himself was not healed by a miracle (cf. [note 20²](<2 TImothy-04.fn#Footnote 20.2 — sick>) in [[2 TImothy-04|2 Tim. 4]]).
 
 ## Footnotes for verse 17
 

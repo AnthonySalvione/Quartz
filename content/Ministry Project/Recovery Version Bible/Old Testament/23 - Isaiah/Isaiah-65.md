@@ -113,7 +113,7 @@ And He will call His servants by another name,
 ## v16
 
 So that he who blesses himself in the earth /  
-Will bless himself in the God of faithfulness, /  
+Will bless himself in the [[Isaiah-65.fn#Footnote 16.1 — God|God]] of faithfulness, /  
 And he who swears in the earth /  
 Will swear by the God of faithfulness; /  
 Because the former troubles are forgotten /  
@@ -121,14 +121,14 @@ And because they are hidden from My sight.
 
 ## v17
 
-For I am now creating new heavens /  
+For I am now creating [[Isaiah-65.fn#Footnote 17.1 — new|new]] heavens /  
 And a new earth, /  
 And the former things will not be remembered, /  
 Nor will they come up in the heart.
 
 ## v18
 
-But rejoice and exult forever, /  
+[[Isaiah-65.fn#Footnote 18.1 — But|But]] rejoice and exult forever, /  
 In what I create, /  
 For I am now creating Jerusalem as an exultation /  
 And her people as a rejoicing.
@@ -174,7 +174,7 @@ Even while they are speaking, I will hear.
 
 ## v25
 
-The wolf and the lamb will feed as one, /  
+[[Isaiah-65.fn#Footnote 25.1 — The|The]] wolf and the lamb will feed as one, /  
 And the lion will eat straw like the ox, /  
 And dust will be the serpent’s food; /  
 They will not harm nor destroy /  

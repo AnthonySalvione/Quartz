@@ -3,7 +3,7 @@
 You are righteous, O Jehovah,  
 When I plead my cause with You;  
 Yet I will speak with You of Your judgments:  
-Why does the way of the wicked prosper?  
+[[Jeremiah-12.fn#Footnote 1.1 — Why|Why]] does the way of the wicked prosper?  
 Why are all those who deal treacherously at ease?
 
 ## v2
@@ -33,7 +33,7 @@ Because they said, He will not see our end.
 If you have run with footmen and they have wearied you,  
 How then will you compete with horses?  
 If you are secure in a land of peace,  
-How then will you do in the majesty of the Jordan?
+How then will you do in the [[Jeremiah-12.fn#Footnote 5.1 — majesty|majesty]] of the Jordan?
 
 ## v6
 

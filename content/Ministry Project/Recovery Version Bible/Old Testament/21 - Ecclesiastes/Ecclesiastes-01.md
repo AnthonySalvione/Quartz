@@ -1,11 +1,11 @@
 ## v1
 
-The words of the Preacher, the son of David, the king in Jerusalem.
+The words of the [[Ecclesiastes-01.fn#Footnote 1.1 — Preacher|Preacher]], the son of David, the king in Jerusalem.
 
 ## v2
 
-Vanity of vanities, says the Preacher;  
-Vanity of vanities; all is vanity.
+[[Ecclesiastes-01.fn#Footnote 2.1 — Vanity|Vanity]] of vanities, says the Preacher;  
+Vanity of vanities; [[Ecclesiastes-01.fn#Footnote 2.2 — all|all]] is vanity.
 
 ## v3
 
@@ -65,13 +65,13 @@ I, the Preacher, have been king over Israel in Jerusalem.
 
 ## v13
 
-And I set my heart to seek and to search out by wisdom all that is done under the heavens.  
+And I set my heart to seek and to search out by wisdom [[Ecclesiastes-01.fn#Footnote 13.1 — all|all]] that is done under the heavens.  
 It is grievous travail that God has given to the children of men to travail in.
 
 ## v14
 
 I have seen all the works that are done under the sun,  
-And indeed, all is vanity and a chasing after wind.
+And indeed, all is vanity and a [[Ecclesiastes-01.fn#Footnote 14.1 — chasing|chasing]] after wind.
 
 ## v15
 

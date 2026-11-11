@@ -4,7 +4,7 @@ And when Jeremiah finished speaking to all the people all the words of Jehovah t
 
 ## v2
 
-Azariah the son of Hoshaiah and Johanan the son of Kareah and all the proud men spoke to Jeremiah, saying, You are speaking falsehood; Jehovah our God has not sent you to say, You shall not go to Egypt to sojourn there.
+Azariah the son of Hoshaiah and Johanan the son of Kareah and all the proud men spoke to Jeremiah, saying, [[Jeremiah-43.fn#Footnote 2.1 — You|You]] are speaking falsehood; Jehovah our God has not sent you to say, You shall not go to Egypt to sojourn there.
 
 ## v3
 

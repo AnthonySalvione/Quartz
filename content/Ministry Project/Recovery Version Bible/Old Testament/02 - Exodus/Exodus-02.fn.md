@@ -15,7 +15,7 @@ chapter_num: 2
 
 **Verse:** [[Exodus-02#v2|Exodus 2:2]]
 
-In [[Exodus-01|Exodus 1]] God used the female life to preserve His people (see note 171 there), and in this chapter He used the female life to prepare a savior for His people, whom He had preserved for His purpose. In preparing Moses as a savior for Israel, God used three women—Moses’ mother, Moses’ sister, and Pharaoh’s daughter—to give him birth, to nurse him, to rescue him, to raise him, and to train him for His purpose ([[Exodus-01#v2|vv. 2-10]]; [[Acts-07#v20|Acts 7:20-22]]). God’s use of these women reveals that during critical times the only life that can be used by God is the female life, signifying the life that stands with God and is dependent on Him. See note 211, par. 2.
+In [[Exodus-01|Exodus 1]] God used the female life to preserve His people (see [[Exodus-01.fn#Footnote 17.1 — feared|note 17¹]] there), and in this chapter He used the female life to prepare a savior for His people, whom He had preserved for His purpose. In preparing Moses as a savior for Israel, God used three women—Moses’ mother, Moses’ sister, and Pharaoh’s daughter—to give him birth, to nurse him, to rescue him, to raise him, and to train him for His purpose ([[Exodus-01#v2|vv. 2-10]]; [[Acts-07#v20|Acts 7:20-22]]). God’s use of these women reveals that during critical times the only life that can be used by God is the female life, signifying the life that stands with God and is dependent on Him. See [note 21¹](<Exodus-02.fn#Footnote 21.1 — stay>), par. 2.
 
 ## Footnotes for verse 10
 

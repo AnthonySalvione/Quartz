@@ -37,7 +37,7 @@ Since Judah was a tribe accustomed to fighting for the people, this prayer of Mo
 
 **Verse:** [[Deuteronomy-33#v7|Deuteronomy 33:7]]
 
-Enemies come from the outside, whereas adversaries arise from within. Cf. note 94 in [[Revelation-12|Rev. 12]].
+Enemies come from the outside, whereas adversaries arise from within. Cf. [note 9⁴](<Revelation-12.fn#Footnote 9.4 — Satan>) in [[Revelation-12|Rev. 12]].
 
 ## Footnotes for verse 8
 
@@ -53,7 +53,7 @@ Or, the man of Your lovingkindness.
 
 **Verse:** [[Deuteronomy-33#v9|Deuteronomy 33:9]]
 
-See note 27¹ in [[Exodus-32|Exo. 32]].
+See [note 27¹](<Exodus-32.fn#Footnote 27.1 — brother>) in [[Exodus-32|Exo. 32]].
 
 ## Footnotes for verse 11
 
@@ -77,7 +77,7 @@ I.e., months.
 
 **Verse:** [[Deuteronomy-33#v17|Deuteronomy 33:17]]
 
-See note 5¹ in [[Genesis-48|Gen. 48]].
+See [note 5¹](<Genesis-48.fn#Footnote 5.1 — mine>) in [[Genesis-48|Gen. 48]].
 
 ## Footnotes for verse 18
 
@@ -109,4 +109,4 @@ For Asher to dip his foot in oil means that he would be rich in the produce of t
 
 **Verse:** [[Deuteronomy-33#v27|Deuteronomy 33:27]]
 
-Moses’ word here and his word in [[Psalm-90#v1|Psa. 90:1]] indicate that while he was traveling in the wilderness with the children of Israel for forty years, in his deep feeling he was dwelling in God. See note 11 in [[Psalm-90|Psa. 90]].
+Moses’ word here and his word in [[Psalm-90#v1|Psa. 90:1]] indicate that while he was traveling in the wilderness with the children of Israel for forty years, in his deep feeling he was dwelling in God. See [note 1¹](<Psalm-90.fn#Footnote 1.1 — dwelling>) in [[Psalm-90|Psa. 90]].

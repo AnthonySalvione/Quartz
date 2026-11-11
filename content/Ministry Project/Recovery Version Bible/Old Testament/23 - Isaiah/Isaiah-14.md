@@ -1,6 +1,6 @@
 ## v1
 
-When Jehovah has compassion on Jacob  
+When Jehovah has [[Isaiah-14.fn#Footnote 1.1 — compassion|compassion]] on Jacob  
 And again chooses Israel  
 And settles them in their land,  
 The sojourners will join them  
@@ -27,7 +27,7 @@ You will lift up this discourse
 Concerning the king of Babylon  
 And you will say:  
 How the oppressor has ceased!  
-How the raging has ceased!
+How the [[Isaiah-14.fn#Footnote 4.1 — raging|raging]] has ceased!
 
 ## v5
 
@@ -58,7 +58,7 @@ No tree cutter will come up against us.
 Sheol beneath is excited because of you,  
 That it will meet you when you come.  
 It rouses the dead because of you,  
-All the great ones of the earth.  
+All the [[Isaiah-14.fn#Footnote 9.1 — great|great]] ones of the earth.  
 It makes all the kings of the nations  
 Rise from their thrones.
 
@@ -79,18 +79,18 @@ Worms are your covering.
 ## v12
 
 How you have fallen from heaven,  
-O Daystar, son of the dawn!  
+O [[Isaiah-14.fn#Footnote 12.1 — Daystar|Daystar]], son of the dawn!  
 How you have been hewn down to earth,  
 You who made nations fall prostrate!
 
 ## v13
 
 But you, you said in your heart:  
-I will ascend to heaven;  
+[[Isaiah-14.fn#Footnote 13.1 — I|I]] will ascend to heaven;  
 Above the stars of God  
 I will exalt my throne.  
 And I will sit upon the mount of assembly  
-In the uttermost parts of the north.
+In the [[Isaiah-14.fn#Footnote 13.2 — uttermost|uttermost]] parts of the north.
 
 ## v14
 
@@ -99,7 +99,7 @@ I will make myself like the Most High.
 
 ## v15
 
-But you will be brought down to Sheol,  
+But you will be brought down to [[Isaiah-14.fn#Footnote 15.1 — Sheol|Sheol]],  
 To the uttermost parts of the pit.
 
 ## v16

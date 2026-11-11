@@ -44,7 +44,7 @@ Say, I am a sign of you. As I have done, so will it be done to them. They will g
 
 ## v12
 
-And the prince who is in their midst will take up his baggage on his shoulder in the dark and will go forth; they will dig through the wall in order to bring his baggage forth through it; he will hide his face so that he does not see the land with his eyes.
+And the prince who is in their midst will take up his baggage on his shoulder in the dark and will go forth; they will dig through the wall in order to bring his baggage forth through it; he will hide his face so that he does not see the [[Ezekiel-12.fn#Footnote 12.1 — land|land]] with his eyes.
 
 ## v13
 
@@ -72,7 +72,7 @@ Son of man, eat your bread with trembling, and drink your water with quivering a
 
 ## v19
 
-And say to the people of the land, Thus says the Lord Jehovah to the inhabitants of Jerusalem in the land of Israel, They will eat their bread with anxious carefulness and drink their water with horror so that their land may be emptied of its fullness because of the violence of all who dwell in it.
+And say to the people of the land, Thus says the Lord Jehovah to the inhabitants of Jerusalem in the land of Israel, They will eat their bread with anxious carefulness and drink their water with horror so that [[Ezekiel-12.fn#Footnote 19.1 — their|their]] land may be emptied of its fullness because of the violence of all who dwell in it.
 
 ## v20
 

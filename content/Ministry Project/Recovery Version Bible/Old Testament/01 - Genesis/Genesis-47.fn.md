@@ -49,7 +49,7 @@ Lit., guided (as a shepherd).
 
 **Verse:** [[Genesis-47#v29|Genesis 47:29]]
 
-To put the hand under the thigh means to swear. In [[Genesis-32#v25|32:25]] God touched Jacob’s thigh (see note 2 there). After that experience, Jacob could still walk, albeit with a limp ([[Genesis-32#v31|32:31]]). However, as he was departing this life, Jacob could no longer do anything for himself; he could only lie on his bed. His natural strength having been fully terminated, he could trust only in God’s grace, represented here by Joseph, a type of Christ. It was not by Jacob’s strength but by the hand of Joseph that Jacob was finally brought to the good land for his actual inheritance ([[Genesis-50#v5|50:5-13]]). Likewise, it is not by our strength but by the grace of Christ that we inherit God’s promise (cf. [[2 Corinthians-12#v9|2 Cor. 12:9]]).
+To put the hand under the thigh means to swear. In [[Genesis-32#v25|32:25]] God touched Jacob’s thigh (see [[Genesis-32.fn#Footnote 25.2 — touched|note 2]] there). After that experience, Jacob could still walk, albeit with a limp ([[Genesis-32#v31|32:31]]). However, as he was departing this life, Jacob could no longer do anything for himself; he could only lie on his bed. His natural strength having been fully terminated, he could trust only in God’s grace, represented here by Joseph, a type of Christ. It was not by Jacob’s strength but by the hand of Joseph that Jacob was finally brought to the good land for his actual inheritance ([[Genesis-50#v5|50:5-13]]). Likewise, it is not by our strength but by the grace of Christ that we inherit God’s promise (cf. [[2 Corinthians-12#v9|2 Cor. 12:9]]).
 
 ## Footnotes for verse 30
 
@@ -65,4 +65,4 @@ Jacob viewed his death as lying down to sleep, indicating that he believed in re
 
 **Verse:** [[Genesis-47#v31|Genesis 47:31]]
 
-The Septuagint translates this phrase on the top of his staff (cf. [[Hebrews-11#v21|Heb. 11:21]]). See note 211 in [[Hebrews-11|Heb. 11]].
+The Septuagint translates this phrase on the top of his staff (cf. [[Hebrews-11#v21|Heb. 11:21]]). See [note 21¹](<Hebrews-11.fn#Footnote 21.1 — leaning>) in [[Hebrews-11|Heb. 11]].

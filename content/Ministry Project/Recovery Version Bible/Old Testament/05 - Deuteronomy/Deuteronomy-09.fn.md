@@ -15,7 +15,7 @@ chapter_num: 9
 
 **Verse:** [[Deuteronomy-09#v2|Deuteronomy 9:2]]
 
-See [[Numbers-13#v33|Num. 13:33]] and note.
+See [[Numbers-13#v33|Num. 13:33]] and [note](<Numbers-13.fn#Footnote 33.1 — Nephilim>).
 
 ## Footnotes for verse 7
 
@@ -23,4 +23,4 @@ See [[Numbers-13#v33|Num. 13:33]] and note.
 
 **Verse:** [[Deuteronomy-09#v7|Deuteronomy 9:7]]
 
-Because the new generation of Israelites were sons of rebels, they too were rebels in the eyes of God. Cf. note 31 in [[Deuteronomy-05|Deuteronomy 5]].
+Because the new generation of Israelites were sons of rebels, they too were rebels in the eyes of God. Cf. [note 3¹](<Deuteronomy-05.fn#Footnote 3.1 — us>) in [[Deuteronomy-05|Deuteronomy 5]].

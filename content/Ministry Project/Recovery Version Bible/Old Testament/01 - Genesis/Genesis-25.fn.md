@@ -17,7 +17,7 @@ chapter_num: 25
 
 Although Abraham was called by God, was justified and lived by faith in God, and lived in fellowship with God, he did not attain to maturity in his spiritual life. This is shown by the fact that, after Sarah died, Abraham remarried and brought forth six sons by the energy of his flesh. Furthermore, at the end of his days Abraham did not bless anyone, in contrast to Isaac and Jacob ([[Genesis-27#v27|27:27-29]]; [[Genesis-48#v13|48:13-20]]; [[Genesis-49#v1|49:1-28]]; cf. [[Hebrews-07#v7|Heb. 7:7]]). 
 
-As far as the experience of life is concerned, Abraham cannot stand as a complete person. He needed Isaac and Jacob (with Joseph) to complete him. See note 11, par. 2, in [[Genesis-12|Genesis 12]].
+As far as the experience of life is concerned, Abraham cannot stand as a complete person. He needed Isaac and Jacob (with Joseph) to complete him. See [note 1¹](<Genesis-12.fn#Footnote 1.1 — Now>), par. 2, in [[Genesis-12|Genesis 12]].
 
 ## Footnotes for verse 5
 
@@ -31,7 +31,7 @@ God considered Isaac as Abraham’s only son, the unique seed to inherit the pro
 
 **Verse:** [[Genesis-25#v5|Genesis 25:5]]
 
-In Genesis the records of Abraham ([[Genesis-12#v1|12:1]]—[[Genesis-25#v18|25:18]]) and Isaac ([[Genesis-21#v1|21:1-8]]; [[Genesis-22#v1|22:1-24]]; [[Genesis-24#v1|24:1-67]]) overlap. Abraham’s life reveals that if we would enjoy God’s grace and have the full enjoyment of God’s riches, we must suffer loss and have our natural life circumcised, cut off. Isaac’s life reveals that our suffering to terminate our natural life is for the enjoyment of God’s grace. Throughout his entire life Isaac did nothing but enjoy God’s rich blessing ([[Genesis-25#v11|v. 11]]; [[Genesis-26#v24|26:24b]]), which points to the grace of the New Testament (see note 111). Isaac was born in grace ([[Genesis-21#v1|21:1-3]]; [[Galatians-04#v23|Gal. 4:23]]), grew up in grace ([[Genesis-21#v8|21:8]]), and was made an heir of grace ([[Genesis-25#v5|v. 5]]). In the New Testament, all the called believers are heirs of grace, destined to enjoy God’s absolute and unconditional grace ([[Ephesians-01#v3|Eph. 1:3]], [[Ephesians-01#v6|6-8]]; [[Ephesians-02#v7|2:7]]).
+In Genesis the records of Abraham ([[Genesis-12#v1|12:1]]—[[Genesis-25#v18|25:18]]) and Isaac ([[Genesis-21#v1|21:1-8]]; [[Genesis-22#v1|22:1-24]]; [[Genesis-24#v1|24:1-67]]) overlap. Abraham’s life reveals that if we would enjoy God’s grace and have the full enjoyment of God’s riches, we must suffer loss and have our natural life circumcised, cut off. Isaac’s life reveals that our suffering to terminate our natural life is for the enjoyment of God’s grace. Throughout his entire life Isaac did nothing but enjoy God’s rich blessing ([[Genesis-25#v11|v. 11]]; [[Genesis-26#v24|26:24b]]), which points to the grace of the New Testament (see [note 11¹](<Genesis-25.fn#Footnote 11.1 — blessed>)). Isaac was born in grace ([[Genesis-21#v1|21:1-3]]; [[Galatians-04#v23|Gal. 4:23]]), grew up in grace ([[Genesis-21#v8|21:8]]), and was made an heir of grace ([[Genesis-25#v5|v. 5]]). In the New Testament, all the called believers are heirs of grace, destined to enjoy God’s absolute and unconditional grace ([[Ephesians-01#v3|Eph. 1:3]], [[Ephesians-01#v6|6-8]]; [[Ephesians-02#v7|2:7]]).
 
 ## Footnotes for verse 9
 
@@ -47,7 +47,7 @@ See notes on [[Genesis-23#v9|23:9]].
 
 **Verse:** [[Genesis-25#v11|Genesis 25:11]]
 
-The blessing in the Old Testament corresponds to the grace in the New Testament (see note 36 in [[Ephesians-01|Eph. 1]]). God’s free gift to us is His blessing. When God’s free gift in Christ is wrought into us to be the life element within us, it becomes grace. See note 22 in [[Romans-05|Rom. 5]].
+The blessing in the Old Testament corresponds to the grace in the New Testament (see [note 3⁶](<Ephesians-01.fn#Footnote 3.6 — spiritual>) in [[Ephesians-01|Eph. 1]]). God’s free gift to us is His blessing. When God’s free gift in Christ is wrought into us to be the life element within us, it becomes grace. See [note 2²](<Romans-05.fn#Footnote 2.2 — grace>) in [[Romans-05|Rom. 5]].
 
 ## Footnotes for verse 21
 

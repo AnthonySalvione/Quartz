@@ -100,7 +100,7 @@ But those who are perfect in their way are His delight.
 
 ## v21
 
-Be assured: The evil man will not go unpunished;  
+[[Proverbs-11.fn#Footnote 21.1 — Be|Be]] assured: The evil man will not go unpunished;  
 But the seed of the righteous will be delivered.
 
 ## v22

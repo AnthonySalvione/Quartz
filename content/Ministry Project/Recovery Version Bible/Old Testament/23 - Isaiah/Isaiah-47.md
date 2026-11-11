@@ -46,15 +46,15 @@ Very heavy upon the elderly.
 You have said, I will be /  
 A queen forever; /  
 You did not put these things into your heart; /  
-You did not remember the end of them.
+You did not remember the end of [[Isaiah-47.fn#Footnote 7.1 — them|them]].
 
 ## v8
 
 And now hear this, O lover of pleasure, /  
 Who dwells securely /  
-And says in your heart, /  
+And says in [[Isaiah-47.fn#Footnote 8.1 — your|your]] heart, /  
 I am, and there is none besides me; /  
-I will not dwell as a widow, /  
+I will not [[Isaiah-47.fn#Footnote 8.2 — dwell|dwell]] as a widow, /  
 And I will not know loss of children.
 
 ## v9

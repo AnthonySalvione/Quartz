@@ -15,7 +15,7 @@ chapter_num: 14
 
 **Verse:** [[2 Chronicles-14#v5|2 Chronicles 14:5]]
 
-See note 31² in [[1 Kings-12|1 Kings 12]].
+See [note 31²](<1 Kings-12.fn#Footnote 31.2 — high>) in [[1 Kings-12|1 Kings 12]].
 
 ## Footnotes for verse 9
 

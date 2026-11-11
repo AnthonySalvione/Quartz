@@ -1,6 +1,9 @@
+> *To the choir director. Of David. A Psalm*
+
+---
 ## v1
 
-O God of my praise, do not be silent;
+[[Psalm-109.fn#Footnote 1.1 — O|O]] God of my praise, do not be silent;
 
 ## v2
 
@@ -60,7 +63,7 @@ Nor anyone to be kind to his orphans.
 ## v13
 
 May his posterity be cut off;  
-In the generation following may his name be blotted out.
+In the generation following may [[Psalm-109.fn#Footnote 13.1 — his|his]] name be blotted out.
 
 ## v14
 

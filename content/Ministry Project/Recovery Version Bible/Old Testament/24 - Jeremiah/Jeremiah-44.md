@@ -64,7 +64,7 @@ As for the word which you have spoken to us in the name of Jehovah, we will not 
 
 ## v17
 
-But we will surely do everything which has gone out of our mouth, burning incense to the queen of heaven and pouring out libations to her, just as we ourselves and our fathers, our kings, and our princes did in the cities of Judah and in the streets of Jerusalem; for we had plenty of food and were well off and did not see evil.
+But we will surely do everything which has gone out of our mouth, burning incense to the [[Jeremiah-44.fn#Footnote 17.1 — queen|queen]] of heaven and pouring out libations to her, just as we ourselves and our fathers, our kings, and our princes did in the cities of Judah and in the streets of Jerusalem; for we had plenty of food and were well off and did not see evil.
 
 ## v18
 

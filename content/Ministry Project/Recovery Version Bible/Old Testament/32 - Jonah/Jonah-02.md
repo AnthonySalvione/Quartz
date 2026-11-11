@@ -7,7 +7,7 @@ Then Jonah prayed to Jehovah his God from the stomach of the fish,
 And he said,  
 I called out because of my distress /  
 To Jehovah, and He answered me; /  
-From the belly of Sheol I cried out for help; /  
+From the belly of [[Jonah-02.fn#Footnote 2.1 — Sheol|Sheol]] I cried out for help; /  
 You heard my voice.
 
 ## v3
@@ -34,7 +34,7 @@ Seaweed was wrapped about my head.
 
 To the bottom of the sea mountains I went down; /  
 The earth with its bars was around me forever. /  
-Then You have brought up my life from the pit, /  
+Then You have brought up my life from the [[Jonah-02.fn#Footnote 6.1 — pit|pit]], /  
 O Jehovah my God.
 
 ## v7

@@ -1,6 +1,6 @@
 ## v1
 
-He who scatters has come up before you:  
+[[Nahum-02.fn#Footnote 1.1 — He|He]] who scatters has come up before you:  
 Keep the fortress,  
 Watch the way,  
 Strengthen the loins,  
@@ -31,20 +31,20 @@ They dart like lightning.
 
 ## v5
 
-The Assyrian king remembers his glorious ones:  
+[[Nahum-02.fn#Footnote 5.1 — The|The]] Assyrian king remembers his glorious ones:  
 They stumble in their march;  
-They hasten to the wall of the city,  
+They hasten to the wall [[Nahum-02.fn#Footnote 5.2 — of|of]] the city,  
 But the besiegers’ shelter is prepared.
 
 ## v6
 
-The gates of the rivers are opened,  
+The [[Nahum-02.fn#Footnote 6.1 — gates|gates]] of the rivers are opened,  
 And the palace is dissolved.
 
 ## v7
 
 And it is determined:  
-She is uncovered; she is carried away;  
+[[Nahum-02.fn#Footnote 7.1 — She|She]] is uncovered; she is carried away;  
 And her maidens moan,  
 As with the sound of doves,  
 Beating their breasts.
@@ -87,7 +87,7 @@ And his dens with torn animals.
 
 Indeed I am against you,  
 Declares Jehovah of hosts;  
-And I will burn your chariots in smoke,  
+And I will burn [[Nahum-02.fn#Footnote 13.1 — your|your]] chariots in smoke,  
 And the sword will devour your young lions;  
 And I will cut off your prey from the earth;  
 And the voice of your messengers will no longer be heard.

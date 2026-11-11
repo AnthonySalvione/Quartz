@@ -51,14 +51,14 @@ That God has given the children of men to travail in.
 ## v11
 
 He has made everything beautiful in its own time;  
-Also He has put eternity in their heart,  
+Also He has put [[Ecclesiastes-03.fn#Footnote 11.1 — eternity|eternity]] in their heart,  
 Yet so that man does not find out what God has done  
 From the beginning to the end.
 
 ## v12
 
 I know that there is nothing better for them  
-Than to rejoice and do good in their lifetime;
+Than to [[Ecclesiastes-03.fn#Footnote 12.1 — rejoice|rejoice]] and do good in their lifetime;
 
 ## v13
 
@@ -76,7 +76,7 @@ God has so done, that all would fear Him.
 
 That which is has already been,  
 And that which will be has already been;  
-And God seeks what has passed.
+And God seeks what has [[Ecclesiastes-03.fn#Footnote 15.1 — passed|passed]].
 
 ## v16
 
@@ -102,7 +102,7 @@ And that they may see for themselves that they are but beasts.
 For what happens to the children of men happens also to beasts;  
 Even the same thing happens to them both:  
 As the one dies, so dies the other;  
-And they all have one breath;  
+And they all have one [[Ecclesiastes-03.fn#Footnote 19.1 — breath|breath]];  
 And man has no advantage over the beast;  
 For all is vanity.
 
@@ -113,8 +113,8 @@ All are of dust, and all return to dust.
 
 ## v21
 
-Who knows the breath of the children of men, that it goes upward;  
-Or the breath of the beasts, that it goes downward to the earth?
+Who knows the [[Ecclesiastes-03.fn#Footnote 21.1 — breath|breath]] of the children of men, that it goes upward;  
+Or the [[Ecclesiastes-03.fn#Footnote 21.1 — breath|breath]] of the beasts, that it goes downward to the earth?
 
 ## v22
 

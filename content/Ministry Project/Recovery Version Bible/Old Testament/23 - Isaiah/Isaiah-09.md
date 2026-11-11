@@ -2,19 +2,19 @@
 
 But gloom does not remain in the place where there was anguish:  
 Formerly He treated the land of Zebulun and the land of Naphtali contemptibly,  
-But afterward He treats the way of the sea, across the Jordan,  
-With glory, Galilee of the nations.
+But afterward He treats the way of the [[Isaiah-09.fn#Footnote 1.1 — sea|sea]], across the Jordan,  
+With glory, [[Isaiah-09.fn#Footnote 1.2 — Galilee|Galilee]] of the nations.
 
 ## v2
 
 The people who walked in the darkness  
-Have seen a great light;  
+Have seen a great [[Isaiah-09.fn#Footnote 2.1 — light|light]];  
 Upon those who dwell in the land of the shadow of death  
-Light has shined.
+[[Isaiah-09.fn#Footnote 2.1 — light|Light]] has shined.
 
 ## v3
 
-You have multiplied the nation;  
+You have [[Isaiah-09.fn#Footnote 3.1 — multiplied|multiplied]] the nation;  
 You have increased their gladness;  
 They are glad before You as with the gladness of harvest,  
 As men rejoice when they divide the spoil.
@@ -24,7 +24,7 @@ As men rejoice when they divide the spoil.
 For You break the yoke of their burden  
 And the staff on their shoulder,  
 The rod of their oppressor,  
-As in the day of Midian.
+As in the day of [[Isaiah-09.fn#Footnote 4.1 — Midian|Midian]].
 
 ## v5
 
@@ -37,21 +37,21 @@ They are fuel for fire.
 
 ## v6
 
-For a child is born to us,  
-A Son is given to us;  
-And the government  
+For a [[Isaiah-09.fn#Footnote 6.1 — child|child]] is born [[Isaiah-09.fn#Footnote 6.2 — to|to]] us,  
+A [[Isaiah-09.fn#Footnote 6.1 — child|Son]] is given [[Isaiah-09.fn#Footnote 6.2 — to|to]] us;  
+And the [[Isaiah-09.fn#Footnote 6.3 — government|government]]  
 Is upon His shoulder;  
 And His name will be called  
-Wonderful Counselor,  
-Mighty God,  
-Eternal Father,  
-Prince of Peace.
+[[Isaiah-09.fn#Footnote 6.4 — Wonderful|Wonderful]] Counselor,  
+[[Isaiah-09.fn#Footnote 6.5 — Mighty|Mighty]] God,  
+[[Isaiah-09.fn#Footnote 6.5 — Mighty|Eternal]] Father,  
+[[Isaiah-09.fn#Footnote 6.6 — Prince|Prince]] of Peace.
 
 ## v7
 
-To the increase of His government  
-And to His peace there is no end,  
-Upon the throne of David  
+To the increase of His [[Isaiah-09.fn#Footnote 7.1 — government|government]]  
+And to His [[Isaiah-09.fn#Footnote 7.1 — government|peace]] there is no end,  
+Upon the [[Isaiah-09.fn#Footnote 7.2 — throne|throne]] of David  
 And over His kingdom,  
 To establish it  
 And to uphold it  
@@ -62,8 +62,8 @@ Will accomplish this.
 
 ## v8
 
-The Lord sends out a word against Jacob,  
-And it descends upon Israel.
+The Lord sends out a word against [[Isaiah-09.fn#Footnote 8.1 — Jacob|Jacob]],  
+And it descends upon [[Isaiah-09.fn#Footnote 8.1 — Jacob|Israel]].
 
 ## v9
 

@@ -15,7 +15,7 @@ chapter_num: 26
 
 **Verse:** [[Genesis-26#v3|Genesis 26:3]]
 
-Isaac inherited not only all that his father had but also the promise God had given to his father concerning the good land and the unique seed, who is Christ, in whom all the nations of the earth were to be blessed ([[Galatians-03#v14|Gal. 3:14]], [[Galatians-03#v16|16]]). This promise was actually for the fulfillment of God’s purpose that God might have a kingdom on the earth in which to express Himself through a corporate people. See notes 22 in [[Genesis-12|Genesis 12]] and 31 in [[Genesis-15|Genesis 15]].
+Isaac inherited not only all that his father had but also the promise God had given to his father concerning the good land and the unique seed, who is Christ, in whom all the nations of the earth were to be blessed ([[Galatians-03#v14|Gal. 3:14]], [[Galatians-03#v16|16]]). This promise was actually for the fulfillment of God’s purpose that God might have a kingdom on the earth in which to express Himself through a corporate people. See notes [2²](<Genesis-12.fn#Footnote 2.2 — great>) in [[Genesis-12|Genesis 12]] and [3¹](<Genesis-15.fn#Footnote 3.1 — seed>) in [[Genesis-15|Genesis 15]].
 
 ## Footnotes for verse 7
 
@@ -47,7 +47,7 @@ Or, body of servants.
 
 **Verse:** [[Genesis-26#v19|Genesis 26:19]]
 
-Lit., living. See note 161 in [[Numbers-21|Num. 21]].
+Lit., living. See [note 16¹](<Numbers-21.fn#Footnote 16.1 — Beer>) in [[Numbers-21|Num. 21]].
 
 ## Footnotes for verse 20
 
@@ -79,7 +79,7 @@ Meaning broad places, broad ways.
 
 **Verse:** [[Genesis-26#v24|Genesis 26:24]]
 
-Although Isaac enjoyed God’s unconditional grace, finding enjoyment and satisfaction (signified by a well) in every place that he went ([[Genesis-25#v11|25:11]]; [[Genesis-26#v15|26:15-22]]), Beer-sheba was the unique place in which he experienced God’s appearing, received His promise, built an altar, called on the name of the Lord, and pitched a tent as a testimony. God’s called ones are destined to enjoy God’s grace regardless of their standing, but this enjoyment does not justify their standing. If we desire to have God’s appearing, inherit His promises, and live a life for the fulfillment of His eternal purpose, we must come to the unique place that God has chosen and remain there. This unique place is signified by Beer-sheba, with the well for life supply and the tamarisk tree as the expression of the rich flow of life ([[Genesis-21#v25|21:25]], [[Genesis-21#v33|33]]). Cf. notes 51 and 171 in [[Deuteronomy-12|Deut. 12]].
+Although Isaac enjoyed God’s unconditional grace, finding enjoyment and satisfaction (signified by a well) in every place that he went ([[Genesis-25#v11|25:11]]; [[Genesis-26#v15|26:15-22]]), Beer-sheba was the unique place in which he experienced God’s appearing, received His promise, built an altar, called on the name of the Lord, and pitched a tent as a testimony. God’s called ones are destined to enjoy God’s grace regardless of their standing, but this enjoyment does not justify their standing. If we desire to have God’s appearing, inherit His promises, and live a life for the fulfillment of His eternal purpose, we must come to the unique place that God has chosen and remain there. This unique place is signified by Beer-sheba, with the well for life supply and the tamarisk tree as the expression of the rich flow of life ([[Genesis-21#v25|21:25]], [[Genesis-21#v33|33]]). Cf. notes [5¹](<Deuteronomy-12.fn#Footnote 5.1 — choose>) and [17¹](<Deuteronomy-12.fn#Footnote 17.1 — eat>) in [[Deuteronomy-12|Deut. 12]].
 
 ## Footnotes for verse 26
 

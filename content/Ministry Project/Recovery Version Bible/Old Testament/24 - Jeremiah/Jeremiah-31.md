@@ -163,8 +163,8 @@ A female will encompass a mighty man.
 ## v23
 
 Thus says Jehovah of hosts, the God of Israel, Once more they will say this word in the land of Judah and in its cities, when I turn again their captivity,  
-Jehovah bless you, O habitation of righteousness,  
-O mountain of holiness.
+Jehovah bless you, [[Jeremiah-31.fn#Footnote 23.1 — O|O]] habitation of righteousness,  
+O [[Jeremiah-31.fn#Footnote 23.1 — O|Mountain]] of holiness.
 
 ## v24
 
@@ -198,19 +198,19 @@ For everyone will die for his own iniquity; every man who eats sour grapes, his 
 
 ## v31
 
-Indeed, days are coming, declares Jehovah, when I will make a new covenant with the house of Israel and with the house of Judah,
+Indeed, days are coming, declares Jehovah, when I will make a [[Jeremiah-31.fn#Footnote 31.1 — new|new]] covenant with the house of Israel and with the house of Judah,
 
 ## v32
 
-Not like the covenant which I made with their fathers in the day I took them by their hand to bring them out from the land of Egypt, My covenant which they broke, although I was their Husband, declares Jehovah.
+Not like the [[Jeremiah-31.fn#Footnote 32.1 — covenant|covenant]] which I made with their fathers in the day I took them by their hand to bring them out from the land of Egypt, My covenant which they broke, although I was their Husband, declares Jehovah.
 
 ## v33
 
-But this is the covenant which I will make with the house of Israel after those days, declares Jehovah: I will put My law in their inward parts and write it upon their hearts; and I will be their God, and they will be My people.
+But this is the covenant which I will make with the house of Israel after those days, declares Jehovah: I will put My [[Jeremiah-31.fn#Footnote 33.1 — law|law]] in their inward parts and [[Jeremiah-31.fn#Footnote 33.2 — write|write]] it upon their hearts; and I will be their [[Jeremiah-31.fn#Footnote 33.3 — God|God]], and they will be My people.
 
 ## v34
 
-And they will no longer teach, each man his neighbor and each man his brother, saying, Know Jehovah; for all of them will know Me, from the little one among them even to the great one among them, declares Jehovah, for I will forgive their iniquity, and their sin I will remember no more.
+And they will no longer teach, each man his neighbor and each man his brother, saying, Know Jehovah; for all of them will [[Jeremiah-31.fn#Footnote 34.1 — know|know]] Me, from the little one among them even to the great one among them, declares Jehovah, for I will [[Jeremiah-31.fn#Footnote 34.2 — forgive|forgive]] their iniquity, and their sin I will remember no [[Jeremiah-31.fn#Footnote 34.3 — more|more]].
 
 ## v35
 
@@ -225,7 +225,7 @@ Jehovah of hosts is His name —
 If this order departs  
 From before Me, declares Jehovah,  
 Then the seed of Israel will also cease  
-From being a nation before Me forever.
+From being a nation before Me [[Jeremiah-31.fn#Footnote 36.1 — forever|forever]].
 
 ## v37
 

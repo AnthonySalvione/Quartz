@@ -1,6 +1,12 @@
+> *Of David. A Maschil*
+
+> [!light] Note on Maschil:
+>  The meaning of this term is uncertain. Some understand a meditative poem; others, a poem of instruction.
+
+---
 ## v1
 
-Blessed is he whose transgression is forgiven; / Whose sin is covered.
+[[Psalm-32.fn#Footnote 1.1 — Blessed|Blessed]] is he whose transgression is [[Psalm-32.fn#Footnote 1.2 — forgiven|forgiven]]; / Whose sin is covered.
 
 ## v2
 
@@ -40,4 +46,4 @@ Many are the sorrows that the wicked have; / But he who trusts in Jehovah is enc
 
 ## v11
 
-Rejoice in Jehovah and exult, O righteous ones; / And give a ringing shout, all you who are upright in heart.
+Rejoice in Jehovah and exult, O [[Psalm-32.fn#Footnote 11.1 — righteous|righteous]] ones; / And give a ringing shout, all you who are [[Psalm-32.fn#Footnote 11.1 — righteous|upright]] in heart.

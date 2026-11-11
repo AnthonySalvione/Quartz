@@ -4,7 +4,7 @@ Then the word of Jehovah came to me, saying,
 
 ## v2
 
-Son of man, set your face toward Gog of the land of Magog, the prince of Rosh, Meshech, and Tubal, and prophesy against him,
+Son of man, set your face toward [[Ezekiel-38.fn#Footnote 2.1 — Gog|Gog]] of the land of [[Ezekiel-38.fn#Footnote 2.1 — Gog|Magog]], the prince of Rosh, Meshech, and Tubal, and prophesy against him,
 
 ## v3
 

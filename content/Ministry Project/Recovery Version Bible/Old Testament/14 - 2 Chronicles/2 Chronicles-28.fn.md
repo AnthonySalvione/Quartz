@@ -15,4 +15,4 @@ chapter_num: 28
 
 **Verse:** [[2 Chronicles-28#v3|2 Chronicles 28:3]]
 
-Gehenna of the New Testament (see note 228 in [[Matthew-05|Matt. 5]]).
+Gehenna of the New Testament (see [note 22⁸](<Matthew-05.fn#Footnote 22.8 — Gehenna>) in [[Matthew-05|Matt. 5]]).

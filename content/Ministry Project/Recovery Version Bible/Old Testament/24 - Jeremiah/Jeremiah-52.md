@@ -1,6 +1,6 @@
 ## v1
 
-Zedekiah was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem; and his mother’s name was Hamutal, the daughter of Jeremiah, from Libnah.
+[[Jeremiah-52.fn#Footnote 1.1 — Zedekiah|Zedekiah]] was twenty-one years old when he began to reign, and he reigned eleven years in Jerusalem; and his mother’s name was Hamutal, the daughter of Jeremiah, from Libnah.
 
 ## v2
 
@@ -24,7 +24,7 @@ In the fourth month, on the ninth day of the month, the famine was so severe wit
 
 ## v7
 
-Then the city was breached, and all the men of war fled; and they went out from the city by night by way of the gate between the two walls, which was by the king’s garden, while the Chaldeans were all around the city; and they went by the way toward the Arabah.
+Then the city was breached, and all the men of war fled; and they went out from the city by night by way of the gate between the two walls, which was by the king’s garden, while the Chaldeans were all around the city; and they went by the way toward the [[Jeremiah-52.fn#Footnote 7.1 — Arabah|Arabah]].
 
 ## v8
 
@@ -40,7 +40,7 @@ Then the king of Babylon slaughtered the sons of Zedekiah before his eyes, and h
 
 ## v11
 
-And he put out Zedekiah’s eyes and bound him with bronze fetters. And the king of Babylon brought him to Babylon and put him in prison until the day of his death.
+And he [[Jeremiah-52.fn#Footnote 11.1 — put|put]] out Zedekiah’s eyes and bound him with bronze fetters. And the king of Babylon brought him to Babylon and put him in prison until the day of his death.
 
 ## v12
 
@@ -64,7 +64,7 @@ But Nebuzaradan the captain of the bodyguard left some of the poorest of the lan
 
 ## v17
 
-And the Chaldeans broke in pieces the bronze pillars, which were in the house of Jehovah, and the bases and the bronze sea, which were in the house of Jehovah. And they carried all their bronze to Babylon.
+And the Chaldeans broke in pieces the bronze [[Jeremiah-52.fn#Footnote 17.1 — pillars|pillars]], which were in the house of Jehovah, and the bases and the bronze sea, which were in the house of Jehovah. And they carried all their bronze to Babylon.
 
 ## v18
 

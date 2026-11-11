@@ -23,7 +23,7 @@ chapter_num: 9
 
 **Verse:** [[Numbers-09#v2|Numbers 9:2]]
 
-For the details of the passover, see notes in [[Exodus-12#v1|Exo. 12:1-28]], [[Exodus-12#v43|43-51]]. The passover in the Old Testament was a yearly reminder to the children of Israel, whereas the Lord’s table, instituted by the Lord Jesus to replace the passover (see note 261 in [[Matthew-26|Matt. 26]]), is a weekly reminder to the believers in Christ. Both the passover and the Lord’s table remind us that we were destined to die under God’s righteous judgment, but God prepared Christ to be our replacement to die for us, thus saving us from the death-judgment of God’s righteousness. Furthermore, they remind us that we do not belong to ourselves but to the One who replaced us and who is now our life and life supply. Since Christ is our life and life supply, we should live by Him ([[John-06#v57|John 6:57]]).
+For the details of the passover, see notes in [[Exodus-12#v1|Exo. 12:1-28]], [[Exodus-12#v43|43-51]]. The passover in the Old Testament was a yearly reminder to the children of Israel, whereas the Lord’s table, instituted by the Lord Jesus to replace the passover (see [note 26¹](<Matthew-26.fn#Footnote 26.1 — eating>) in [[Matthew-26|Matt. 26]]), is a weekly reminder to the believers in Christ. Both the passover and the Lord’s table remind us that we were destined to die under God’s righteous judgment, but God prepared Christ to be our replacement to die for us, thus saving us from the death-judgment of God’s righteousness. Furthermore, they remind us that we do not belong to ourselves but to the One who replaced us and who is now our life and life supply. Since Christ is our life and life supply, we should live by Him ([[John-06#v57|John 6:57]]).
 
 ## Footnotes for verse 3
 
@@ -37,7 +37,7 @@ Lit., between the two evenings. So also in [[Numbers-09#v5|vv. 5]] and [[Numbers
 
 **Verse:** [[Numbers-09#v3|Numbers 9:3]]
 
-See note 6⁴ in [[Luke-01|Luke 1]].
+See [note 6⁴](<Luke-01.fn#Footnote 6.4 — ordinances>) in [[Luke-01|Luke 1]].
 
 ## Footnotes for verse 13
 
@@ -53,7 +53,7 @@ That an Israelite who was clean was required to keep the passover signifies that
 
 **Verse:** [[Numbers-09#v15|Numbers 9:15]]
 
-In typology the cloud signifies the Spirit ([[1 Corinthians-10#v1|1 Cor. 10:1-2]] and notes 14 and 23) and the fire, for enlightening, signifies the Word of God ([[Psalm-119#v105|Psa. 119:105]]). The Spirit and the Word are one ([[John-06#v63|John 6:63]]; [[Ephesians-06#v17|Eph. 6:17]]). Cf. note 211 in [[Exodus-13|Exo. 13]].
+In typology the cloud signifies the Spirit ([[1 Corinthians-10#v1|1 Cor. 10:1-2]] and [[1 Corinthians-10.fn#Footnote 1.4 — cloud|notes 1⁴]] and [[1 Corinthians-10.fn#Footnote 2.3 — in|2³]]) and the fire, for enlightening, signifies the Word of God ([[Psalm-119#v105|Psa. 119:105]]). The Spirit and the Word are one ([[John-06#v63|John 6:63]]; [[Ephesians-06#v17|Eph. 6:17]]). Cf. [note 21¹](<Exodus-13.fn#Footnote 21.1 — cloud>) in [[Exodus-13|Exo. 13]].
 
 ## Footnotes for verse 17
 

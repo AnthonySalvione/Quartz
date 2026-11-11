@@ -4,7 +4,7 @@ The word that came to Jeremiah
 Concerning all the people of Judah  
 In the fourth year of Jehoiakim the son of Josiah,  
 The king of Judah  
-(That is, the first year of Nebuchadrezzar the king of Babylon),
+(That is, the first year of [[Jeremiah-25.fn#Footnote 1.1 — Nebuchadrezzar|Nebuchadrezzar]] the king of Babylon),
 
 ## v2
 
@@ -86,7 +86,7 @@ And this whole land will become
 A desolation and a waste,  
 And these nations will serve  
 The king of Babylon  
-Seventy years.
+[[Jeremiah-25.fn#Footnote 11.1 — Seventy|Seventy]] years.
 
 ## v12
 
@@ -190,7 +190,7 @@ And all the kings of the north, near and far,
 One with another,  
 And all the kingdoms of the earth  
 Which are upon the surface of the ground;  
-And the king of Sheshach  
+And the king of [[Jeremiah-25.fn#Footnote 26.1 — Sheshach|Sheshach]]  
 Will drink it after them.
 
 ## v27
@@ -286,5 +286,5 @@ Because of the burning anger of Jehovah.
 
 Like a young lion He has left His lair,  
 For their land has become a waste,  
-Because of the oppressing sword  
+Because of the [[Jeremiah-25.fn#Footnote 38.1 — oppressing|oppressing]] sword  
 And because of His burning anger.

@@ -15,7 +15,7 @@ chapter_num: 36
 
 **Verse:** [[Exodus-36#v2|Exodus 36:2]]
 
-See note 21¹ in [[Exodus-35|Exodus 35]].
+See [note 21¹](<Exodus-35.fn#Footnote 21.1 — lifted>) in [[Exodus-35|Exodus 35]].
 
 ## Footnotes for verse 8
 
@@ -25,7 +25,7 @@ See note 21¹ in [[Exodus-35|Exodus 35]].
 
 The sequence in the making of the tabernacle and its furniture ([[Exodus-36#v8|36:8]]—[[Exodus-38#v20|38:20]]) is different from the sequence in the revelation of the vision of the tabernacle ([[Exodus-25#v10|25:10]]—[[Exodus-28#v43|28:43]]; [[Exodus-30#v1|30:1-10]], [[Exodus-30#v17|17-38]]). The sequence in the revelation, with the Ark of the Testimony being revealed first, is according to the desire of God’s heart, whereas the sequence in the making, with the tabernacle being made first and then the furniture as the content, was according to the practical need. 
 
-In His coming to us in Christ, God began at the Ark and reached us at the altar in the outer court, but in our experience of Christ, we begin at the altar and proceed onward until we reach the Ark (see note 43 in [[Hebrews-09|Heb. 9]]).
+In His coming to us in Christ, God began at the Ark and reached us at the altar in the outer court, but in our experience of Christ, we begin at the altar and proceed onward until we reach the Ark (see [note 4³](<Hebrews-09.fn#Footnote 4.3 — pot>) in [[Hebrews-09|Heb. 9]]).
 
 ### Footnote 8.2 — curtains
 

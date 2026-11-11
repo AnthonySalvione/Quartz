@@ -1,7 +1,7 @@
 ## v1
 
 Open your doors, O Lebanon, /  
-That the fire may devour your cedars.
+That the [[Zechariah-11.fn#Footnote 1.1 — fire|fire]] may devour your cedars.
 
 ## v2
 
@@ -27,15 +27,15 @@ Whose owners slaughter them and are not punished; and they who sell them say, Bl
 
 ## v6
 
-For I will no longer spare the inhabitants of the land, declares Jehovah; but I am about to cause each man to fall into his neighbor’s hand and into the hand of his king; and they will strike the land, and I will not deliver them from their hand.
+For I will no longer spare the inhabitants of the land, declares Jehovah; but I am about to cause each man to fall into his [[Zechariah-11.fn#Footnote 6.1 — neighbor’s|neighbor’s]] hand and into the hand of his king; and they will strike the land, and I will not deliver them from their hand.
 
 ## v7
 
-So I shepherded the flock of slaughter, and thereby the afflicted of the flock. And I took to myself two staffs; one I called Favor, and the other I called Bonds; and I shepherded the flock.
+So [[Zechariah-11.fn#Footnote 7.1 — I|I]] shepherded the flock of slaughter, and thereby the afflicted of the flock. And I took to myself two staffs; one I called [[Zechariah-11.fn#Footnote 7.2 — Favor|Favor]], and the other I called [[Zechariah-11.fn#Footnote 7.2 — Favor|Bonds]]; and I shepherded the flock.
 
 ## v8
 
-Then I destroyed the three shepherds in one month; for my soul was impatient with them, and their soul also detested me.
+Then I destroyed the [[Zechariah-11.fn#Footnote 8.1 — three|three]] shepherds in one month; for my soul was impatient with them, and their soul also detested me.
 
 ## v9
 
@@ -43,7 +43,7 @@ Then I said, I will not shepherd you. What is to die will die, and what is to be
 
 ## v10
 
-And I took my staff, Favor, and I broke it in pieces so as to break my covenant which I had made with all the peoples.
+And I took my staff, Favor, and I [[Zechariah-11.fn#Footnote 10.1 — broke|broke]] it in pieces so as to break my covenant which I had made with all the peoples.
 
 ## v11
 
@@ -51,7 +51,7 @@ And it was broken in that day; and thus the afflicted of the flock, who watched 
 
 ## v12
 
-And I said to them, If it is good in your sight, give me my wages; but if not, do not bother. So they weighed out my wages, thirty pieces of silver.
+And I said to them, If it is good in your sight, give me my wages; but if not, [[Zechariah-11.fn#Footnote 12.1 — do|do]] not bother. So they weighed out my wages, [[Zechariah-11.fn#Footnote 12.2 — thirty|thirty]] pieces of silver.
 
 ## v13
 
@@ -59,11 +59,11 @@ And Jehovah said to me, Throw it to the potter, that magnificent price that I am
 
 ## v14
 
-Then I broke my second staff, Bonds, in pieces, so as to break the brotherhood between Judah and Israel.
+Then I [[Zechariah-11.fn#Footnote 14.1 — broke|broke]] my second staff, Bonds, in pieces, so as to break the brotherhood between Judah and Israel.
 
 ## v15
 
-And Jehovah said to me, Again, take the equipment of a foolish shepherd.
+And Jehovah said to me, Again, take the equipment of a [[Zechariah-11.fn#Footnote 15.1 — foolish|foolish]] shepherd.
 
 ## v16
 

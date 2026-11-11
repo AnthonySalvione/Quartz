@@ -6,14 +6,14 @@ And the word of Jehovah came to me, saying,
 
 Go and cry in the ears of Jerusalem, saying, Thus says Jehovah:  
 I remember concerning you the kindness of your youth,  
-The love of your bridal days,  
+The love of your [[Jeremiah-02.fn#Footnote 2.1 — bridal|bridal]] days,  
 When you followed after Me in the wilderness,  
 In a land that was not sown.
 
 ## v3
 
 Israel was holiness to Jehovah,  
-The firstfruits of His increase;  
+The firstfruits of His [[Jeremiah-02.fn#Footnote 3.1 — increase|increase]];  
 All who ate of it were guilty;  
 Evil came upon them,  
 Declares Jehovah.
@@ -27,7 +27,7 @@ Hear the word of Jehovah, O house of Jacob and all the families of the house of 
 Thus says Jehovah:  
 What iniquity did your fathers find in Me  
 That they went far away from Me  
-And walked after vanity  
+And walked after [[Jeremiah-02.fn#Footnote 5.1 — vanity|vanity]]  
 And became vain?
 
 ## v6
@@ -71,7 +71,7 @@ And see if there has ever been anything like this.
 
 Has a nation ever exchanged its gods,  
 Even though they are no gods?  
-But My people have exchanged their glory  
+But My people have exchanged their [[Jeremiah-02.fn#Footnote 11.1 — glory|glory]]  
 For that which does not benefit them.
 
 ## v12
@@ -84,8 +84,8 @@ Declares Jehovah.
 
 For My people have committed two evils:  
 They have forsaken Me,  
-The fountain of living waters,  
-To hew out for themselves cisterns,  
+The [[Jeremiah-02.fn#Footnote 13.1 — fountain|fountain]] of living waters,  
+To hew out for themselves [[Jeremiah-02.fn#Footnote 13.1 — fountain|cisterns]],  
 Broken cisterns,  
 Which hold no water.
 
@@ -114,15 +114,15 @@ When He was leading you in the way?
 
 ## v18
 
-And now what do you have on the road to Egypt,  
-To drink the waters of the Shihor?  
-And what do you have on the road to Assyria,  
-To drink the waters of the River?
+And now what do you have on the road to [[Jeremiah-02.fn#Footnote 18.1 — Egypt|Egypt]],  
+To drink the waters of the [[Jeremiah-02.fn#Footnote 18.2 — Shihor|Shihor]]?  
+And what do you have on the road to [[Jeremiah-02.fn#Footnote 18.1 — Egypt|Assyria]],  
+To drink the waters of the [[Jeremiah-02.fn#Footnote 18.3 — River|River]]?
 
 ## v19
 
 Your own wickedness will correct you,  
-And your apostasies will reprove you.  
+And your [[Jeremiah-02.fn#Footnote 19.1 — apostasies|apostasies]] will reprove you.  
 Know therefore and see that it is an evil and bitter thing,  
 That you have forsaken Jehovah your God  
 And that My fear is not in you,  
@@ -135,7 +135,7 @@ You tore off your bonds;
 And you said, I will not serve!  
 Indeed upon every high hill  
 And under every flourishing tree  
-You have lain down, you have committed fornication.
+You have lain down, you have committed [[Jeremiah-02.fn#Footnote 20.1 — fornication|fornication]].
 
 ## v21
 
@@ -221,10 +221,10 @@ We will no longer come to You?
 
 ## v32
 
-Can the virgin forget her ornaments,  
-Or the bride her attire?  
+Can the virgin forget her [[Jeremiah-02.fn#Footnote 32.1 — ornaments|ornaments]],  
+Or the bride her [[Jeremiah-02.fn#Footnote 32.1 — ornaments|attire]]?  
 But My people have forgotten Me  
-For days without number.
+For days [[Jeremiah-02.fn#Footnote 32.2 — without|without]] number.
 
 ## v33
 

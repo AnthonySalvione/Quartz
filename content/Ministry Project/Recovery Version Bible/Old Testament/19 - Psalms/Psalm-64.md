@@ -1,3 +1,6 @@
+> *To the choir director. A Psalm of David*
+
+---
 ## v1
 
 Hear, O God, my voice in my complaint;  
@@ -15,7 +18,7 @@ Who have aimed their arrow, their bitter word,
 
 ## v4
 
-To shoot in secret places at the perfect man.  
+To shoot in secret places at the [[Psalm-64.fn#Footnote 4.1 — perfect|perfect]] man.  
 They shoot suddenly at him and do not fear.
 
 ## v5

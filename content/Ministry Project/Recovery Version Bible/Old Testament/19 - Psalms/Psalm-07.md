@@ -1,3 +1,8 @@
+> *A Shiggaion of David, which he sang to Jehovah on account of Cush the Benjaminite*
+
+> [!light] Note on *Shiggaion:*
+>  The meaning of the term is obscure but apparently denotes a musical form or tempo (cf. [[Habakkuk-03#v1|Hab. 3:1]]).
+---
 ## v1
 
 O Jehovah my God, in You do I take refuge.  
@@ -11,12 +16,12 @@ Tearing it apart without anyone to deliver it.
 ## v3
 
 O Jehovah my God, if I have done this,  
-If there is unrighteousness in my hands,
+If there is [[Psalm-07.fn#Footnote 3.1 — unrighteousness|unrighteousness]] in my hands,
 
 ## v4
 
 If I have recompensed with evil him who was at peace with me  
-(Rather, I have delivered him who vexed me without cause);
+([[Psalm-07.fn#Footnote 4.1 — Rather|Rather]], I have delivered him who vexed me without cause);
 
 ## v5
 

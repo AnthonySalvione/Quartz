@@ -1,6 +1,6 @@
 ## v1
 
-How the city sits alone /  
+[[Lamentations-01.fn#Footnote 1.1 — How|How]] the city sits alone /  
 That was full of people! /  
 She who was once great among the nations /  
 Has become like a widow; /  
@@ -54,7 +54,7 @@ Before the pursuer.
 
 ## v7
 
-In the days of her affliction and her wanderings, /  
+In the days of her affliction and her [[Lamentations-01.fn#Footnote 7.1 — wanderings|wanderings]], /  
 Jerusalem remembers /  
 All her precious things /  
 Which were in the days of old, /  

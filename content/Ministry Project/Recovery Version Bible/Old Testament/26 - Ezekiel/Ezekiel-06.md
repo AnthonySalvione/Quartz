@@ -28,7 +28,7 @@ And the slain will fall in your midst, and you will know that I am Jehovah.
 
 ## v8
 
-But I will leave a remnant, in that you will have those who have escaped the sword among the nations, when you are scattered among the countries.
+But I will leave a [[Ezekiel-06.fn#Footnote 8.1 — remnant|remnant]], in that you will have those who have escaped the sword among the nations, when you are scattered among the countries.
 
 ## v9
 

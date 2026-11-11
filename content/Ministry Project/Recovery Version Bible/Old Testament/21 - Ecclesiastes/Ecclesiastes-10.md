@@ -100,7 +100,7 @@ And through idleness of hands the house leaks.
 
 ## v19
 
-They make a feast for laughter,  
+[[Ecclesiastes-10.fn#Footnote 19.1 — They|They]] make a feast for laughter,  
 And wine makes life merry,  
 And money is the answer to everything.
 

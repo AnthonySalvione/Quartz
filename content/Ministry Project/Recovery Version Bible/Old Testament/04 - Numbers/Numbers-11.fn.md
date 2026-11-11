@@ -31,7 +31,7 @@ The mixed multitude (cf. [[Exodus-12#v38|Exo. 12:38]]) consisted of those who di
 
 **Verse:** [[Numbers-11#v5|Numbers 11:5]]
 
-The foods in Egypt signify the fleshly enjoyment of the world. See notes 31 and 131 in [[Exodus-16|Exo. 16]].
+The foods in Egypt signify the fleshly enjoyment of the world. See notes [3¹](<Exodus-16.fn#Footnote 3.1 — fleshpots>) and [13¹](<Exodus-16.fn#Footnote 13.1 — quails>) in [[Exodus-16|Exo. 16]].
 
 ## Footnotes for verse 6
 
@@ -39,7 +39,7 @@ The foods in Egypt signify the fleshly enjoyment of the world. See notes 31 and 
 
 **Verse:** [[Numbers-11#v6|Numbers 11:6]]
 
-Manna signifies the heavenly Christ as the daily food for God’s people ([[John-06#v29|John 6:29-35]]). See notes 41 and 151 in [[Exodus-16|Exo. 16]]. The people of Israel abhorred the heavenly taste of manna and lusted for the worldly taste of the Egyptian food.
+Manna signifies the heavenly Christ as the daily food for God’s people ([[John-06#v29|John 6:29-35]]). See notes [4¹](<Exodus-16.fn#Footnote 4.1 — bread>) and [15¹](<Exodus-16.fn#Footnote 15.1 — What>) in [[Exodus-16|Exo. 16]]. The people of Israel abhorred the heavenly taste of manna and lusted for the worldly taste of the Egyptian food.
 
 ## Footnotes for verse 7
 
@@ -47,7 +47,7 @@ Manna signifies the heavenly Christ as the daily food for God’s people ([[John
 
 **Verse:** [[Numbers-11#v7|Numbers 11:7]]
 
-For the characteristics of manna, see notes 132 and 311 in [[Exodus-16|Exo. 16]].
+For the characteristics of manna, see notes [13²](<Exodus-16.fn#Footnote 13.2 — dew>) and [31¹](<Exodus-16.fn#Footnote 31.1 — coriander>) in [[Exodus-16|Exo. 16]].
 
 ## Footnotes for verse 16
 
@@ -55,7 +55,7 @@ For the characteristics of manna, see notes 132 and 311 in [[Exodus-16|Exo. 16]]
 
 **Verse:** [[Numbers-11#v16|Numbers 11:16]]
 
-Seventy, composed of seven times ten, is the number of completion (seven—see note 291 in [[Revelation-02|Rev. 2]]) and fullness (ten—see note 102 in [[Revelation-02|Rev. 2]]). God’s raising up of seventy elders indicates that when He does something, He does it completely and in full.
+Seventy, composed of seven times ten, is the number of completion (seven—see [note 29¹](<Revelation-02.fn#Footnote 29.1 — ear>) in [[Revelation-02|Rev. 2]]) and fullness (ten—see [note 10²](<Revelation-02.fn#Footnote 10.2 — ten>) in [[Revelation-02|Rev. 2]]). God’s raising up of seventy elders indicates that when He does something, He does it completely and in full.
 
 ## Footnotes for verse 25
 
@@ -63,7 +63,7 @@ Seventy, composed of seven times ten, is the number of completion (seven—see n
 
 **Verse:** [[Numbers-11#v25|Numbers 11:25]]
 
-See note 29¹.
+See [note 29¹](<Numbers-11.fn#Footnote 29.1 — all>).
 
 ## Footnotes for verse 29
 
@@ -71,7 +71,7 @@ See note 29¹.
 
 **Verse:** [[Numbers-11#v29|Numbers 11:29]]
 
-Moses desired that all the people of Israel would be prophets, those who spoke for God (see note 11 in [[Exodus-07|Exo. 7]]). This word was a great prophecy uttered by Moses. It was promoted by Paul in [[1 Corinthians-14|1 Cor. 14]] and is fulfilled in God’s New Testament economy by the prophesying of the believers in the church meetings ([[1 Corinthians-14#v24|1 Cor. 14:24]], [[1 Corinthians-14#v31|31]]).
+Moses desired that all the people of Israel would be prophets, those who spoke for God (see [note 1¹](<Exodus-07.fn#Footnote 1.1 — prophet>) in [[Exodus-07|Exo. 7]]). This word was a great prophecy uttered by Moses. It was promoted by Paul in [[1 Corinthians-14|1 Cor. 14]] and is fulfilled in God’s New Testament economy by the prophesying of the believers in the church meetings ([[1 Corinthians-14#v24|1 Cor. 14:24]], [[1 Corinthians-14#v31|31]]).
 
 ## Footnotes for verse 34
 

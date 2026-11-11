@@ -23,7 +23,7 @@ Do not expose him who wanders.
 
 ## v4
 
-Let the outcasts of Moab  
+[[Isaiah-16.fn#Footnote 4.1 — Let|Let]] the outcasts of Moab  
 Dwell with you;  
 Be a hiding place to them  
 From the destroyer.  
@@ -34,7 +34,7 @@ When the oppressor is completely gone from the land,
 ## v5
 
 Then will a throne be established in lovingkindness,  
-And upon it One will sit in truth  
+And upon it [[Isaiah-16.fn#Footnote 5.1 — One|One]] will sit in [[Isaiah-16.fn#Footnote 5.2 — truth|truth]]  
 In the tent of David,  
 Judging and pursuing justice  
 And hastening righteousness.

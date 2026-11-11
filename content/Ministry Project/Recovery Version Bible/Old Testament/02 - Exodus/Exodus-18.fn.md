@@ -31,7 +31,7 @@ Jethro, a priest of Midian ([[Exodus-18#v1|vv. 1]], [[Exodus-18#v5|5]], [[Exodus
 
 **Verse:** [[Exodus-18#v2|Exodus 18:2]]
 
-Zipporah, the Gentile wife of Moses secured by him during his period of rejection by Israel ([[Exodus-02#v13|2:13-22]]), typifies the Gentile church gained by Christ as His wife during the time of His rejection by the children of Israel ([[Romans-11#v11|Rom. 11:11-25]]; cf. note 452 in [[Genesis-41|Gen. 41]]). When the kingdom comes, the overcomers in the church participate in the kingdom as the ruling authority in the kingdom ([[Revelation-02#v26|Rev. 2:26-27]]; [[Revelation-20#v4|20:4]], [[Revelation-20#v6|6]]).
+Zipporah, the Gentile wife of Moses secured by him during his period of rejection by Israel ([[Exodus-02#v13|2:13-22]]), typifies the Gentile church gained by Christ as His wife during the time of His rejection by the children of Israel ([[Romans-11#v11|Rom. 11:11-25]]; cf. [note 45²](<Genesis-41.fn#Footnote 45.2 — Asenath>) in [[Genesis-41|Gen. 41]]). When the kingdom comes, the overcomers in the church participate in the kingdom as the ruling authority in the kingdom ([[Revelation-02#v26|Rev. 2:26-27]]; [[Revelation-20#v4|20:4]], [[Revelation-20#v6|6]]).
 
 ## Footnotes for verse 3
 

@@ -1,6 +1,6 @@
 ## v1
 
-The vision of Obadiah. Thus says the Lord Jehovah concerning Edom, /  
+The vision of [[Obadiah-01.fn#Footnote 1.1 — Obadiah|Obadiah]]. Thus says the Lord Jehovah concerning [[Obadiah-01.fn#Footnote 1.2 — Edom|Edom]], /  
 We have heard a report from Jehovah, /  
 And an envoy has been sent among the nations: /  
 Arise, and let us rise up against it for battle.
@@ -41,7 +41,7 @@ How sought out his hidden treasures are!
 
 ## v7
 
-All the men of your confederacy /  
+All the men of your [[Obadiah-01.fn#Footnote 7.1 — confederacy|confederacy]] /  
 Have sent you away to the border; /  
 The men who were at peace with you /  
 Have deceived you; they have prevailed against you. /  
@@ -63,7 +63,7 @@ So that each one is cut off from the mountain of Esau by slaughter.
 
 ## v10
 
-Because of the violence against your brother Jacob, /  
+Because of the violence against your [[Obadiah-01.fn#Footnote 10.1 — brother|brother]] Jacob, /  
 Shame will cover you, and you will be cut off forever.
 
 ## v11
@@ -101,9 +101,9 @@ In the day of distress.
 
 ## v15
 
-For the day of Jehovah is near /  
+For the [[Obadiah-01.fn#Footnote 15.1 — day|day]] of Jehovah is near /  
 Upon all the nations: /  
-As you have done, it will be done to you; /  
+[[Obadiah-01.fn#Footnote 15.2 — As|As]] you have done, it will be done to you; /  
 Your recompense will return upon your head.
 
 ## v16
@@ -115,7 +115,7 @@ And they will be as though they had not been.
 
 ## v17
 
-But in Mount Zion /  
+[[Obadiah-01.fn#Footnote 17.1 — But|But]] in Mount Zion /  
 There will be those who have escaped, /  
 And it will be holy. /  
 And the house of Jacob will possess /  

@@ -1,14 +1,14 @@
 ## v1
 
-Now the word of Jehovah came to Jonah the son of Amittai, saying,
+Now the word of Jehovah came to [[Jonah-01.fn#Footnote 1.1 — Jonah|Jonah]] the son of Amittai, saying,
 
 ## v2
 
-Arise, go to Nineveh, the great city, and cry out against it, for their evil has come up before Me.
+Arise, go to [[Jonah-01.fn#Footnote 2.1 — Nineveh|Nineveh]], the great city, and cry out against it, for their evil has come up before Me.
 
 ## v3
 
-But Jonah rose up to flee to Tarshish from the presence of Jehovah, and he went down to Joppa and found a ship going to Tarshish. So he paid the fare for it and went down into it to go with them to Tarshish from the presence of Jehovah.
+But Jonah rose up to flee to [[Jonah-01.fn#Footnote 3.1 — Tarshish|Tarshish]] from the presence of Jehovah, and he went down to Joppa and found a ship going to Tarshish. So he paid the fare for it and went down into it to go with them to Tarshish from the presence of Jehovah.
 
 ## v4
 
@@ -64,4 +64,4 @@ And the men were greatly afraid of Jehovah, and they offered a sacrifice to Jeho
 
 ## v17
 
-And Jehovah prepared a great fish to swallow Jonah up, and Jonah was in the stomach of the fish for three days and three nights.
+And Jehovah prepared a great fish to swallow Jonah up, and Jonah was in the stomach of the fish for [[Jonah-01.fn#Footnote 17.1 — three|three]] days and three nights.

@@ -1,7 +1,7 @@
 ## v1
 
 When I would heal Israel,  
-Then the iniquity of Ephraim is discovered  
+Then the [[Hosea-07.fn#Footnote 1.1 — iniquity|iniquity]] of Ephraim is discovered  
 As well as the evil deeds of Samaria;  
 For they practice falsehood.  
 And the thief comes inside;  
@@ -38,13 +38,13 @@ For they have made their heart ready
 Like an oven while they lie in wait:  
 All night long  
 Their baker sleeps,  
-But in the morning the oven burns  
+But in the morning [[Hosea-07.fn#Footnote 6.1 — the|the]] oven burns  
 Like a flaming fire.
 
 ## v7
 
 All of them are hot like an oven,  
-And they devour their judges;  
+And they devour their [[Hosea-07.fn#Footnote 7.1 — judges|judges]];  
 All their kings fall;  
 There is no one among them who calls on Me.
 
@@ -53,7 +53,7 @@ There is no one among them who calls on Me.
 Ephraim — among the peoples  
 He mixes himself;  
 Ephraim is a cake  
-Not turned.
+[[Hosea-07.fn#Footnote 8.1 — Not|Not]] turned.
 
 ## v9
 
@@ -71,7 +71,7 @@ And they have not sought Him, because of all this.
 ## v11
 
 And Ephraim has become like a silly dove  
-Without understanding:  
+Without [[Hosea-07.fn#Footnote 11.1 — understanding|understanding]]:  
 They call to Egypt;  
 They go to Assyria.
 
@@ -104,7 +104,7 @@ They devise evil against Me.
 ## v16
 
 They return, but not to Him who is on high;  
-They are like a deceitful bow.  
+They are like a [[Hosea-07.fn#Footnote 16.1 — deceitful|deceitful]] bow.  
 Their princes will fall by the sword  
 Because of the rage of their tongue.  
 This will be their derision  

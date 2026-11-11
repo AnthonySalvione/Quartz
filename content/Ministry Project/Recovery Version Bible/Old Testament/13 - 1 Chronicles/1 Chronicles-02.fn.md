@@ -23,7 +23,7 @@ For the sons of Israel, see notes in [[Genesis-49|Gen. 49]].
 
 **Verse:** [[1 Chronicles-02#v3|1 Chronicles 2:3]]
 
-The tribe of Judah is the royal tribe ([[1 Chronicles-05#v2|5:2a]]), producing kings from David to Christ ([[Hebrews-07#v14|Heb. 7:14]]). Hence, the genealogy of Judah, among the twelve genealogies of the twelve tribes, is the only one that is counted in the genealogy of Christ as recorded in [[Matthew-01|Matthew 1]] and [[Luke-03|Luke 3]]. See notes 23 and 24 in [[Matthew-01|Matt. 1]].
+The tribe of Judah is the royal tribe ([[1 Chronicles-05#v2|5:2a]]), producing kings from David to Christ ([[Hebrews-07#v14|Heb. 7:14]]). Hence, the genealogy of Judah, among the twelve genealogies of the twelve tribes, is the only one that is counted in the genealogy of Christ as recorded in [[Matthew-01|Matthew 1]] and [[Luke-03|Luke 3]]. See notes [2³](<Matthew-01.fn#Footnote 2.3 — Judah>) and [2⁴](<Matthew-01.fn#Footnote 2.4 — brothers>) in [[Matthew-01|Matt. 1]].
 
 ### Footnote 3.2 — Bath-shua
 
@@ -37,7 +37,7 @@ Or, the daughter of Shua.
 
 **Verse:** [[1 Chronicles-02#v4|1 Chronicles 2:4]]
 
-See notes 3¹ and 3² in [[Matthew-01|Matt. 1]].
+See notes [3¹](<Matthew-01.fn#Footnote 3.1 — Pharez>) and [3²](<Matthew-01.fn#Footnote 3.2 — Tamar>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 7
 
@@ -53,7 +53,7 @@ Lit., sons. So also in the next verse.
 
 **Verse:** [[1 Chronicles-02#v11|1 Chronicles 2:11]]
 
-For [[1 Chronicles-02#v11|vv. 11-15]], see notes 5², 5⁴, 6¹, and 6² in [[Matthew-01|Matt. 1]].
+For [[1 Chronicles-02#v11|vv. 11-15]], see notes [5²](<Matthew-01.fn#Footnote 5.2 — Boaz>), [5⁴](<Matthew-01.fn#Footnote 5.4 — Jesse>), [6¹](<Matthew-01.fn#Footnote 6.1 — David>), and [6²](<Matthew-01.fn#Footnote 6.2 — king>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 31
 

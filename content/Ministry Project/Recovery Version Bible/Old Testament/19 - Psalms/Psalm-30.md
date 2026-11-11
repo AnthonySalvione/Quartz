@@ -1,3 +1,6 @@
+> *A Psalm; a Song for the Dedication of the House. Of David*
+
+---
 ## v1
 
 I extol You, O Jehovah, for You have drawn me up / And have not let my enemies rejoice over me.
@@ -8,11 +11,11 @@ O Jehovah my God, / I cried out to You, / And You healed me.
 
 ## v3
 
-O Jehovah, You have brought up my soul from Sheol; / You have preserved me alive that I would not go down into the pit.
+O Jehovah, You have brought up my soul from Sheol; / You have preserved me alive [[Psalm-30.fn#Footnote 3.1 — that|that]] I would not go down into the pit.
 
 ## v4
 
-Sing psalms to Jehovah, you who are His faithful ones; / And praise His holy memorial.
+Sing psalms to Jehovah, you who are His faithful ones; / And [[Psalm-30.fn#Footnote 4.1 — praise|praise]] His holy [[Psalm-30.fn#Footnote 4.2 — memorial|memorial]].
 
 ## v5
 
@@ -24,15 +27,15 @@ As for me, I said in my prosperity, / I will never be shaken.
 
 ## v7
 
-O Jehovah, by Your favor You had made my mountain stand strong. / You hid Your face; I was troubled.
+O Jehovah, by Your favor You had made my [[Psalm-30.fn#Footnote 7.1 — mountain|mountain]] stand strong. / You hid Your face; I was troubled.
 
 ## v8
 
-To You, O Jehovah, I called out; / And to Jehovah I made my supplication.
+To You, O Jehovah, I called out; / And to [[Psalm-30.fn#Footnote 8.1 — Jehovah|Jehovah]] I made my supplication.
 
 ## v9
 
-What profit is there in my blood if I go down into the pit? / Will the dust praise You? Will it declare Your faithfulness?
+What profit is there in my blood if I go down into the pit? / Will the dust praise You? Will it declare Your [[Psalm-30.fn#Footnote 9.1 — faithfulness|faithfulness]]?
 
 ## v10
 
@@ -44,4 +47,4 @@ You have turned for me my mourning into dancing; / You have loosened my sackclot
 
 ## v12
 
-That my glory might sing psalms to You and not be silent. / O Jehovah my God, I will praise You forever.
+That my [[Psalm-30.fn#Footnote 12.1 — glory|glory]] might sing psalms to You and not be silent. / O Jehovah my God, I will praise You forever.

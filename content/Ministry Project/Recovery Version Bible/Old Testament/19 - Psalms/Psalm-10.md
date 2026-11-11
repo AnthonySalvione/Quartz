@@ -1,6 +1,6 @@
 ## v1
 
-Why, O Jehovah, do You stand far off?  
+[[Psalm-10.fn#Footnote 1.1 — Why|Why]], O Jehovah, do You stand far off?  
 Why do You hide Yourself in times of distress?
 
 ## v2
@@ -28,7 +28,7 @@ As for all his adversaries, he snorts at them.
 ## v6
 
 He has said in his heart, I will not be shaken;  
-I will be in no trouble forever.
+I will be in no trouble [[Psalm-10.fn#Footnote 6.1 — forever|forever]].
 
 ## v7
 

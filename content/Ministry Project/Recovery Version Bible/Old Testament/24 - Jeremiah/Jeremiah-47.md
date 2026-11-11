@@ -1,11 +1,11 @@
 ## v1
 
-The word of Jehovah that came to Jeremiah the prophet concerning the Philistines before Pharaoh struck Gaza.
+The word of Jehovah that came to Jeremiah the prophet concerning the [[Jeremiah-47.fn#Footnote 1.1 — Philistines|Philistines]] before Pharaoh struck Gaza.
 
 ## v2
 
 Thus says Jehovah, /  
-See, waters are rising up from the north /  
+See, [[Jeremiah-47.fn#Footnote 2.1 — waters|waters]] are rising up from the north /  
 And will become an overflowing stream; /  
 And they will overflow the land and all that fills it, /  
 The city and those who dwell in it; /  
@@ -43,7 +43,7 @@ Rest and be still.
 
 ## v7
 
-How can it be quiet, /  
+How can [[Jeremiah-47.fn#Footnote 7.1 — it|it]] be quiet, /  
 When Jehovah has commanded it? /  
 Against Ashkelon and against the seacoast — /  
 There He has appointed it.

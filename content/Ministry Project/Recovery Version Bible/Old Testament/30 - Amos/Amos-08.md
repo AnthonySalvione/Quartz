@@ -1,6 +1,6 @@
 ## v1
 
-Thus the Lord Jehovah showed me, and there was a basket of summer fruit.
+Thus the Lord Jehovah showed me, and there was a basket of [[Amos-08.fn#Footnote 1.1 — summer|summer]] fruit.
 
 ## v2
 
@@ -45,7 +45,7 @@ I shall by no means forget any of their deeds forever.
 
 Will the land not quake because of this, /  
 And will all who dwell in it not mourn? /  
-Indeed all of it will rise up like the River, /  
+Indeed all of it will rise up like the [[Amos-08.fn#Footnote 8.1 — River|River]], /  
 And it will be driven and will sink like the river of Egypt.
 
 ## v9
@@ -71,7 +71,7 @@ Declares the Lord Jehovah, /
 When I will send a hunger into the land, /  
 Not a hunger for bread /  
 Nor a thirst for water, /  
-But for hearing the words of Jehovah.
+But for hearing the [[Amos-08.fn#Footnote 11.1 — words|words]] of Jehovah.
 
 ## v12
 

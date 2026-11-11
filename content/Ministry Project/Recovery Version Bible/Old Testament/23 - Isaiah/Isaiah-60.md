@@ -1,7 +1,7 @@
 ## v1
 
-Arise! Shine! For your light has come, /  
-And the glory of Jehovah has risen upon you.
+Arise! Shine! For your [[Isaiah-60.fn#Footnote 1.1 — light|light]] has come, /  
+And the [[Isaiah-60.fn#Footnote 1.1 — light|glory]] of Jehovah has risen upon you.
 
 ## v2
 
@@ -13,7 +13,7 @@ And His glory will be seen upon you.
 ## v3
 
 And nations will come to your light, /  
-And kings to the brightness of your rising.
+And kings to the brightness of your [[Isaiah-60.fn#Footnote 3.1 — rising|rising]].
 
 ## v4
 
@@ -79,7 +79,7 @@ And the nations will be utterly wasted.
 
 ## v13
 
-The glory of Lebanon will come to you, /  
+The [[Isaiah-60.fn#Footnote 13.1 — glory|glory]] of Lebanon will come to you, /  
 The fir tree, the pine tree, and the box tree together, /  
 To beautify the place of My sanctuary; /  
 And I will make the place for My feet glorious.
@@ -127,8 +127,8 @@ And your gates Praise.
 
 You will no longer have the sun for your light by day, /  
 Nor for brightness will the moon give you light; /  
-But Jehovah will be an eternal light to you, /  
-And your God your beauty.
+But Jehovah will be an eternal [[Isaiah-60.fn#Footnote 19.1 — light|light]] to you, /  
+And your God your [[Isaiah-60.fn#Footnote 19.2 — beauty|beauty]].
 
 ## v20
 
@@ -143,7 +143,7 @@ Then all your people will be righteous; /
 They will possess the land forever, /  
 The branch of My planting, /  
 The work of My hands, /  
-That I may be beautified.
+That I may be [[Isaiah-60.fn#Footnote 21.1 — beautified|beautified]].
 
 ## v22
 

@@ -23,7 +23,7 @@ The Ten Commandments are the basic law ([[Deuteronomy-05#v6|5:6-21]]). The statu
 
 **Verse:** [[Deuteronomy-04#v7|Deuteronomy 4:7]]
 
-See note 21¹ in [[Acts-02|Acts 2]].
+See [note 21¹](<Acts-02.fn#Footnote 21.1 — calls>) in [[Acts-02|Acts 2]].
 
 ## Footnotes for verse 13
 
@@ -31,7 +31,7 @@ See note 21¹ in [[Acts-02|Acts 2]].
 
 **Verse:** [[Deuteronomy-04#v13|Deuteronomy 4:13]]
 
-Lit., words. See note 11, par. 1, in [[Exodus-20|Exo. 20]].
+Lit., words. See [note 1¹](<Exodus-20.fn#Footnote 1.1 — words>), par. 1, in [[Exodus-20|Exo. 20]].
 
 ## Footnotes for verse 25
 

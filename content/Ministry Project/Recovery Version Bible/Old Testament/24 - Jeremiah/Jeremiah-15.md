@@ -28,7 +28,7 @@ To devour and destroy.
 
 And I will make them a horror  
 Among all the kingdoms of the earth,  
-Because of Manasseh the son of Hezekiah,  
+Because of [[Jeremiah-15.fn#Footnote 4.1 — Manasseh|Manasseh]] the son of Hezekiah,  
 The king of Judah,  
 For that which he did in Jerusalem.
 
@@ -46,7 +46,7 @@ Declares Jehovah.
 You keep going backward,  
 And I have stretched out My hand against you  
 And have destroyed you;  
-I have become weary of repenting.
+I have become [[Jeremiah-15.fn#Footnote 6.1 — weary|weary]] of repenting.
 
 ## v7
 
@@ -78,7 +78,7 @@ Declares Jehovah.
 
 ## v10
 
-Woe is me, my mother, because you bore me,  
+[[Jeremiah-15.fn#Footnote 10.1 — Woe|Woe]] is me, my mother, because you bore me,  
 A man of strife and a man of contention to the whole land.  
 I have not lent with interest,  
 Nor have they lent to me;  
@@ -94,12 +94,12 @@ And in a time of distress.
 
 ## v12
 
-Can one break iron,  
+Can one break [[Jeremiah-15.fn#Footnote 12.1 — iron|iron]],  
 Iron from the north, or bronze?
 
 ## v13
 
-Your wealth and your treasures  
+[[Jeremiah-15.fn#Footnote 13.1 — Your|Your]] wealth and your treasures  
 I will give as plunder without price,  
 And that for all your sins,  
 And within all your borders.
@@ -115,14 +115,14 @@ Which will burn against you.
 
 O Jehovah, You know;  
 Remember me and visit me,  
-And avenge me of my persecutors.  
+And [[Jeremiah-15.fn#Footnote 15.1 — avenge|avenge]] me of my persecutors.  
 Do not let Your long-suffering for them prevail  
 And have me taken away;  
 Know that for Your sake I bear reproach.
 
 ## v16
 
-Your words were found and I ate them,  
+Your words were found and I [[Jeremiah-15.fn#Footnote 16.1 — ate|ate]] them,  
 And Your word became to me  
 The gladness and joy of my heart,  
 For I am called by Your name,  
@@ -144,9 +144,9 @@ Like waters that fail?
 ## v19
 
 Therefore thus says Jehovah,  
-If you return, I will restore you;  
+If [[Jeremiah-15.fn#Footnote 19.1 — you|you]] return, I will restore you;  
 You will stand before Me;  
-And if you bring out the precious from the worthless,  
+And if you [[Jeremiah-15.fn#Footnote 19.2 — bring|bring]] out the precious from the worthless,  
 You will be as My mouth;  
 They will turn to you,  
 But you will not turn to them.
@@ -154,7 +154,7 @@ But you will not turn to them.
 ## v20
 
 And I will make you to this people  
-A fortified wall of bronze;  
+A [[Jeremiah-15.fn#Footnote 20.1 — fortified|fortified]] wall of bronze;  
 And they will fight against you,  
 But they will not prevail against you;  
 For I am with you  

@@ -1,7 +1,7 @@
 ## v1
 
-Hallelujah!  
-Blessed is the man who fears Jehovah,  
+[[Psalm-112.fn#Footnote 1.1 — Hallelujah|Hallelujah]]!  
+[[Psalm-112.fn#Footnote 1.2 — Blessed|Blessed]] is the man who fears Jehovah,  
 Who delights greatly in His commandments.
 
 ## v2

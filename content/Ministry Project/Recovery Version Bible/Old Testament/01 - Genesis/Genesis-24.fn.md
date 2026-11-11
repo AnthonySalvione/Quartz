@@ -31,7 +31,7 @@ In this account of the marriage of Isaac, Abraham typifies God the Father, the s
 
 **Verse:** [[Genesis-24#v3|Genesis 24:3]]
 
-There is no record that God told Abraham not to take a wife for his son from among the Canaanite women (cf. [[Deuteronomy-07#v1|Deut. 7:1-4]]). Because Abraham lived in oneness with God ([[Genesis-24#v40|v. 40a]]), he knew God’s will and mind and acted in accordance with God’s inner feeling (cf. [[1 Corinthians-07#v25|1 Cor. 7:25]] and note; [[2 Corinthians-02#v10|2 Cor. 2:10]] and note 3; [[Philippians-01#v8|Phil. 1:8]] and note).
+There is no record that God told Abraham not to take a wife for his son from among the Canaanite women (cf. [[Deuteronomy-07#v1|Deut. 7:1-4]]). Because Abraham lived in oneness with God ([[Genesis-24#v40|v. 40a]]), he knew God’s will and mind and acted in accordance with God’s inner feeling (cf. [[1 Corinthians-07#v25|1 Cor. 7:25]] and [note](<1 Corinthians-07.fn#Footnote 25.1 — commandment>); [[2 Corinthians-02#v10|2 Cor. 2:10]] and [note 3](<2 Corinthians-02.fn#Footnote 10.3 — person>); [[Philippians-01#v8|Phil. 1:8]] and [note](<Philippians-01.fn#Footnote 8.1 — inward>)).
 
 ## Footnotes for verse 4
 
@@ -79,7 +79,7 @@ Rebekah was chaste, kind, and diligent. She was also absolute in her decision to
 
 **Verse:** [[Genesis-24#v22|Genesis 24:22]]
 
-These gifts, sent from Isaac and given by the servant of Abraham, the father, signify the riches of Christ given by the Spirit of God to the bride for the accomplishing of God’s purpose. These gifts relate to the function of the believers. Gold signifies the divine nature, and a ring signifies the initial gift of the Spirit ([[Acts-02#v38|Acts 2:38]]), which is the Spirit Himself as a seal and a pledge, a foretaste of God as our eternal portion ([[Ephesians-01#v13|Eph. 1:13-14]]; cf. [[Luke-15#v22|Luke 15:22]]). The function of the nose is to smell. The putting of the nose-ring upon Rebekah’s nose ([[Genesis-24#v47|v. 47]]) signifies, spiritually, that her “smelling” function had been caught by the divine nature (cf. [[2 Corinthians-02#v14|2 Cor. 2:14-16]]; [[Hebrews-06#v4|Heb. 6:4-6]]; [[1 Peter-02#v2|1 Pet. 2:2-3]]; [[2 Peter-01#v4|2 Pet. 1:4]]). Hands are for working (see note 83 in [[1 Timothy-02|1 Tim. 2]]). The putting of the bracelets on Rebekah’s hands signifies the receiving of the divine function for the service in the Body of Christ ([[Romans-12#v4|Rom. 12:4]]).
+These gifts, sent from Isaac and given by the servant of Abraham, the father, signify the riches of Christ given by the Spirit of God to the bride for the accomplishing of God’s purpose. These gifts relate to the function of the believers. Gold signifies the divine nature, and a ring signifies the initial gift of the Spirit ([[Acts-02#v38|Acts 2:38]]), which is the Spirit Himself as a seal and a pledge, a foretaste of God as our eternal portion ([[Ephesians-01#v13|Eph. 1:13-14]]; cf. [[Luke-15#v22|Luke 15:22]]). The function of the nose is to smell. The putting of the nose-ring upon Rebekah’s nose ([[Genesis-24#v47|v. 47]]) signifies, spiritually, that her “smelling” function had been caught by the divine nature (cf. [[2 Corinthians-02#v14|2 Cor. 2:14-16]]; [[Hebrews-06#v4|Heb. 6:4-6]]; [[1 Peter-02#v2|1 Pet. 2:2-3]]; [[2 Peter-01#v4|2 Pet. 1:4]]). Hands are for working (see [note 8³](<1 Timothy-02.fn#Footnote 8.3 — hands>) in [[1 Timothy-02|1 Tim. 2]]). The putting of the bracelets on Rebekah’s hands signifies the receiving of the divine function for the service in the Body of Christ ([[Romans-12#v4|Rom. 12:4]]).
 
 ### Footnote 22.2 — half
 

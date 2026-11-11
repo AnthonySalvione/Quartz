@@ -2,7 +2,7 @@
 
 Listen to Me, you who pursue righteousness, /  
 Who seek after Jehovah, /  
-Look to the rock from which you were hewn, /  
+Look to the [[Isaiah-51.fn#Footnote 1.1 — rock|rock]] from which you were hewn, /  
 And to the excavation of the quarry from which you were dug.
 
 ## v2
@@ -62,7 +62,7 @@ And My salvation from generation to generation.
 ## v9
 
 Awake, awake! Put on strength, /  
-O arm of Jehovah; /  
+O [[Isaiah-51.fn#Footnote 9.1 — arm|arm]] of Jehovah; /  
 Awake as in the days of old, /  
 As in the generations of past ages. /  
 Was it not You who cut Rahab in pieces, /  
@@ -77,7 +77,7 @@ For the redeemed to pass through?
 
 ## v11
 
-Therefore the ransomed of Jehovah will return /  
+Therefore the [[Isaiah-51.fn#Footnote 11.1 — ransomed|ransomed]] of Jehovah will return /  
 And will come to Zion with a ringing shout, /  
 And eternal joy will be upon their heads. /  
 They will lay hold on gladness and joy, /  
@@ -115,7 +115,7 @@ Jehovah of hosts is His name.
 
 And I have put My words in your mouth, /  
 And I have covered you in the shadow of My hand, /  
-To plant the heavens and lay the foundations of the earth, /  
+To [[Isaiah-51.fn#Footnote 16.1 — plant|plant]] the heavens and lay the foundations of the earth, /  
 And to say to Zion, You are My people.
 
 ## v17

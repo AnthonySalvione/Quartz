@@ -1,6 +1,9 @@
+> *Of David. A Psalm*
+
+---
 ## v1
 
-I will sing of lovingkindness and justice;  
+[[Psalm-101.fn#Footnote 1.1 — I|I]] will sing of [[Psalm-101.fn#Footnote 1.2 — lovingkindness|lovingkindness]] and justice;  
 To You, O Jehovah, I will sing psalms.
 
 ## v2

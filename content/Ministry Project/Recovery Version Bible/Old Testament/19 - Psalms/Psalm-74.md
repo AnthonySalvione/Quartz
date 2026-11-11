@@ -1,13 +1,18 @@
+> *A Maschil of Asaph*
+
+> [!light] Note on Maschil:
+> See note on the superscription of [[Psalm-32|Psa. 32]].
+---
 ## v1
 
-Why, O God, have You cast us off forever?  
+[[Psalm-74.fn#Footnote 1.1 — Why|Why]], O God, have You cast us off forever?  
 Why does Your anger smoke against the sheep of Your pasture?
 
 ## v2
 
-Remember Your assembly, which You have purchased of old,  
+Remember Your [[Psalm-74.fn#Footnote 2.1 — assembly|assembly]], which You have purchased of old,  
 Which You have redeemed as the tribe of Your inheritance,  
-And Mount Zion, where You dwell.
+And Mount [[Psalm-74.fn#Footnote 2.1 — assembly|Zion]], where You dwell.
 
 ## v3
 
@@ -56,7 +61,7 @@ Bring it forth from the midst of Your bosom; destroy them.
 
 ## v12
 
-But God is my King of old,  
+[[Psalm-74.fn#Footnote 12.1 — But|But]] God is my King of old,  
 Accomplishing salvation in the midst of the earth.
 
 ## v13
@@ -66,7 +71,7 @@ You broke the heads of the sea serpents on the waters.
 
 ## v14
 
-You crushed the heads of the leviathan;  
+You crushed the heads of the [[Psalm-74.fn#Footnote 14.1 — leviathan|leviathan]];  
 You gave him as food to the creatures of the desert.
 
 ## v15

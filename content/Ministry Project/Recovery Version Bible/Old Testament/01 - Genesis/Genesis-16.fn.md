@@ -15,7 +15,7 @@ chapter_num: 16
 
 **Verse:** [[Genesis-16#v1|Genesis 16:1]]
 
-Sarah and Hagar are an allegory symbolizing two covenants ([[Galatians-04#v22|Gal. 4:22-28]] and notes 242 and 245).
+Sarah and Hagar are an allegory symbolizing two covenants ([[Galatians-04#v22|Gal. 4:22-28]] and notes [[Galatians-04.fn#Footnote 24.2 — two|24²]] and [[Galatians-04.fn#Footnote 24.5 — Hagar|24⁵]]).
 
 ## Footnotes for verse 2
 
@@ -31,7 +31,7 @@ Lit., be built up.
 
 **Verse:** [[Genesis-16#v7|Genesis 16:7]]
 
-The Angel of Jehovah is Jehovah Himself ([[Genesis-16#v13|v. 13]]; [[Genesis-22#v11|22:11-12]], [[Genesis-22#v15|15-16]]; [[Genesis-31#v11|31:11]], [[Genesis-31#v13|13]]). See notes 21 in [[Exodus-03|Exo. 3]], 212 and 221 in [[Exodus-23|Exo. 23]], and 82 in [[Zechariah-02|Zech. 2]].
+The Angel of Jehovah is Jehovah Himself ([[Genesis-16#v13|v. 13]]; [[Genesis-22#v11|22:11-12]], [[Genesis-22#v15|15-16]]; [[Genesis-31#v11|31:11]], [[Genesis-31#v13|13]]). See notes [2¹](<Exodus-03.fn#Footnote 2.1 — Angel>) in [[Exodus-03|Exo. 3]], [21²](<Exodus-23.fn#Footnote 21.2 — name>) and [22¹](<Exodus-23.fn#Footnote 22.1 — His>) in [[Exodus-23|Exo. 23]], and [8²](<Zechariah-02.fn#Footnote 8.2 — He>) in [[Zechariah-02|Zech. 2]].
 
 ## Footnotes for verse 11
 
@@ -75,4 +75,4 @@ Meaning well of the living One who sees me, or well of the One who reveals Himse
 
 **Verse:** [[Genesis-16#v15|Genesis 16:15]]
 
-Abraham’s producing of Ishmael through Hagar symbolizes man’s attempt to fulfill God’s purpose by the effort of the flesh in coordination with the law (see notes 162 in [[Galatians-02|Gal. 2]] and 231 in [[Galatians-04|Gal. 4]]).
+Abraham’s producing of Ishmael through Hagar symbolizes man’s attempt to fulfill God’s purpose by the effort of the flesh in coordination with the law (see notes [16²](<Galatians-02.fn#Footnote 16.2 — flesh>) in [[Galatians-02|Gal. 2]] and [23¹](<Galatians-04.fn#Footnote 23.1 — according>) in [[Galatians-04|Gal. 4]]).

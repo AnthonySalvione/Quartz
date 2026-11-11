@@ -12,7 +12,7 @@ And they committed fornication in Egypt; in their youth they committed fornicati
 
 ## v4
 
-And their names were Oholah, the older one, and Oholibah, her sister; and they became Mine, and they bore sons and daughters. And as for their names, Samaria is Oholah, and Jerusalem is Oholibah.
+And their names were [[Ezekiel-23.fn#Footnote 4.1 — Oholah|Oholah]], the older one, and [[Ezekiel-23.fn#Footnote 4.2 — Oholibah|Oholibah]], her sister; and they became Mine, and they bore sons and daughters. And as for their names, [[Ezekiel-23.fn#Footnote 4.3 — Samaria|Samaria]] is Oholah, and [[Ezekiel-23.fn#Footnote 4.3 — Samaria|Jerusalem]] is Oholibah.
 
 ## v5
 
@@ -40,7 +40,7 @@ They uncovered her nakedness; they took her sons and daughters, and they slew he
 
 ## v11
 
-And her sister Oholibah saw this, but she was more corrupt in her lust than she and more corrupt in her fornication than the fornication of her sister.
+And her sister Oholibah [[Ezekiel-23.fn#Footnote 11.1 — saw|saw]] this, but she was more corrupt in her lust than she and more corrupt in her fornication than the fornication of her sister.
 
 ## v12
 
@@ -153,7 +153,7 @@ And Jehovah said to me, Son of man, will you judge Oholah and Oholibah? Then dec
 
 ## v37
 
-For they have committed adultery, and blood is on their hands; indeed they have committed adultery with their idols and have also caused their children, whom they bore unto Me, to pass through fire to their idols, to be devoured.
+For they have committed adultery, and blood is on their hands; indeed they have committed adultery with their idols and have also caused their children, whom they bore unto Me, to pass through fire to [[Ezekiel-23.fn#Footnote 37.1 — their|their]] idols, to be devoured.
 
 ## v38
 

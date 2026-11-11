@@ -130,7 +130,7 @@ And drives the threshing wheel over them.
 
 ## v27
 
-The spirit of man is the lamp of Jehovah,  
+The [[Proverbs-20.fn#Footnote 27.1 — spirit|spirit]] of man is the [[Proverbs-20.fn#Footnote 27.2 — lamp|lamp]] of Jehovah,  
 Searching all the innermost parts of the inner being.
 
 ## v28

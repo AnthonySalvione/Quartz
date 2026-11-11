@@ -1,6 +1,9 @@
+> *Of David*
+
+---
 ## v1
 
-Judge me, O Jehovah; / For I have walked in my integrity, / And in Jehovah I have trusted; / I will not waver.
+Judge me, O Jehovah; / For I have walked in my [[Psalm-26.fn#Footnote 1.1 — integrity|integrity]], / And in Jehovah I have trusted; / I will not waver.
 
 ## v2
 
@@ -28,7 +31,7 @@ Making myself heard with the voice of thanksgiving / And telling out all Your wo
 
 ## v8
 
-O Jehovah, I love the habitation of Your house, / And the place where Your glory abides.
+O Jehovah, I love the habitation of Your house, / And the place where Your glory [[Psalm-26.fn#Footnote 8.1 — abides|abides]].
 
 ## v9
 

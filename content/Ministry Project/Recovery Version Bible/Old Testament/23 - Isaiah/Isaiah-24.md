@@ -93,7 +93,7 @@ In the coastlands of the sea.
 ## v16
 
 From the ends of the earth we hear songs:  
-Glory to the righteous One!  
+[[Isaiah-24.fn#Footnote 16.1 — Glory|Glory]] to the righteous One!  
 But I say,  
 Leanness to me! Leanness to me!  
 Woe to me!  
@@ -130,7 +130,7 @@ It will fall and will not rise again.
 ## v21
 
 And in that day Jehovah will punish  
-On high the host on high,  
+On high the [[Isaiah-24.fn#Footnote 21.1 — host|host]] on high,  
 And the kings of the earth on the earth.
 
 ## v22

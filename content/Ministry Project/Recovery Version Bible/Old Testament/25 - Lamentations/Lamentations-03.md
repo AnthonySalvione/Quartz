@@ -1,6 +1,6 @@
 ## v1
 
-I am the man who has seen affliction /  
+[[Lamentations-03.fn#Footnote 1.1 — I|I]] am the man who has seen affliction /  
 By the rod of His wrath.
 
 ## v2
@@ -90,7 +90,7 @@ As well as my hope in Jehovah.
 
 ## v19
 
-Remember my affliction and my wandering, /  
+Remember my affliction and my [[Lamentations-03.fn#Footnote 19.1 — wandering|wandering]], /  
 The wormwood and the gall.
 
 ## v20
@@ -105,22 +105,22 @@ Therefore I have hope.
 
 ## v22
 
-It is Jehovah’s lovingkindness that we are not consumed, /  
+It is Jehovah’s lovingkindness that we are not [[Lamentations-03.fn#Footnote 22.1 — consumed|consumed]], /  
 For His compassions do not fail;
 
 ## v23
 
-They are new every morning; /  
-Great is Your faithfulness.
+They are new [[Lamentations-03.fn#Footnote 23.1 — every|every]] morning; /  
+Great is Your [[Lamentations-03.fn#Footnote 23.2 — faithfulness|faithfulness]].
 
 ## v24
 
-Jehovah is my portion, says my soul; /  
+Jehovah is my [[Lamentations-03.fn#Footnote 24.1 — portion|portion]], says my soul; /  
 Therefore I hope in Him.
 
 ## v25
 
-Jehovah is good to those who wait on Him, /  
+Jehovah is good to those who [[Lamentations-03.fn#Footnote 25.1 — wait|wait]] on Him, /  
 To the soul that seeks Him.
 
 ## v26
@@ -270,7 +270,7 @@ I said, I have been cut off.
 
 ## v55
 
-I called upon Your name, O Jehovah, /  
+I [[Lamentations-03.fn#Footnote 55.1 — called|called]] upon Your name, O Jehovah, /  
 From the lowest pit.
 
 ## v56

@@ -45,7 +45,7 @@ For God to proclaim His name means that He assumed His position by declaring who
 
 **Verse:** [[Exodus-34#v10|Exodus 34:10]]
 
-God’s wonderful doings were for the goal of bringing His people into the good land for the building up of the temple as God’s testimony and His dwelling place on earth. Likewise, God performs wonders for us with the intention of bringing us into Christ, the reality of the good land (see note 71 in [[Deuteronomy-08|Deut. 8]]), for the building up of the church as God’s testimony and God’s temple ([[Revelation-01#v2|Rev. 1:2]]; [[1 Corinthians-03#v16|1 Cor. 3:16]]).
+God’s wonderful doings were for the goal of bringing His people into the good land for the building up of the temple as God’s testimony and His dwelling place on earth. Likewise, God performs wonders for us with the intention of bringing us into Christ, the reality of the good land (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]), for the building up of the church as God’s testimony and God’s temple ([[Revelation-01#v2|Rev. 1:2]]; [[1 Corinthians-03#v16|1 Cor. 3:16]]).
 
 ## Footnotes for verse 13
 
@@ -69,7 +69,7 @@ Images of a female deity.
 
 **Verse:** [[Exodus-34#v18|Exodus 34:18]]
 
-It was not God’s intention that His people would endeavor in their own strength to keep the Ten Commandments. Rather, His intention was to command His people to enjoy Him—to feast with Him and rest with Him. This is contrary to our natural desire to always want to do something for God (cf. [[Luke-15#v18|Luke 15:18-32]] and note 192). The keeping of God’s commandments must be secondary; it must be the issue of feasting with the Lord and resting with Him (see note 171, par. 1, in [[Genesis-02|Gen. 2]]). 
+It was not God’s intention that His people would endeavor in their own strength to keep the Ten Commandments. Rather, His intention was to command His people to enjoy Him—to feast with Him and rest with Him. This is contrary to our natural desire to always want to do something for God (cf. [[Luke-15#v18|Luke 15:18-32]] and [[Luke-15.fn#Footnote 19.2 — hired|note 19²]]). The keeping of God’s commandments must be secondary; it must be the issue of feasting with the Lord and resting with Him (see [note 17¹](<Genesis-02.fn#Footnote 17.1 — not>), par. 1, in [[Genesis-02|Gen. 2]]). 
 
 For the significance of the three annual feasts mentioned in [[Exodus-34#v18|vv. 18]] and [[Exodus-34#v22|22-23]], see notes on [[Exodus-23#v14|23:14-16]] and on [[Leviticus-23|Lev. 23]].
 
@@ -79,7 +79,7 @@ For the significance of the three annual feasts mentioned in [[Exodus-34#v18|vv.
 
 **Verse:** [[Exodus-34#v20|Exodus 34:20]]
 
-See note 13¹ in [[Exodus-13|Exodus 13]].
+See [note 13¹](<Exodus-13.fn#Footnote 13.1 — first>) in [[Exodus-13|Exodus 13]].
 
 ## Footnotes for verse 21
 
@@ -109,7 +109,7 @@ This verse gives the reason that God’s people need to feast with Him and rest 
 
 **Verse:** [[Exodus-34#v24|Exodus 34:24]]
 
-The driving out of the nations signifies the demolishing of the things that preoccupy and usurp us (see note 231 in [[Exodus-23|Exodus 23]]); the enlarging of the borders of the good land signifies the enlarging of our capacity to enjoy Christ ([[1 Chronicles-04#v10|1 Chron. 4:10]] and note); and the keeping away of the coveting enemies signifies the guarding of the enjoyment of Christ.
+The driving out of the nations signifies the demolishing of the things that preoccupy and usurp us (see [note 23¹](<Exodus-23.fn#Footnote 23.1 — Amorites>) in [[Exodus-23|Exodus 23]]); the enlarging of the borders of the good land signifies the enlarging of our capacity to enjoy Christ ([[1 Chronicles-04#v10|1 Chron. 4:10]] and [note](<1 Chronicles-04.fn#Footnote 10.1 — enlarge>)); and the keeping away of the coveting enemies signifies the guarding of the enjoyment of Christ.
 
 ## Footnotes for verse 25
 
@@ -117,13 +117,13 @@ The driving out of the nations signifies the demolishing of the things that preo
 
 **Verse:** [[Exodus-34#v25|Exodus 34:25]]
 
-See note 18¹ in [[Exodus-23|Exodus 23]].
+See [note 18¹](<Exodus-23.fn#Footnote 18.1 — blood>) in [[Exodus-23|Exodus 23]].
 
 ### Footnote 25.2 — morning
 
 **Verse:** [[Exodus-34#v25|Exodus 34:25]]
 
-This signifies that we should enjoy the riches of Christ to the fullest extent in this age and not postpone this enjoyment until the next age (morning—cf. [[2 Peter-01#v19|2 Pet. 1:19]]). Cf. note 342 in [[Exodus-29|Exodus 29]].
+This signifies that we should enjoy the riches of Christ to the fullest extent in this age and not postpone this enjoyment until the next age (morning—cf. [[2 Peter-01#v19|2 Pet. 1:19]]). Cf. [note 34²](<Exodus-29.fn#Footnote 34.2 — morning>) in [[Exodus-29|Exodus 29]].
 
 ## Footnotes for verse 26
 
@@ -131,13 +131,13 @@ This signifies that we should enjoy the riches of Christ to the fullest extent i
 
 **Verse:** [[Exodus-34#v26|Exodus 34:26]]
 
-See note 19¹ in [[Exodus-23|Exodus 23]].
+See [note 19¹](<Exodus-23.fn#Footnote 19.1 — first>) in [[Exodus-23|Exodus 23]].
 
 ### Footnote 26.2 — boil
 
 **Verse:** [[Exodus-34#v26|Exodus 34:26]]
 
-See note 19² in [[Exodus-23|Exodus 23]].
+See [note 19²](<Exodus-23.fn#Footnote 19.2 — boil>) in [[Exodus-23|Exodus 23]].
 
 ## Footnotes for verse 27
 
@@ -145,7 +145,7 @@ See note 19² in [[Exodus-23|Exodus 23]].
 
 **Verse:** [[Exodus-34#v27|Exodus 34:27]]
 
-Lit., mouth. God’s speaking in this chapter is a repetition of what He spoke in [[Exodus-20|Exodus 20—23]]. The focus of this repeated speaking is not on the keeping of the Ten Commandments and the ordinances of the law but on the enjoyment of God through the enjoyment of the riches of the good land and the repeated feasting and resting with Him. This matches the focus of the New Testament teaching, which is concerned primarily with the enjoyment of Christ ([[1 Corinthians-01#v9|1 Cor. 1:9]]; [[1 Corinthians-05#v8|5:8]]). It was not God’s intention merely to have a people to keep His commandments and ordinances. God’s intention was to dispense Himself into His chosen people so that they would be fully infused with Him in order to express Him (see note 291).
+Lit., mouth. God’s speaking in this chapter is a repetition of what He spoke in [[Exodus-20|Exodus 20—23]]. The focus of this repeated speaking is not on the keeping of the Ten Commandments and the ordinances of the law but on the enjoyment of God through the enjoyment of the riches of the good land and the repeated feasting and resting with Him. This matches the focus of the New Testament teaching, which is concerned primarily with the enjoyment of Christ ([[1 Corinthians-01#v9|1 Cor. 1:9]]; [[1 Corinthians-05#v8|5:8]]). It was not God’s intention merely to have a people to keep His commandments and ordinances. God’s intention was to dispense Himself into His chosen people so that they would be fully infused with Him in order to express Him (see [note 29¹](<Exodus-34.fn#Footnote 29.1 — His>)).
 
 ## Footnotes for verse 28
 
@@ -169,7 +169,7 @@ Or, his (Moses’) speaking with Him (Jehovah); cf. [[Numbers-07#v89|Num. 7:89]]
 
 **Verse:** [[Exodus-34#v33|Exodus 34:33]]
 
-See [[2 Corinthians-03#v13|2 Cor. 3:13]] and note.
+See [[2 Corinthians-03#v13|2 Cor. 3:13]] and [note](<2 Corinthians-03.fn#Footnote 13.1 — at>).
 
 ## Footnotes for verse 34
 
@@ -177,4 +177,4 @@ See [[2 Corinthians-03#v13|2 Cor. 3:13]] and note.
 
 **Verse:** [[Exodus-34#v34|Exodus 34:34]]
 
-Cf. [[2 Corinthians-03#v18|2 Cor. 3:18]] and notes 3-6.
+Cf. [[2 Corinthians-03#v18|2 Cor. 3:18]] and notes [[2 Corinthians-03.fn#Footnote 18.3 — unveiled|3]]-[[2 Corinthians-03.fn#Footnote 18.6 — glory|6]].

@@ -1,16 +1,19 @@
+> *To the choir director: on the stringed instruments. A Psalm of Asaph; a Song*
+
+---
 ## v1
 
-God is known in Judah;  
+[[Psalm-76.fn#Footnote 1.1 — God|God]] is known in Judah;  
 His name is great in Israel.
 
 ## v2
 
-And in Salem is His tabernacle,  
-And His dwelling place, in Zion.
+And in [[Psalm-76.fn#Footnote 2.1 — Salem|Salem]] is His tabernacle,  
+And His dwelling place, in [[Psalm-76.fn#Footnote 2.2 — Zion|Zion]].
 
 ## v3
 
-There He broke the flashing arrows of the bow,  
+[[Psalm-76.fn#Footnote 3.1 — There|There]] He broke the flashing arrows of the bow,  
 The shield and the sword and the battle. Selah
 
 ## v4

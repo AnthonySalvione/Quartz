@@ -1,3 +1,6 @@
+> *To the choir director, to Jeduthun. A Psalm of David*
+
+---
 ## v1
 
 My soul waits in silence for God alone;  

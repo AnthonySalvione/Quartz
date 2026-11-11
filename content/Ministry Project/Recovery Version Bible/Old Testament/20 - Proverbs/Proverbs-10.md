@@ -27,7 +27,7 @@ But he who sleeps at harvest time is a son who brings shame.
 ## v6
 
 Blessings are upon the head of the righteous man,  
-But the mouth of the wicked conceals violence.
+[[Proverbs-10.fn#Footnote 6.1 — But|But]] the mouth of the wicked conceals violence.
 
 ## v7
 

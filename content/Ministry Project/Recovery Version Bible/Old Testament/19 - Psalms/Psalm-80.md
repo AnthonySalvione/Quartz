@@ -1,3 +1,8 @@
+> *To the choir director: according to shoshannim-eduth. Of Asaph. A Psalm*
+
+> [!light] Note on shoshannim-eduth:
+> Meaning lilies, a testimony; it may refer to a melody common at the time.
+---
 ## v1
 
 O Shepherd of Israel, give ear,  
@@ -38,7 +43,7 @@ And cause Your face to shine, and we will be saved.
 
 ## v8
 
-You brought a vine out of Egypt;  
+You brought a [[Psalm-80.fn#Footnote 8.1 — vine|vine]] out of Egypt;  
 You drove out nations and planted it;
 
 ## v9
@@ -54,7 +59,7 @@ And its boughs were like the cedars of God.
 ## v11
 
 It put forth its branches unto the sea,  
-And its shoots unto the River.
+And its shoots unto the [[Psalm-80.fn#Footnote 11.1 — River|River]].
 
 ## v12
 
@@ -70,12 +75,12 @@ And that which moves through the field feeds on it.
 
 O God of hosts, turn, we beseech You;  
 Look down from heaven and see,  
-And visit this vine,
+And [[Psalm-80.fn#Footnote 14.1 — visit|visit]] this vine,
 
 ## v15
 
 Even the stock which Your right hand has planted  
-And the son whom You have strengthened for Yourself.
+And the [[Psalm-80.fn#Footnote 15.1 — son|son]] whom You have strengthened for Yourself.
 
 ## v16
 
@@ -84,13 +89,13 @@ They perish at the rebuke of Your countenance.
 
 ## v17
 
-Let Your hand be upon the man of Your right hand,  
+Let Your hand be upon the [[Psalm-80.fn#Footnote 17.1 — man|man]] of Your right hand,  
 Upon the son of man whom You have strengthened for Yourself;
 
 ## v18
 
 Then we will not turn back from You.  
-Revive us, and we will call upon Your name.
+Revive us, and we will [[Psalm-80.fn#Footnote 18.1 — call|call]] upon Your name.
 
 ## v19
 

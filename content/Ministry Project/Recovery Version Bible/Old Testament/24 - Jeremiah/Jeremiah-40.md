@@ -52,7 +52,7 @@ And Johanan the son of Kareah and all the captains of the forces who were in the
 
 ## v14
 
-And they said to him, Are you at all aware that Baalis the king of the children of Ammon has sent Ishmael the son of Nethaniah to take your life? But Gedaliah the son of Ahikam would not believe them.
+And they said to him, Are you at all aware that Baalis the king of the children of Ammon has sent Ishmael the son of Nethaniah to take your life? But [[Jeremiah-40.fn#Footnote 14.1 — Gedaliah|Gedaliah]] the son of Ahikam would not believe them.
 
 ## v15
 

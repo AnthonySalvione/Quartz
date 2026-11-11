@@ -31,7 +31,7 @@ The Israelites’ not living in the manner of the Egyptians, among whom they onc
 
 **Verse:** [[Leviticus-18#v4|Leviticus 18:4]]
 
-See note 6⁴ in [[Luke-01|Luke 1]].
+See [note 6⁴](<Luke-01.fn#Footnote 6.4 — ordinances>) in [[Luke-01|Luke 1]].
 
 ## Footnotes for verse 5
 
@@ -39,7 +39,7 @@ See note 6⁴ in [[Luke-01|Luke 1]].
 
 **Verse:** [[Leviticus-18#v5|Leviticus 18:5]]
 
-Cf. [[Galatians-03#v21|Gal. 3:21]] and note 1.
+Cf. [[Galatians-03#v21|Gal. 3:21]] and [note 1](<Galatians-03.fn#Footnote 21.1 — give>).
 
 ## Footnotes for verse 6
 
@@ -61,4 +61,4 @@ Or, punished it for its iniquity.
 
 **Verse:** [[Leviticus-18#v25|Leviticus 18:25]]
 
-The land, signifying Christ (see note 71 in [[Deuteronomy-08|Deut. 8]]), is the supply for the existence and living of God’s people and is also for their enjoyment. The good land vomiting out the defiled and unholy people ([[Leviticus-18#v25|vv. 25]], [[Leviticus-18#v28|28]]; [[Leviticus-20#v22|20:22]]) signifies that the all-inclusive Christ as our dwelling place and everything we need for our enjoyment will vomit us out of Himself and not allow us to enjoy Him any longer (cf. [[Revelation-03#v16|Rev. 3:16]]) if we are not proper in relation to Him.
+The land, signifying Christ (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]), is the supply for the existence and living of God’s people and is also for their enjoyment. The good land vomiting out the defiled and unholy people ([[Leviticus-18#v25|vv. 25]], [[Leviticus-18#v28|28]]; [[Leviticus-20#v22|20:22]]) signifies that the all-inclusive Christ as our dwelling place and everything we need for our enjoyment will vomit us out of Himself and not allow us to enjoy Him any longer (cf. [[Revelation-03#v16|Rev. 3:16]]) if we are not proper in relation to Him.

@@ -15,7 +15,7 @@ chapter_num: 9
 
 **Verse:** [[Job-09#v5|Job 9:5]]
 
-The events in [[Job-09#v5|vv. 5-7]] must have happened in the preadamic world, at the time God judged the heavens and the earth because of the rebellion of Satan and his followers (see note 21 in [[Genesis-01|Gen. 1]] and notes 131 and 151 in [[Isaiah-14|Isa. 14]]).
+The events in [[Job-09#v5|vv. 5-7]] must have happened in the preadamic world, at the time God judged the heavens and the earth because of the rebellion of Satan and his followers (see [note 2¹](<Genesis-01.fn#Footnote 2.1 — But>) in [[Genesis-01|Gen. 1]] and notes [13¹](<Isaiah-14.fn#Footnote 13.1 — I>) and [15¹](<Isaiah-14.fn#Footnote 15.1 — Sheol>) in [[Isaiah-14|Isa. 14]]).
 
 ## Footnotes for verse 13
 

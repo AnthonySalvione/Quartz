@@ -3,7 +3,7 @@
 Let me sing of my Beloved,  
 A song of my Beloved concerning His vineyard.  
 My Beloved had a vineyard  
-On a fertile hill.
+On a [[Isaiah-05.fn#Footnote 1.1 — fertile|fertile]] hill.
 
 ## v2
 
@@ -65,8 +65,8 @@ Great ones and fine ones shall be without inhabitants.
 
 ## v10
 
-For ten acres of vineyard will produce a mere bath of wine,  
-And a homer of seed will produce an ephah of grain.
+For ten acres of vineyard will produce a mere [[Isaiah-05.fn#Footnote 10.1 — bath|bath]] of wine,  
+And a [[Isaiah-05.fn#Footnote 10.2 — homer|homer]] of seed will produce an [[Isaiah-05.fn#Footnote 10.3 — ephah|ephah]] of grain.
 
 ## v11
 
@@ -86,7 +86,7 @@ Nor do they regard the work of His hands.
 
 Hence, my people go into exile  
 For lack of knowledge;  
-Their nobility become famished men,  
+Their [[Isaiah-05.fn#Footnote 13.1 — nobility|nobility]] become famished men,  
 And their multitudes, parched with thirst.
 
 ## v14
@@ -105,12 +105,12 @@ And the eyes of the haughty are abased;
 ## v16
 
 But Jehovah of hosts is exalted in judgment,  
-And the holy God shows Himself holy in righteousness.
+And the [[Isaiah-05.fn#Footnote 16.2 — holy|holy]] God [[Isaiah-05.fn#Footnote 16.1 — shows|shows]] Himself holy in righteousness.
 
 ## v17
 
 Then lambs will graze there as in their pasture,  
-And strangers will eat the wastelands of fat men.
+And strangers will eat the wastelands of [[Isaiah-05.fn#Footnote 17.1 — fat|fat]] men.
 
 ## v18
 
@@ -170,7 +170,7 @@ Rather, His hand is still stretched out.
 
 ## v26
 
-He also lifts up a standard to a distant nation,  
+He also lifts up a standard to a distant [[Isaiah-05.fn#Footnote 26.1 — nation|nation]],  
 And whistles to it from the ends of the earth;  
 And indeed it comes with swift speed.
 

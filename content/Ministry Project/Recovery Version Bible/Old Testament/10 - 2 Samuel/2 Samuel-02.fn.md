@@ -15,7 +15,7 @@ chapter_num: 2
 
 **Verse:** [[2 Samuel-02#v4|2 Samuel 2:4]]
 
-See note 3¹ in [[2 Samuel-05|2 Samuel 5]].
+See [note 3¹](<2 Samuel-05.fn#Footnote 3.1 — king>) in [[2 Samuel-05|2 Samuel 5]].
 
 ## Footnotes for verse 6
 

@@ -47,7 +47,7 @@ The five daughters were given an inheritance among their father’s brothers, pr
 
 **Verse:** [[Numbers-27#v8|Numbers 27:8]]
 
-In typology, the good land signifies Christ (see note 71 in [[Deuteronomy-08|Deut. 8]]), and the inheritance of the good land signifies our enjoyment of Christ. The statute of judgment in [[Numbers-27#v8|vv. 8-11]] typifies that the possession of the enjoyment of Christ is based on the relationship in life. In order to execute our right to enjoy Christ, we must be in the church, signified by the father’s household ([[Numbers-26#v2|26:2]]; [[Ephesians-02#v19|Eph. 2:19]]), with the relationship in life, the fellowship of life, among the saints ([[1 John-01#v1|1 John 1:1-3]]).
+In typology, the good land signifies Christ (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]), and the inheritance of the good land signifies our enjoyment of Christ. The statute of judgment in [[Numbers-27#v8|vv. 8-11]] typifies that the possession of the enjoyment of Christ is based on the relationship in life. In order to execute our right to enjoy Christ, we must be in the church, signified by the father’s household ([[Numbers-26#v2|26:2]]; [[Ephesians-02#v19|Eph. 2:19]]), with the relationship in life, the fellowship of life, among the saints ([[1 John-01#v1|1 John 1:1-3]]).
 
 ## Footnotes for verse 14
 
@@ -55,7 +55,7 @@ In typology, the good land signifies Christ (see note 71 in [[Deuteronomy-08|Deu
 
 **Verse:** [[Numbers-27#v14|Numbers 27:14]]
 
-See notes 101 and 121 in [[Numbers-20|Numbers 20]]. Although Moses could not enter into the good land because of his failure ([[Deuteronomy-03#v23|Deut. 3:23-27]]), he will nevertheless be in the millennial kingdom ([[Matthew-16#v28|Matt. 16:28]]—[[Matthew-17#v4|17:4]]).
+See notes [10¹](<Numbers-20.fn#Footnote 10.1 — rebels>) and [12¹](<Numbers-20.fn#Footnote 12.1 — sanctify>) in [[Numbers-20|Numbers 20]]. Although Moses could not enter into the good land because of his failure ([[Deuteronomy-03#v23|Deut. 3:23-27]]), he will nevertheless be in the millennial kingdom ([[Matthew-16#v28|Matt. 16:28]]—[[Matthew-17#v4|17:4]]).
 
 ### Footnote 14.2 — Meribah-kadesh
 
@@ -69,7 +69,7 @@ Meaning the strife of Kadesh.
 
 **Verse:** [[Numbers-27#v16|Numbers 27:16]]
 
-See note 22¹ in [[Numbers-16|Numbers 16]].
+See [note 22¹](<Numbers-16.fn#Footnote 22.1 — spirits>) in [[Numbers-16|Numbers 16]].
 
 ## Footnotes for verse 17
 
@@ -85,7 +85,7 @@ Moses was concerned not for himself but for God’s people, realizing that after
 
 **Verse:** [[Numbers-27#v21|Numbers 27:21]]
 
-When God brought His people into the wilderness, He spoke to them through Moses ([[Numbers-12#v6|12:6-8a]]); but Joshua, Moses’ successor, was to receive guidance not from God by His direct speaking but by the Urim and the Thummim on the breastplate worn by Eleazar the priest (see notes 301 through 303 in [[Exodus-28|Exo. 28]]). God’s government among His people was a matter not of autocracy or democracy but of theocracy, carried out through the coordination of the high priest, who received God’s instructions, and the leader, who executed these instructions. After Moses, throughout the generations in the Old Testament the divine government depended on the two persons of the high priest and the leader, the only exception being the time when David served as both the leader and the priest wearing the ephod ([[1 Samuel-23#v9|1 Sam. 23:9]]; [[1 Samuel-30#v7|30:7]]). When the children of Israel came back from captivity, a later Joshua was the high priest, and Zerubbabel, a royal descendant, was the leader ([[Haggai-01#v1|Hag. 1:1]]). See note 181 in [[Deuteronomy-16|Deut. 16]]. 
+When God brought His people into the wilderness, He spoke to them through Moses ([[Numbers-12#v6|12:6-8a]]); but Joshua, Moses’ successor, was to receive guidance not from God by His direct speaking but by the Urim and the Thummim on the breastplate worn by Eleazar the priest (see [[Exodus-28.fn#Footnote 30.1 — judgment|notes 30¹]] through [[Exodus-28.fn#Footnote 30.3 — Thummim|30³]] in [[Exodus-28|Exo. 28]]). God’s government among His people was a matter not of autocracy or democracy but of theocracy, carried out through the coordination of the high priest, who received God’s instructions, and the leader, who executed these instructions. After Moses, throughout the generations in the Old Testament the divine government depended on the two persons of the high priest and the leader, the only exception being the time when David served as both the leader and the priest wearing the ephod ([[1 Samuel-23#v9|1 Sam. 23:9]]; [[1 Samuel-30#v7|30:7]]). When the children of Israel came back from captivity, a later Joshua was the high priest, and Zerubbabel, a royal descendant, was the leader ([[Haggai-01#v1|Hag. 1:1]]). See [note 18¹](<Deuteronomy-16.fn#Footnote 18.1 — judges>) in [[Deuteronomy-16|Deut. 16]]. 
 
 At the end of this chapter the children of Israel had become a new people formed into a new army with a new theocracy.
 
@@ -95,4 +95,4 @@ At the end of this chapter the children of Israel had become a new people formed
 
 **Verse:** [[Numbers-27#v23|Numbers 27:23]]
 
-See note 14⁴ in [[1 Timothy-04|1 Tim. 4]].
+See [note 14⁴](<1 Timothy-04.fn#Footnote 14.4 — laying>) in [[1 Timothy-04|1 Tim. 4]].

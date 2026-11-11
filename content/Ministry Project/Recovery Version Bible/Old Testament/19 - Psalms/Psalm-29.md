@@ -1,10 +1,13 @@
+> *A Psalm of David*
+
+---
 ## v1
 
-Ascribe to Jehovah, O sons of the Mighty, / Ascribe to Jehovah glory and strength;
+[[Psalm-29.fn#Footnote 1.1 — Ascribe|Ascribe]] to Jehovah, O sons of the Mighty, / Ascribe to Jehovah glory and strength;
 
 ## v2
 
-Ascribe to Jehovah the glory of His name; / Worship Jehovah in holy splendor.
+Ascribe to Jehovah the glory of His name; / Worship Jehovah in holy [[Psalm-29.fn#Footnote 2.1 — splendor|splendor]].
 
 ## v3
 
@@ -20,7 +23,7 @@ The voice of Jehovah breaks the cedars; / Indeed Jehovah breaks the cedars of Le
 
 ## v6
 
-And He makes Lebanon skip like a calf, / And Sirion like a young wild ox.
+And He makes Lebanon skip like a calf, / And [[Psalm-29.fn#Footnote 6.1 — Sirion|Sirion]] like a young wild ox.
 
 ## v7
 
@@ -32,7 +35,7 @@ The voice of Jehovah shakes the wilderness; / Jehovah shakes the wilderness of K
 
 ## v9
 
-The voice of Jehovah causes the hinds to calve / And strips the forests bare; / And in His temple all say, Glory!
+The voice of Jehovah [[Psalm-29.fn#Footnote 9.1 — causes|causes]] the hinds to calve / And strips the forests bare; / And in His temple all say, Glory!
 
 ## v10
 

@@ -1,7 +1,7 @@
 ## v1
 
 O God of vengeance, O Jehovah,  
-O God of vengeance, shine forth!
+O God of vengeance, [[Psalm-94.fn#Footnote 1.1 — shine|shine]] forth!
 
 ## v2
 
@@ -30,7 +30,7 @@ And they murder orphans.
 
 ## v7
 
-And they say, Jehovah does not see,  
+And they say, [[Psalm-94.fn#Footnote 7.1 — Jehovah|Jehovah]] does not see,  
 And the God of Jacob does not consider.
 
 ## v8
@@ -45,7 +45,7 @@ And He who formed the eye, does He not see?
 
 ## v10
 
-He who disciplines the nations,  
+He who [[Psalm-94.fn#Footnote 10.1 — disciplines|disciplines]] the nations,  
 He who teaches man knowledge, does He not reprove?
 
 ## v11
@@ -71,7 +71,7 @@ Nor will He forsake His inheritance.
 
 ## v15
 
-For judgment will return unto righteousness,  
+For judgment will [[Psalm-94.fn#Footnote 15.1 — return|return]] unto righteousness,  
 And all the upright in heart will follow it.
 
 ## v16

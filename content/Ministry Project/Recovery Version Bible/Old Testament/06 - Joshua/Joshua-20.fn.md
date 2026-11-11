@@ -15,4 +15,4 @@ chapter_num: 20
 
 **Verse:** [[Joshua-20#v2|Joshua 20:2]]
 
-See note 6¹ in [[Numbers-35|Num. 35]].
+See [note 6¹](<Numbers-35.fn#Footnote 6.1 — cities>) in [[Numbers-35|Num. 35]].

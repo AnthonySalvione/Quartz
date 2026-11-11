@@ -1,6 +1,6 @@
 ## v1
 
-And the word of Jehovah of hosts came, saying,
+[[Zechariah-08.fn#Footnote 1.1 — And|And]] the word of Jehovah of hosts came, saying,
 
 ## v2
 
@@ -20,7 +20,7 @@ And the streets of the city will be full of boys and girls playing in its street
 
 ## v6
 
-Thus says Jehovah of hosts, If it seems too wonderful in the sight of the remnant of this people in those days, will it also be too wonderful in My sight? declares Jehovah of hosts.
+Thus says Jehovah of hosts, If it seems too [[Zechariah-08.fn#Footnote 6.1 — wonderful|wonderful]] in the sight of the remnant of this people in those days, will it also be too wonderful in My sight? declares Jehovah of hosts.
 
 ## v7
 
@@ -32,7 +32,7 @@ And I will bring them, and they will dwell within Jerusalem; and they will be My
 
 ## v9
 
-Thus says Jehovah of hosts, Let your hands be strong, you who in these days hear these words from the mouth of the prophets who were there in the day when the foundation of the house of Jehovah of hosts, that is, the temple, was laid so that it might be built.
+Thus says Jehovah of hosts, [[Zechariah-08.fn#Footnote 9.1 — Let|Let]] your hands be strong, you who in these days hear these words from the mouth of the prophets who were there in the day when the foundation of the house of Jehovah of hosts, that is, the temple, was laid so that it might be built.
 
 ## v10
 
@@ -76,7 +76,7 @@ Thus says Jehovah of hosts, The fast of the fourth month and the fast of the fif
 
 ## v20
 
-Thus says Jehovah of hosts, Peoples will again come, even the inhabitants of many cities;
+Thus says Jehovah of hosts, [[Zechariah-08.fn#Footnote 20.1 — Peoples|Peoples]] will again come, even the inhabitants of many cities;
 
 ## v21
 
@@ -88,4 +88,4 @@ Indeed, many peoples and strong nations will come to seek Jehovah of hosts in Je
 
 ## v23
 
-Thus says Jehovah of hosts, In those days, from all the languages of the nations, ten men will take hold, indeed, they will take hold of the skirt of a Jewish man, saying, Let us go with you, for we have heard that God is with you.
+Thus says Jehovah of hosts, In those days, from all the [[Zechariah-08.fn#Footnote 23.1 — languages|languages]] of the nations, ten men will take hold, indeed, they will take hold of the skirt of a Jewish man, saying, Let us go with you, for we have heard that God is with you.

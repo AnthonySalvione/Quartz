@@ -1,10 +1,10 @@
 ## v1
 
-I am about to send My messenger, and he will clear the way before Me; and suddenly the Lord, whom you seek, will come to His temple. And the Angel of the covenant, whom you desire, He will come, says Jehovah of hosts.
+I am about to send [[Malachi-03.fn#Footnote 1.1 — My|My]] messenger, and he will clear the way before Me; and suddenly the Lord, whom you seek, will come to His temple. And the [[Malachi-03.fn#Footnote 1.2 — Angel|Angel]] of the covenant, whom you [[Malachi-03.fn#Footnote 1.3 — desire|desire]], He will come, says Jehovah of hosts.
 
 ## v2
 
-And who will endure the day of His coming? And who will stand when He appears? For He is like a refiner’s fire and like fullers’ soap.
+And who will endure the day of His coming? And who will stand when He appears? For He is like a [[Malachi-03.fn#Footnote 2.1 — refiner’s|refiner’s]] fire and like fullers’ soap.
 
 ## v3
 
@@ -16,7 +16,7 @@ And the sacrifice of Judah and of Jerusalem will be pleasing to Jehovah, as in t
 
 ## v5
 
-And I will draw near to you for judgment; and I will be a swift witness against the sorcerers and against the adulterers and against those who swear falsely and against those who oppress the hired worker for his hire and the widow and the orphan, and those who turn the stranger aside, and who do not fear Me, says Jehovah of hosts.
+And I will draw near to you for judgment; and I will be a swift witness against the sorcerers and against the adulterers and against those who swear falsely and against those who oppress the hired worker for his hire and the widow and the orphan, and those who turn the [[Malachi-03.fn#Footnote 5.1 — stranger|stranger]] aside, and who do not fear Me, says Jehovah of hosts.
 
 ## v6
 
@@ -28,7 +28,7 @@ From the days of your fathers you have turned aside from My statutes and have no
 
 ## v8
 
-Will a man rob God? Yet you have robbed Me. But you say, How have we robbed You? In tithes and offerings.
+Will a man [[Malachi-03.fn#Footnote 8.1 — rob|rob]] God? Yet you have robbed Me. But you say, How have we robbed You? In tithes and offerings.
 
 ## v9
 
@@ -36,7 +36,7 @@ With the curse you are cursed, yet you, even the whole nation, rob Me.
 
 ## v10
 
-Bring the whole tithe to the storehouse that there may be food in My house; and prove Me, if you will, by this, says Jehovah of hosts, whether I will open to you the windows of heaven and pour out blessing for you until there is no room for it.
+Bring the whole tithe to the storehouse that there may be [[Malachi-03.fn#Footnote 10.1 — food|food]] in My house; and prove Me, if you will, by this, says Jehovah of hosts, whether I will open to you the windows of heaven and pour out [[Malachi-03.fn#Footnote 10.2 — blessing|blessing]] for you until there is no room for it.
 
 ## v11
 
@@ -52,7 +52,7 @@ Your words have been strongly against Me, says Jehovah; but you say, What have w
 
 ## v14
 
-You say, It is vain to serve God; and what profit is it that we have kept His charge and have walked mournfully before Jehovah of hosts?
+You say, It is vain to serve God; and what profit is it that we have kept His charge and have walked [[Malachi-03.fn#Footnote 14.1 — mournfully|mournfully]] before Jehovah of hosts?
 
 ## v15
 
@@ -60,11 +60,11 @@ And now we call the arrogant blessed; not only have those who act wickedly been 
 
 ## v16
 
-Then those who feared Jehovah spoke to one another, each with his neighbor. And Jehovah gave heed and listened, and a book of remembrance was written before Him of those who feared Jehovah and considered His name.
+Then those who feared Jehovah spoke to one another, each with his neighbor. And Jehovah gave heed and listened, and a [[Malachi-03.fn#Footnote 16.1 — book|book]] of remembrance was written before Him of those who feared Jehovah and considered His name.
 
 ## v17
 
-And they will be Mine, says Jehovah of hosts, a personal treasure, in the day that I prepare; and I will spare them, as a man spares his son who serves him.
+And they will be Mine, says Jehovah of hosts, a personal treasure, in the [[Malachi-03.fn#Footnote 17.1 — day|day]] that I prepare; and I will spare them, as a man spares his son who serves him.
 
 ## v18
 

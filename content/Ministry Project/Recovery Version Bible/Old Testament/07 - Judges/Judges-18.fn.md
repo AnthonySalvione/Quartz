@@ -31,4 +31,4 @@ Many MSS read, Manasseh; but most authorities agree that the text was modified a
 
 **Verse:** [[Judges-18#v31|Judges 18:31]]
 
-The Danites set up another worship place in the city of Dan, while God’s tabernacle remained in Shiloh. The result was two worship centers—the proper one with God’s tabernacle at Shiloh and the improper one in Dan. This shows the chaos of the children of Israel in their worship. See notes 281 in [[1 Kings-12|1 Kings 12]] and 171 in [[Genesis-49|Gen. 49]].
+The Danites set up another worship place in the city of Dan, while God’s tabernacle remained in Shiloh. The result was two worship centers—the proper one with God’s tabernacle at Shiloh and the improper one in Dan. This shows the chaos of the children of Israel in their worship. See notes [28¹](<1 Kings-12.fn#Footnote 28.1 — calves>) in [[1 Kings-12|1 Kings 12]] and [17¹](<Genesis-49.fn#Footnote 17.1 — serpent>) in [[Genesis-49|Gen. 49]].

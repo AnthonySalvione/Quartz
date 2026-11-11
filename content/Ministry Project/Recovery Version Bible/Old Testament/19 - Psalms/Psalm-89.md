@@ -1,6 +1,11 @@
+> *A Maschil of Ethan the Ezrahite*
+
+> [!light] Note on Maschil:
+> See note on the superscription of [[Psalm-32|Psa. 32]].
+---
 ## v1
 
-I will sing of the lovingkindness of Jehovah forever;  
+[[Psalm-89.fn#Footnote 1.1 — I|I]] will sing of the lovingkindness of Jehovah forever;  
 From generation to generation I will make known Your faithfulness with my mouth.
 
 ## v2
@@ -35,7 +40,7 @@ And awesome beyond all around Him?
 
 ## v8
 
-O Jehovah God of hosts, who is like You, the mighty Jah?  
+O Jehovah God of hosts, who is like You, the mighty [[Psalm-89.fn#Footnote 8.1 — Jah|Jah]]?  
 Your faithfulness also surrounds You.
 
 ## v9
@@ -45,7 +50,7 @@ When its waves rise up, You still them.
 
 ## v10
 
-You crushed Rahab like one slain;  
+You crushed [[Psalm-89.fn#Footnote 10.1 — Rahab|Rahab]] like one slain;  
 You scattered Your enemies with the arm of Your strength.
 
 ## v11
@@ -65,7 +70,7 @@ Your hand is strong; Your right hand is high.
 
 ## v14
 
-Righteousness and justice are the foundation of Your throne;  
+Righteousness and justice are the [[Psalm-89.fn#Footnote 14.1 — foundation|foundation]] of Your throne;  
 Lovingkindness and truth go before Your face.
 
 ## v15
@@ -80,7 +85,7 @@ And in Your righteousness they are exalted.
 
 ## v17
 
-For You are the glory of their strength,  
+For You are the [[Psalm-89.fn#Footnote 17.1 — glory|glory]] of their strength,  
 And in Your favor our horn is exalted.
 
 ## v18
@@ -91,13 +96,13 @@ And our king, to the Holy One of Israel.
 ## v19
 
 Then You spoke in vision  
-Of Your Holy One, and You said,  
+Of Your [[Psalm-89.fn#Footnote 19.1 — Holy|Holy]] One, and You said,  
 I have given help to One who is mighty;  
 I have exalted One chosen from My people.
 
 ## v20
 
-I have found David My Servant;  
+I have found [[Psalm-89.fn#Footnote 20.1 — David|David]] My Servant;  
 With My holy oil I have anointed Him,
 
 ## v21
@@ -242,7 +247,7 @@ Will he deliver his soul from the power of Sheol? Selah
 
 ## v49
 
-Where are Your former acts of lovingkindness, O Lord,  
+Where are Your former acts of lovingkindness, O [[Psalm-89.fn#Footnote 49.1 — Lord|Lord]],  
 Which You swore to David in Your faithfulness?
 
 ## v50

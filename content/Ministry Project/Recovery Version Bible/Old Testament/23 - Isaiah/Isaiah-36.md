@@ -1,6 +1,6 @@
 ## v1
 
-In the fourteenth year of King Hezekiah, Sennacherib the king of Assyria went up against all the fortified cities of Judah and took them.
+In the fourteenth year of King [[Isaiah-36.fn#Footnote 1.1 — Hezekiah|Hezekiah]], Sennacherib the king of Assyria went up against all the fortified cities of Judah and took them.
 
 ## v2
 

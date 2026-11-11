@@ -1,10 +1,10 @@
 ## v1
 
-The burden of the word of Jehovah concerning Israel. Thus declares Jehovah, who stretches forth the heavens and lays the foundations of the earth and forms the spirit of man within him,
+[[Zechariah-12.fn#Footnote 1.1 — The|The]] burden of the word of Jehovah concerning Israel. Thus declares Jehovah, who stretches forth the heavens and lays the foundations of the earth and forms the [[Zechariah-12.fn#Footnote 1.2 — spirit|spirit]] of man within him,
 
 ## v2
 
-I am about to make Jerusalem a cup of reeling to all the surrounding peoples; and when what happens in siege is upon Jerusalem, it will be upon Judah as well.
+I am about to make Jerusalem a cup of reeling to all the surrounding peoples; and when what happens in [[Zechariah-12.fn#Footnote 2.1 — siege|siege]] is upon Jerusalem, it will be upon Judah as well.
 
 ## v3
 
@@ -28,7 +28,7 @@ And Jehovah will save the tents of Judah first, so that the beauty of the house 
 
 ## v8
 
-In that day Jehovah will defend the inhabitants of Jerusalem; and he who is feeble among them in that day will be like David, and the house of David will be like God, like the Angel of Jehovah before them.
+In that day Jehovah will defend the inhabitants of Jerusalem; and he who is feeble among them in that day will be like David, and the house of David will be like God, like the [[Zechariah-12.fn#Footnote 8.1 — Angel|Angel]] of Jehovah before them.
 
 ## v9
 
@@ -36,7 +36,7 @@ And in that day I will seek to destroy all the nations that come against Jerusal
 
 ## v10
 
-And I will pour out on the house of David and on the inhabitants of Jerusalem the Spirit of grace and of supplications; and they will look upon Me, whom they have pierced; and they will wail over Him with wailing as for an only son and cry bitterly over Him with bitter crying as for a firstborn son.
+And I will pour out on the house of David and on the inhabitants of Jerusalem the [[Zechariah-12.fn#Footnote 10.1 — Spirit|Spirit]] of grace and of supplications; and they will [[Zechariah-12.fn#Footnote 10.2 — look|look]] upon Me, whom [[Zechariah-12.fn#Footnote 10.3 — they|they]] have [[Zechariah-12.fn#Footnote 10.4 — pierced|pierced]]; and they will wail over Him with wailing as for an [[Zechariah-12.fn#Footnote 10.5 — only|only]] son and cry bitterly over Him with bitter crying as for a [[Zechariah-12.fn#Footnote 10.5 — only|firstborn]] son.
 
 ## v11
 
@@ -44,7 +44,7 @@ In that day there will be great wailing in Jerusalem, like the wailing of Hadad-
 
 ## v12
 
-And the land will wail, every family by itself: the family of the house of David by itself, and their wives by themselves; the family of the house of Nathan by itself, and their wives by themselves;
+And the land will wail, every family by itself: the [[Zechariah-12.fn#Footnote 12.1 — family|family]] of the house of David by itself, and their wives by themselves; the family of the house of Nathan by itself, and their wives by themselves;
 
 ## v13
 

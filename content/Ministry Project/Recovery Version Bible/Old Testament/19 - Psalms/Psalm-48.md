@@ -1,21 +1,24 @@
+> *A Song; a Psalm of the sons of Korah*
+
+---
 ## v1
 
-Great is Jehovah,  
+[[Psalm-48.fn#Footnote 1.1 — Great|Great]] is Jehovah,  
 And much to be praised  
-In the city of our God,  
-In His holy mountain.
+In the [[Psalm-48.fn#Footnote 1.2 — city|city]] of our God,  
+In His holy [[Psalm-48.fn#Footnote 1.2 — city|mountain]].
 
 ## v2
 
 Beautiful in elevation,  
 The joy of the whole earth,  
-Is Mount Zion, the sides of the north,  
+Is Mount [[Psalm-48.fn#Footnote 2.1 — Zion|Zion]], the sides of the north,  
 The city of the great King.
 
 ## v3
 
 God has made Himself known  
-In her palaces as a high retreat.
+In her [[Psalm-48.fn#Footnote 3.1 — palaces|palaces]] as a high retreat.
 
 ## v4
 
@@ -66,7 +69,7 @@ Because of Your judgments.
 ## v12
 
 Walk about Zion, and go around her;  
-Count her towers.
+Count her [[Psalm-48.fn#Footnote 12.1 — towers|towers]].
 
 ## v13
 
@@ -77,4 +80,4 @@ That you may recount it to the generation following.
 ## v14
 
 For this God is our God forever and ever.  
-He will guide us even unto death.
+He will [[Psalm-48.fn#Footnote 14.1 — guide|guide]] us even unto death.

@@ -7,7 +7,7 @@ Melody: Robert Lowry
 ---
 # It is God's intent and pleasure
 ## Related Verses
-Gal. 1:15-16; Gal. 2:20; Gal. 4:19; Eph. 3:17; Col. 1:27; Col. 3:11
+[[Galatians-01#v15|Gal. 1:15-16]]; [[Galatians-02#v20|Gal. 2:20]]; [[Galatians-04#v19|Gal. 4:19]]; [[Ephesians-03#v17|Eph. 3:17]]; [[Colossians-01#v27|Col. 1:27]]; [[Colossians-03#v11|Col. 3:11]]
 
 ## Verse 1
 It is God's intent and pleasure

@@ -1,6 +1,9 @@
+> *A Prayer of an afflicted one, when he is fainting and pours out his complaint before Jehovah*
+
+---
 ## v1
 
-O Jehovah, hear my prayer;  
+O Jehovah, hear my [[Psalm-102.fn#Footnote 1.1 — prayer|prayer]];  
 And let my cry come unto You.
 
 ## v2
@@ -33,7 +36,7 @@ I have become like an owl of the desolate places.
 ## v7
 
 I watch, and I am like  
-A lone sparrow on a housetop.
+A lone [[Psalm-102.fn#Footnote 7.1 — sparrow|sparrow]] on a housetop.
 
 ## v8
 
@@ -62,13 +65,13 @@ And Your memorial is from generation to generation.
 
 ## v13
 
-You will arise and have compassion on Zion,  
+You will arise and have compassion on [[Psalm-102.fn#Footnote 13.1 — Zion|Zion]],  
 For it is time to be gracious to her; the appointed time has come.
 
 ## v14
 
 For Your servants take pleasure in her stones,  
-And show favor to her dust.
+And show favor to her [[Psalm-102.fn#Footnote 14.1 — dust|dust]].
 
 ## v15
 
@@ -77,7 +80,7 @@ And all the kings of the earth, Your glory;
 
 ## v16
 
-For Jehovah has built up Zion;  
+For Jehovah has [[Psalm-102.fn#Footnote 16.1 — built|built]] up Zion;  
 He has appeared in His glory.
 
 ## v17
@@ -88,7 +91,7 @@ And has not despised their prayer.
 ## v18
 
 This will be written for a generation to come,  
-And a people to be created will praise Jehovah.
+And a people to be created will praise [[Psalm-102.fn#Footnote 18.1 — Jehovah|Jehovah]].
 
 ## v19
 
@@ -102,7 +105,7 @@ To release those appointed to die;
 
 ## v21
 
-That the name of Jehovah may be declared in Zion,  
+That the [[Psalm-102.fn#Footnote 21.1 — name|name]] of Jehovah may be declared in Zion,  
 And His praise, in Jerusalem,
 
 ## v22
@@ -123,7 +126,7 @@ Your years are throughout all generations.
 
 ## v25
 
-Of old You laid the foundation of the earth,  
+[[Psalm-102.fn#Footnote 25.1 — Of|Of]] old You laid the foundation of the earth,  
 And the heavens are the work of Your hands.
 
 ## v26

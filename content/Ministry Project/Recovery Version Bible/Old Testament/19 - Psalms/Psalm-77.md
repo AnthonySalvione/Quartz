@@ -1,6 +1,9 @@
+> *To the choir director, to Jeduthun. Of Asaph. A Psalm*
+
+---
 ## v1
 
-My voice calls out to God, and I will cry out;  
+[[Psalm-77.fn#Footnote 1.1 — My|My]] voice calls out to God, and I will cry out;  
 My voice calls out to God, and He will give ear to me.
 
 ## v2
@@ -31,7 +34,7 @@ I muse with my own heart, and my spirit carefully searches.
 
 ## v7
 
-Will the Lord cast us off forever,  
+Will the Lord [[Psalm-77.fn#Footnote 7.1 — cast|cast]] us off forever,  
 And will He never be favorable to us again?
 
 ## v8
@@ -47,11 +50,11 @@ Or has He in anger shut up His compassions? Selah
 ## v10
 
 Then I said, This is my infirmity;  
-But I recall the years of the right hand of the Most High.
+[[Psalm-77.fn#Footnote 10.1 — But|But]] I recall the years of the right hand of the Most High.
 
 ## v11
 
-I will bring to remembrance the deeds of Jehovah,  
+I will bring to remembrance the deeds of [[Psalm-77.fn#Footnote 11.1 — Jehovah|Jehovah]],  
 For I will remember Your wonders from of old.
 
 ## v12
@@ -61,7 +64,7 @@ And muse on Your doings.
 
 ## v13
 
-O God, Your way is in the sanctuary;  
+O God, Your way is in the [[Psalm-77.fn#Footnote 13.1 — sanctuary|sanctuary]];  
 Who is so great a god as God?
 
 ## v14

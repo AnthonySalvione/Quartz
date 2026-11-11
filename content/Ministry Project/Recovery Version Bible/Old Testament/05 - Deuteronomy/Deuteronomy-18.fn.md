@@ -21,7 +21,7 @@ Whereas the priests served God directly in His presence, the Levites were servan
 
 **Verse:** [[Deuteronomy-18#v1|Deuteronomy 18:1]]
 
-God’s inheritance consisted of the tithes offered to Him by the children of Israel. Some of these tithes were to be for the priests. Thus, the priests lived on the tithes offered to God by His people. See note 91 in [[Numbers-18|Num. 18]].
+God’s inheritance consisted of the tithes offered to Him by the children of Israel. Some of these tithes were to be for the priests. Thus, the priests lived on the tithes offered to God by His people. See [note 9¹](<Numbers-18.fn#Footnote 9.1 — kept>) in [[Numbers-18|Num. 18]].
 
 ## Footnotes for verse 2
 
@@ -29,7 +29,7 @@ God’s inheritance consisted of the tithes offered to Him by the children of Is
 
 **Verse:** [[Deuteronomy-18#v2|Deuteronomy 18:2]]
 
-See note 20¹ in [[Numbers-18|Num. 18]].
+See [note 20¹](<Numbers-18.fn#Footnote 20.1 — no>) in [[Numbers-18|Num. 18]].
 
 ## Footnotes for verse 3
 
@@ -69,4 +69,4 @@ The exact meaning of the Hebrew is uncertain.
 
 **Verse:** [[Deuteronomy-18#v18|Deuteronomy 18:18]]
 
-God would raise up this Prophet through the incarnation of Christ to speak the word of God ([[John-03#v34|John 3:34]]; [[John-07#v16|7:16-17]]; [[John-08#v18|8:18]]; [[Hebrews-01#v2|Heb. 1:2a]]). To speak God’s word, i.e., to prophesy, is to dispense God, to speak God forth into others (see [[1 Corinthians-14#v1|1 Cor. 14:1]], [[1 Corinthians-14#v3|3-5]], [[1 Corinthians-14#v24|24-25]], 31 and notes 13, 31, 241, 251, and 311). This is what the Lord Jesus did as the Prophet raised up by God.
+God would raise up this Prophet through the incarnation of Christ to speak the word of God ([[John-03#v34|John 3:34]]; [[John-07#v16|7:16-17]]; [[John-08#v18|8:18]]; [[Hebrews-01#v2|Heb. 1:2a]]). To speak God’s word, i.e., to prophesy, is to dispense God, to speak God forth into others (see [[1 Corinthians-14#v1|1 Cor. 14:1]], [[1 Corinthians-14#v3|3-5]], [[1 Corinthians-14#v24|24-25]], [[1 Corinthians-14#v31|31]] and notes [[1 Corinthians-14.fn#Footnote 1.3 — prophesy|1¹]], [[1 Corinthians-14.fn#Footnote 3.1 — building|3¹]], [[1 Corinthians-14.fn#Footnote 24.1 — all|24¹]], [[1 Corinthians-14.fn#Footnote 25.1 — God|25¹]], and [[1 Corinthians-14.fn#Footnote 31.1 — you|31¹]]). This is what the Lord Jesus did as the Prophet raised up by God.

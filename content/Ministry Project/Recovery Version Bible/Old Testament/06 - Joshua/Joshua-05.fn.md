@@ -15,7 +15,7 @@ chapter_num: 5
 
 **Verse:** [[Joshua-05#v1|Joshua 5:1]]
 
-See note 1¹ in [[Numbers-21|Num. 21]].
+See [note 1¹](<Numbers-21.fn#Footnote 1.1 — Canaanite>) in [[Numbers-21|Num. 21]].
 
 ### Footnote 1.2 — they
 
@@ -31,7 +31,7 @@ Some MSS read, we.
 
 The purpose of circumcision was to make God’s chosen people a new people for the inheriting of God’s promised land (cf. [[Genesis-17#v7|Gen. 17:7-12]]). The circumcising of the new Israel typifies the circumcision of Christ, by His death, applied to the believers in the putting off of the body of the flesh that they may inherit Christ in resurrection as the portion allotted to them by God ([[Colossians-02#v11|Col. 2:11-12]]; [[Colossians-01#v12|1:12]]). 
 
-Spiritual circumcision is a continuation of the burial in the death of Christ. Through the crossing of the river Jordan, the old Israel was buried and a new Israel came forth. This was an objective work done by God. Israel still needed to apply this work to their flesh. Their being circumcised was their practical application of what God had done in the crossing of the river Jordan. In the New Testament spiritual circumcision is the constant application of Christ’s death to our flesh ([[Philippians-03#v3|Phil. 3:3]]; [[Colossians-02#v11|Col. 2:11]] and notes). Although in fact we have been baptized into the death of Christ and have been buried and raised with Him ([[Romans-06#v3|Rom. 6:3-4]]), in practicality we still must apply the circumcision of the cross to our flesh by the Spirit day by day ([[Romans-08#v13|Rom. 8:13]]; [[Galatians-05#v24|Gal. 5:24]]). This is the reality and practicality of remaining in the death and burial of Christ. See notes 242 in [[Galatians-05|Gal. 5]] and 132 in [[Romans-08|Rom. 8]].
+Spiritual circumcision is a continuation of the burial in the death of Christ. Through the crossing of the river Jordan, the old Israel was buried and a new Israel came forth. This was an objective work done by God. Israel still needed to apply this work to their flesh. Their being circumcised was their practical application of what God had done in the crossing of the river Jordan. In the New Testament spiritual circumcision is the constant application of Christ’s death to our flesh ([[Philippians-03#v3|Phil. 3:3]]; [[Colossians-02#v11|Col. 2:11]] and notes). Although in fact we have been baptized into the death of Christ and have been buried and raised with Him ([[Romans-06#v3|Rom. 6:3-4]]), in practicality we still must apply the circumcision of the cross to our flesh by the Spirit day by day ([[Romans-08#v13|Rom. 8:13]]; [[Galatians-05#v24|Gal. 5:24]]). This is the reality and practicality of remaining in the death and burial of Christ. See notes [24²](<Galatians-05.fn#Footnote 24.2 — have>) in [[Galatians-05|Gal. 5]] and [13²](<Romans-08.fn#Footnote 13.2 — put>) in [[Romans-08|Rom. 8]].
 
 ## Footnotes for verse 5
 
@@ -73,4 +73,4 @@ In Egypt, by their eating Egyptian food (signifying worldly things), the childre
 
 **Verse:** [[Joshua-05#v13|Joshua 5:13]]
 
-This vision was an unveiling to Joshua of Christ as the Captain of Jehovah’s army ([[Joshua-05#v14|v. 14]]). Whereas Joshua was the visible captain of Jehovah’s army, Christ was the invisible Captain. Christ was such a captain to fight against the seven tribes of Canaan for Israel. Because of this, Joshua needed to stand on the position of sanctification (holiness) all the time ([[Joshua-05#v15|v. 15]]). See note 23 in [[Romans-01|Rom. 1]].
+This vision was an unveiling to Joshua of Christ as the Captain of Jehovah’s army ([[Joshua-05#v14|v. 14]]). Whereas Joshua was the visible captain of Jehovah’s army, Christ was the invisible Captain. Christ was such a captain to fight against the seven tribes of Canaan for Israel. Because of this, Joshua needed to stand on the position of sanctification (holiness) all the time ([[Joshua-05#v15|v. 15]]). See [note 2³](<Romans-01.fn#Footnote 2.3 — holy>) in [[Romans-01|Rom. 1]].

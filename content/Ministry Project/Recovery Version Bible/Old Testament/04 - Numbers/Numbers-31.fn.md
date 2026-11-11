@@ -31,7 +31,7 @@ All the matters in [[Numbers-31#v13|vv. 13-24]] concerning the purging and purif
 
 **Verse:** [[Numbers-31#v19|Numbers 31:19]]
 
-See note 121 in [[Numbers-19|Numbers 19]].
+See [note 12¹](<Numbers-19.fn#Footnote 12.1 — third>) in [[Numbers-19|Numbers 19]].
 
 ## Footnotes for verse 24
 

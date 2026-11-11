@@ -1,10 +1,10 @@
 ## v1
 
-Listen to Me in silence, O coastlands. / Let the people renew their strength; / Let them approach, then let them speak; / Let us come together for judgment.
+[[Isaiah-41.fn#Footnote 1.1 — Listen|Listen]] to Me in silence, O coastlands. / Let the people renew their strength; / Let them approach, then let them speak; / Let us come together for judgment.
 
 ## v2
 
-Who has stirred up someone from the east, / Called him in righteousness to His feet? / He gave up the nations before him, / And caused him to have dominion over kings. / He made them like dust with his sword, / Like driven stubble with his bow.
+Who has stirred up someone from the east, / Called [[Isaiah-41.fn#Footnote 2.1 — him|him]] in righteousness to His feet? / He gave up the nations before him, / And caused him to have dominion over kings. / He made them like dust with his sword, / Like driven stubble with his bow.
 
 ## v3
 
@@ -12,7 +12,7 @@ He pursues them and passes on in safety; / He will not come on a way known to hi
 
 ## v4
 
-Who has wrought this and done this, / Calling the generations from the beginning? / I, Jehovah, am the first, / And with the last, I am He.
+Who has wrought this and done this, / Calling the generations from the beginning? / I, Jehovah, am the first, / And with the last, I am [[Isaiah-41.fn#Footnote 4.1 — He|He]].
 
 ## v5
 
@@ -28,7 +28,7 @@ So the craftsman encourages the goldsmith, / And he who smoothes metal with a ha
 
 ## v8
 
-But you, Israel, My servant, / Jacob, whom I have chosen, / The seed of Abraham My friend;
+But you, [[Isaiah-41.fn#Footnote 8.1 — Israel|Israel]], My servant, / Jacob, whom I have chosen, / The seed of Abraham My friend;
 
 ## v9
 
@@ -80,7 +80,7 @@ That they may see and know, / And consider and understand together, / That the h
 
 ## v21
 
-Present your case, says Jehovah; / Bring forward your arguments, says the King of Jacob.
+Present your [[Isaiah-41.fn#Footnote 21.1 — case|case]], says Jehovah; / Bring forward your arguments, says the King of Jacob.
 
 ## v22
 

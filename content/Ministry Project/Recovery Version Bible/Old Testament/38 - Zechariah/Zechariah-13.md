@@ -1,6 +1,6 @@
 ## v1
 
-In that day there will be an opened fountain for the house of David and for the inhabitants of Jerusalem, for sin and for impurity.
+In that day there will be an [[Zechariah-13.fn#Footnote 1.1 — opened|opened]] fountain for the house of David and for the inhabitants of Jerusalem, for sin and for impurity.
 
 ## v2
 
@@ -16,24 +16,24 @@ And in that day the prophets will each be ashamed of his vision when he prophesi
 
 ## v5
 
-But He will say, I am no prophet; I am a tiller of the ground; for a man sold Me in My youth.
+But He will say, I am [[Zechariah-13.fn#Footnote 5.1 — no|no]] prophet; I am a tiller of the ground; for a man sold Me in My youth.
 
 ## v6
 
-And someone will say to Him, What are these wounds between Your arms? And He will say, Those with which I was wounded in the house of those who love Me.
+And someone will say to Him, What are these wounds between Your arms? And He will say, Those with which I was wounded in the house of those who [[Zechariah-13.fn#Footnote 6.1 — love|love]] Me.
 
 ## v7
 
 Awake, O sword, against My Shepherd, /  
-And against the man who is My Fellow, /  
+And against the man who is My [[Zechariah-13.fn#Footnote 7.1 — Fellow|Fellow]], /  
 Declares Jehovah of hosts. Strike the Shepherd, /  
 That the sheep may be scattered; /  
-And I will turn My hand upon the little ones.
+And I will turn My hand upon the [[Zechariah-13.fn#Footnote 7.2 — little|little]] ones.
 
 ## v8
 
 And in all the land, declares Jehovah, /  
-Two parts in it will be cut off and will die, /  
+[[Zechariah-13.fn#Footnote 8.1 — Two|Two]] parts in it will be cut off and will die, /  
 But the third part will be left in it.
 
 ## v9

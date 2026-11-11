@@ -9,7 +9,7 @@ And on the horns of your altars,
 ## v2
 
 While their children remember  
-Their altars and their Asherahs  
+Their altars and their [[Jeremiah-17.fn#Footnote 2.1 — Asherahs|Asherahs]]  
 Beside flourishing trees  
 Upon high hills.
 
@@ -23,7 +23,7 @@ Within all your borders.
 
 ## v4
 
-And you yourself will let go of your inheritance,  
+And you [[Jeremiah-17.fn#Footnote 4.1 — yourself|yourself]] will let go of your inheritance,  
 Which I gave to you;  
 And I will cause you to serve your enemies  
 In a land which you do not know;  
@@ -51,7 +51,7 @@ And whose trust Jehovah is.
 
 ## v8
 
-And he will be like a tree transplanted beside water,  
+And he will be like a [[Jeremiah-17.fn#Footnote 8.1 — tree|tree]] transplanted beside water,  
 Which sends out its roots by a stream,  
 And will not be afraid when heat comes;  
 For its leaves remain flourishing,  
@@ -60,13 +60,13 @@ And will not cease to bear fruit.
 
 ## v9
 
-The heart is deceitful above all things,  
+The [[Jeremiah-17.fn#Footnote 9.1 — heart|heart]] is deceitful above all things,  
 And it is incurable;  
 Who can know it?
 
 ## v10
 
-I, Jehovah, search the heart  
+I, Jehovah, [[Jeremiah-17.fn#Footnote 10.1 — search|search]] the heart  
 And test the inward parts,  
 Even to give to each one according to his ways,  
 According to the fruit of his deeds.
@@ -88,7 +88,7 @@ Is the place of our sanctuary.
 You are the hope of Israel, O Jehovah;  
 All who forsake You will be put to shame.  
 Those who turn away from Me will be written in the earth  
-Because they forsook Jehovah,  
+Because they [[Jeremiah-17.fn#Footnote 13.1 — forsook|forsook]] Jehovah,  
 The fountain of living waters.
 
 ## v14
@@ -141,7 +141,7 @@ Who enter through these gates:
 
 Thus says Jehovah,  
 Take heed to your souls  
-And bear no burden on the Sabbath day,  
+And bear no burden on the [[Jeremiah-17.fn#Footnote 21.1 — Sabbath|Sabbath]] day,  
 Nor bring anything through the gates of Jerusalem.
 
 ## v22
@@ -179,7 +179,7 @@ And this city will be inhabited forever.
 And they will come from the cities of Judah  
 And the places surrounding Jerusalem  
 And from the land of Benjamin  
-And from the lowland and from the hill country and from the Negev,  
+And from the lowland and from the hill country and from the [[Jeremiah-17.fn#Footnote 26.1 — Negev|Negev]],  
 Bringing burnt offerings and sacrifices and meal offerings and frankincense  
 And bringing thanksgiving  
 To the house of Jehovah.

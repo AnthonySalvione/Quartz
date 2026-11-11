@@ -15,7 +15,7 @@ chapter_num: 4
 
 **Verse:** [[2 Kings-04#v6|2 Kings 4:6]]
 
-Elisha’s calling things not being as being in [[2 Kings-04#v1|vv. 1-7]], [[2 Kings-04#v8|8-17]], and 42-44 (cf. [[Romans-04#v17|Rom. 4:17b]]) was the same thing in principle that the Lord Jesus did when He fed the multitudes in [[Matthew-14#v14|Matt. 14:14-21]] and [[Matthew-15#v32|15:32-39]].
+Elisha’s calling things not being as being in [[2 Kings-04#v1|vv. 1-7]], [[2 Kings-04#v8|8-17]], and [[2 Kings-04#v42|42-44]] (cf. [[Romans-04#v17|Rom. 4:17b]]) was the same thing in principle that the Lord Jesus did when He fed the multitudes in [[Matthew-14#v14|Matt. 14:14-21]] and [[Matthew-15#v32|15:32-39]].
 
 ## Footnotes for verse 9
 
@@ -23,7 +23,7 @@ Elisha’s calling things not being as being in [[2 Kings-04#v1|vv. 1-7]], [[2 K
 
 **Verse:** [[2 Kings-04#v9|2 Kings 4:9]]
 
-As the man of God, Elisha behaved himself as God’s representative, as the acting God, on the earth (cf. note 352 in [[1 Samuel-02|1 Sam. 2]]). The New Testament believers should be the same (cf. notes 91 in [[Acts-28|Acts 28]] and 111 in [[1 Timothy-06|1 Tim. 6]]).
+As the man of God, Elisha behaved himself as God’s representative, as the acting God, on the earth (cf. [note 35²](<1 Samuel-02.fn#Footnote 35.2 — heart>) in [[1 Samuel-02|1 Sam. 2]]). The New Testament believers should be the same (cf. notes [9¹](<Acts-28.fn#Footnote 9.1 — healed>) in [[Acts-28|Acts 28]] and [11¹](<1 Timothy-06.fn#Footnote 11.1 — man>) in [[1 Timothy-06|1 Tim. 6]]).
 
 ## Footnotes for verse 35
 
@@ -47,4 +47,4 @@ Elisha’s nullifying the poison of the wild gourds with flour is the same in pr
 
 **Verse:** [[2 Kings-04#v44|2 Kings 4:44]]
 
-See note 6¹.
+See [note 6¹](<2 Kings-04.fn#Footnote 6.1 — filled>).

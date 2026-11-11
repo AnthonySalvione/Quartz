@@ -15,7 +15,7 @@ chapter_num: 26
 
 **Verse:** [[Leviticus-26#v1|Leviticus 26:1]]
 
-Not making idols or bowing down to them signifies that besides the processed Triune God, we have no other goals that we are seeking after, that we may not lose the position to enjoy our divine possession. See note 213, par. 1, in [[1 John-05|1 John 5]].
+Not making idols or bowing down to them signifies that besides the processed Triune God, we have no other goals that we are seeking after, that we may not lose the position to enjoy our divine possession. See [note 21³](<1 John-05.fn#Footnote 21.3 — idols>), par. 1, in [[1 John-05|1 John 5]].
 
 ## Footnotes for verse 2
 
@@ -23,7 +23,7 @@ Not making idols or bowing down to them signifies that besides the processed Tri
 
 **Verse:** [[Leviticus-26#v2|Leviticus 26:2]]
 
-Keeping God’s Sabbath signifies that we know that the work of God was done entirely by Him that we might enjoy it and that there is no need for us to do any work (see note 81 in [[Exodus-20|Exo. 20]]).
+Keeping God’s Sabbath signifies that we know that the work of God was done entirely by Him that we might enjoy it and that there is no need for us to do any work (see [note 8¹](<Exodus-20.fn#Footnote 8.1 — Sabbath>) in [[Exodus-20|Exo. 20]]).
 
 ### Footnote 2.2 — sanctuary
 

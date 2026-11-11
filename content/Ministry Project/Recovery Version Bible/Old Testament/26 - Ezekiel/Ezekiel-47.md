@@ -1,6 +1,6 @@
 ## v1
 
-Then He brought me back to the entrance of the house, and there was water flowing out from under the threshold of the house to the east (for the house faced east); and the water flowed down below the south side of the house, on the south of the altar.
+Then He brought me back to the entrance of the house, and there was [[Ezekiel-47.fn#Footnote 1.1 — water|water]] flowing out from under the threshold of the house to the [[Ezekiel-47.fn#Footnote 1.2 — east|east]] (for the house faced east); and the water flowed down below the [[Ezekiel-47.fn#Footnote 1.3 — south|south]] side of the house, on the south of the [[Ezekiel-47.fn#Footnote 1.4 — altar|altar]].
 
 ## v2
 
@@ -8,7 +8,7 @@ Then He brought me out by the way of the north gate and led me around on the way
 
 ## v3
 
-When the man went out to the east with the line in His hand, He measured a thousand cubits; and He led me through the water, water that was to the ankles.
+When the [[Ezekiel-47.fn#Footnote 3.1 — man|man]] went out to the east with the line in His hand, He [[Ezekiel-47.fn#Footnote 3.2 — measured|measured]] a [[Ezekiel-47.fn#Footnote 3.3 — thousand|thousand]] cubits; and He led me through the water, water that was to the ankles.
 
 ## v4
 
@@ -16,7 +16,7 @@ Then He measured a thousand cubits and led me through the water, water that was 
 
 ## v5
 
-Then He measured a thousand cubits, and it was a river that I could not pass through; for the water had risen, enough water to swim in, a river that could not be crossed.
+Then He measured a thousand cubits, and it was a river that I could not pass through; for the water had risen, enough water to [[Ezekiel-47.fn#Footnote 5.1 — swim|swim]] in, a river that could not be crossed.
 
 ## v6
 
@@ -28,19 +28,19 @@ And when I returned, there were very many trees on the bank of the river, on one
 
 ## v8
 
-Then said He to me, This water flows out toward the eastern region and goes down into the Arabah and goes to the sea; when it flows into the sea, the water of the sea is healed.
+Then said He to me, This water flows out toward the eastern region and goes down into the Arabah and goes to the [[Ezekiel-47.fn#Footnote 8.1 — sea|sea]]; when it flows into the sea, the water of the sea is [[Ezekiel-47.fn#Footnote 8.2 — healed|healed]].
 
 ## v9
 
-And every living creature which swarms in every place where the river goes shall live, and there will be very many fish when this water comes there. And the water of the sea shall be healed, and everything shall live wherever the river comes.
+And every living creature which swarms in every place where the river goes shall [[Ezekiel-47.fn#Footnote 9.1 — live|live]], and there will be very many [[Ezekiel-47.fn#Footnote 9.2 — fish|fish]] when this water comes there. And the water of the sea shall be healed, and everything shall live wherever the river comes.
 
 ## v10
 
-And fishermen will stand beside the sea from En-gedi even to En-eglaim; it will be a place for the spreading of nets. Their fish shall be according to their kinds, like the fish of the Great Sea, very many.
+And fishermen will stand beside [[Ezekiel-47.fn#Footnote 10.1 — the|the]] sea from [[Ezekiel-47.fn#Footnote 10.2 — En-gedi|En-gedi]] even to [[Ezekiel-47.fn#Footnote 10.3 — En-eglaim|En-eglaim]]; it will be a place for the spreading of nets. Their fish shall be according to their kinds, like the fish of the [[Ezekiel-47.fn#Footnote 10.4 — Great|Great]] Sea, very many.
 
 ## v11
 
-But its swamps and its marshes will not be healed; they shall be left for salt.
+But its [[Ezekiel-47.fn#Footnote 11.1 — swamps|swamps]] and its [[Ezekiel-47.fn#Footnote 11.1 — swamps|marshes]] will not be healed; they shall be left for salt.
 
 ## v12
 
@@ -48,7 +48,7 @@ And on the banks on both sides of the river will grow all kinds of trees for foo
 
 ## v13
 
-Thus says the Lord Jehovah, This is the boundary by which you shall divide up the land as an inheritance for the twelve tribes of Israel; Joseph shall have two portions.
+Thus says the Lord Jehovah, This is the boundary by which you shall divide up the [[Ezekiel-47.fn#Footnote 13.1 — land|land]] as an inheritance for the twelve tribes of Israel; Joseph shall have two portions.
 
 ## v14
 
@@ -56,7 +56,7 @@ And you shall divide it for an inheritance, each one equally with the other, for
 
 ## v15
 
-This shall be the border of the land: on the north side, from the Great Sea by the way of Hethlon, to the entrance of Hamath, and on to Zedad;
+This shall be the border of the land: on the north side, from the [[Ezekiel-47.fn#Footnote 15.1 — Great|Great]] Sea by the way of Hethlon, to the [[Ezekiel-47.fn#Footnote 15.2 — entrance|entrance]] of Hamath, and on to Zedad;
 
 ## v16
 
@@ -68,7 +68,7 @@ Thus the border shall extend from the sea to Hazar-enan on the border of the ter
 
 ## v18
 
-And on the east side, from between Hauran and Damascus, and from between Gilead and the land of Israel, that is, the Jordan, you shall measure from the north border to the eastern sea. This is the east side.
+And on the east side, from between Hauran and Damascus, and from between Gilead and the land of Israel, that is, the Jordan, you shall measure from the north border to the [[Ezekiel-47.fn#Footnote 18.1 — eastern|eastern]] sea. This is the east side.
 
 ## v19
 

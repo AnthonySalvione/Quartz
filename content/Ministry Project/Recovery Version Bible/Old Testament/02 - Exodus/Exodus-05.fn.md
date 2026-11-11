@@ -21,7 +21,7 @@ The book of Exodus describes twelve conflicts between Jehovah and Pharaoh ([[Exo
 
 **Verse:** [[Exodus-05#v1|Exodus 5:1]]
 
-In dealing with Pharaoh, a type of Satan as the persecutor and usurper of His people, God told him that He was Jehovah, the unique self-existing One; the God of Israel, the God of a transformed, victorious, and kingly people; and the God of the Hebrews ([[Exodus-05#v3|v. 3]]), the God of the river crossers. See notes 44 in [[Genesis-02|Gen. 2]], 131 in [[Genesis-28|Gen. 28]], and 181 in [[Exodus-03|Exo. 3]].
+In dealing with Pharaoh, a type of Satan as the persecutor and usurper of His people, God told him that He was Jehovah, the unique self-existing One; the God of Israel, the God of a transformed, victorious, and kingly people; and the God of the Hebrews ([[Exodus-05#v3|v. 3]]), the God of the river crossers. See notes [4⁴](<Genesis-02.fn#Footnote 4.4 — Jehovah>) in [[Genesis-02|Gen. 2]], [13¹](<Genesis-28.fn#Footnote 13.1 — God>) in [[Genesis-28|Gen. 28]], and [18¹](<Exodus-03.fn#Footnote 18.1 — Hebrews>) in [[Exodus-03|Exo. 3]].
 
 ### Footnote 1.3 — feast
 
@@ -43,7 +43,7 @@ Pharaoh, who signifies Satan and also the self and the natural man, was subtle (
 
 **Verse:** [[Exodus-05#v3|Exodus 5:3]]
 
-See note 22¹ in [[Exodus-15|Exodus 15]].
+See [note 22¹](<Exodus-15.fn#Footnote 22.1 — three>) in [[Exodus-15|Exodus 15]].
 
 ## Footnotes for verse 6
 

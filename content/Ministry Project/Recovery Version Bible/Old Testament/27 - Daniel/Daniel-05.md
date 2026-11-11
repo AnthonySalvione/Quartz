@@ -1,10 +1,10 @@
 ## v1
 
-Belshazzar the king made a great feast for a thousand of his lords; and he drank wine before the thousand.
+[[Daniel-05.fn#Footnote 1.1 — Belshazzar|Belshazzar]] the king [[Daniel-05.fn#Footnote 1.2 — made|made]] a great feast for a thousand of his lords; and he [[Daniel-05.fn#Footnote 1.2 — made|drank]] wine before the thousand.
 
 ## v2
 
-Belshazzar, under the influence of the wine, commanded men to bring the gold and silver vessels that Nebuchadnezzar his forefather had taken out of the temple which was in Jerusalem, that the king and his lords, his wives, and his concubines might drink from them.
+Belshazzar, [[Daniel-05.fn#Footnote 2.1 — under|under]] the influence of the wine, commanded men to bring the gold and silver vessels that Nebuchadnezzar his forefather had taken out of the temple which was in Jerusalem, that the king and his lords, his wives, and his concubines might drink from them.
 
 ## v3
 
@@ -12,7 +12,7 @@ Then they brought the golden vessels that had been taken out of the temple of th
 
 ## v4
 
-They drank wine and praised the gods of gold and of silver, of bronze, iron, wood, and stone.
+They drank wine and praised the [[Daniel-05.fn#Footnote 4.1 — gods|gods]] of gold and of silver, of bronze, iron, wood, and stone.
 
 ## v5
 
@@ -68,7 +68,7 @@ Then Daniel answered and said before the king, Let your gifts remain with you, o
 
 ## v18
 
-Regarding you, O king, God the Most High gave to Nebuchadnezzar your forefather kingship, greatness, glory, and majesty;
+Regarding [[Daniel-05.fn#Footnote 18.1 — you|you]], O king, God the Most High gave to Nebuchadnezzar your forefather kingship, greatness, glory, and majesty;
 
 ## v19
 
@@ -96,7 +96,7 @@ Then that part of the hand was sent from before Him, and this writing was inscri
 
 ## v25
 
-And this is the writing that was inscribed: MENE, MENE, TEKEL, UPHARSIN.
+And this is the writing that was inscribed: [[Daniel-05.fn#Footnote 25.1 — MENE|MENE]], MENE, TEKEL, UPHARSIN.
 
 ## v26
 
@@ -116,7 +116,7 @@ Then Belshazzar commanded; and they clothed Daniel in purple and put a chain of 
 
 ## v30
 
-In that very night Belshazzar the Chaldean king was slain.
+In that very night Belshazzar the Chaldean king was [[Daniel-05.fn#Footnote 30.1 — slain|slain]].
 
 ## v31
 

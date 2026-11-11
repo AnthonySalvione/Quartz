@@ -90,20 +90,20 @@ Foxes rove in it.
 
 ## v19
 
-You, O Jehovah, abide forever; /  
+You, O Jehovah, [[Lamentations-05.fn#Footnote 19.1 — abide|abide]] forever; /  
 Your throne is from generation to generation.
 
 ## v20
 
-Why do You forget us forever /  
+[[Lamentations-05.fn#Footnote 20.1 — Why|Why]] do You forget us forever /  
 And forsake us for so long a time?
 
 ## v21
 
-Turn us back to You, O Jehovah, and we will be turned; /  
+[[Lamentations-05.fn#Footnote 21.1 — Turn|Turn]] us back to You, O Jehovah, and we will be turned; /  
 Renew our days as before.
 
 ## v22
 
-Or have You utterly rejected us? /  
-Are You exceedingly angry with us?
+Or have You [[Lamentations-05.fn#Footnote 22.1 — utterly|utterly]] rejected us? /  
+Are You [[Lamentations-05.fn#Footnote 22.1 — utterly|exceedingly]] angry with us?

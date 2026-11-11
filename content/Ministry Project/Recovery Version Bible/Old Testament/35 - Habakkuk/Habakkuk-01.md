@@ -1,6 +1,6 @@
 ## v1
 
-The burden which Habakkuk the prophet saw.
+The burden which [[Habakkuk-01.fn#Footnote 1.1 — Habakkuk|Habakkuk]] the prophet saw.
 
 ## v2
 
@@ -35,7 +35,7 @@ Which you would not believe if it were told you.
 For I am about to raise up the Chaldeans,  
 That bitter and hasty nation  
 That marches through the breadth of the earth  
-To possess habitations that are not theirs.
+To possess habitations that are not [[Habakkuk-01.fn#Footnote 6.1 — theirs|theirs]].
 
 ## v7
 
@@ -73,8 +73,8 @@ This — their strength — is their god.
 
 Are You not from everlasting, O Jehovah,  
 My God, my Holy One? We will not die.  
-O Jehovah, You have appointed them for judgment;  
-And You, O Rock, have established them for correction.
+O Jehovah, You have appointed [[Habakkuk-01.fn#Footnote 12.1 — them|them]] for judgment;  
+And You, O Rock, have established [[Habakkuk-01.fn#Footnote 12.1 — them|them]] for correction.
 
 ## v13
 
@@ -82,7 +82,7 @@ You who are of purer eyes than to behold evil
 And who cannot look upon wrong,  
 Why do You look upon them who deal treacherously  
 And keep silent when the wicked man swallows up  
-Him who is more righteous than he?
+Him who is [[Habakkuk-01.fn#Footnote 13.1 — more|more]] righteous than he?
 
 ## v14
 

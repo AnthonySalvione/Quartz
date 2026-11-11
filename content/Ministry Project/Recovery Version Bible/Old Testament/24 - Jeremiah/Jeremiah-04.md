@@ -15,7 +15,7 @@ And in Him they will glory.
 ## v3
 
 For thus says Jehovah to the men of Judah and to Jerusalem,  
-Break up your fallow ground,  
+Break up your [[Jeremiah-04.fn#Footnote 3.1 — fallow|fallow]] ground,  
 And do not sow among thorns.
 
 ## v4
@@ -40,12 +40,12 @@ Into the fortified cities.
 
 Raise up a standard toward Zion.  
 Seek refuge; do not stay;  
-For I am bringing evil from the north,  
+For I am bringing evil from the [[Jeremiah-04.fn#Footnote 6.1 — north|north]],  
 And great destruction.
 
 ## v7
 
-A lion has come up from his thicket,  
+A [[Jeremiah-04.fn#Footnote 7.1 — lion|lion]] has come up from his thicket,  
 And a destroyer of nations has set out.  
 He has gone forth from his place  
 To make your land a waste;  
@@ -82,7 +82,7 @@ Not for winnowing nor for purging
 
 ## v12
 
-A wind too strong for these will come from Me;  
+A wind too strong for these will come [[Jeremiah-04.fn#Footnote 12.1 — from|from]] Me;  
 Now I will also utter judgments against them.
 
 ## v13

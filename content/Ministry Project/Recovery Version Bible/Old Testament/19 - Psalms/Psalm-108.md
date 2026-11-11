@@ -1,3 +1,6 @@
+> *A Song; a Psalm of David*
+
+---
 ## v1
 
 My heart is fixed, O God;  
@@ -17,7 +20,7 @@ And I will sing psalms to You among the nations.
 ## v4
 
 For Your lovingkindness is higher than the heavens,  
-And Your faithfulness reaches to the sky.
+And Your [[Psalm-108.fn#Footnote 4.1 — faithfulness|faithfulness]] reaches to the sky.
 
 ## v5
 
@@ -27,11 +30,11 @@ And let Your glory be above all the earth.
 ## v6
 
 That Your beloved ones may be delivered,  
-Save with Your right hand, and answer us.
+[[Psalm-108.fn#Footnote 6.1 — Save|Save]] with Your right hand, and answer [[Psalm-108.fn#Footnote 6.2 — us|us]].
 
 ## v7
 
-God has spoken in His holiness: I will exult;  
+God has spoken in His [[Psalm-108.fn#Footnote 7.1 — holiness|holiness]]: I will exult;  
 I will divide Shechem  
 And measure out the Valley of Succoth.
 

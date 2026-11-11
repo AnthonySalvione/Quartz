@@ -79,7 +79,7 @@ Even though he was born poor in his kingdom.
 
 I saw all the living that went about under the sun  
 With the youth, the successor,  
-Who stood up in place of him.
+Who stood up in place of [[Ecclesiastes-04.fn#Footnote 15.1 — him|him]].
 
 ## v16
 

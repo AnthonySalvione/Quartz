@@ -1,6 +1,9 @@
+> *Of David*
+
+---
 ## v1
 
-To You, O Jehovah, / I lift up my soul.
+[[Psalm-25.fn#Footnote 1.1 — To|To]] You, O Jehovah, / I lift up my soul.
 
 ## v2
 
@@ -24,7 +27,7 @@ Remember Your compassions, O Jehovah, / And Your acts of kindness, for they are 
 
 ## v7
 
-The sins of my youth and my transgressions, do not remember; / According to Your lovingkindness, remember me, / For the sake of Your goodness, O Jehovah.
+The [[Psalm-25.fn#Footnote 7.1 — sins|sins]] of my youth and my transgressions, do not remember; / According to Your lovingkindness, remember me, / For the sake of Your goodness, O Jehovah.
 
 ## v8
 
@@ -36,7 +39,7 @@ He guides the lowly in justice / And teaches the lowly His way.
 
 ## v10
 
-All the paths of Jehovah are lovingkindness and truth / To those who observe His covenant and His testimonies.
+All the paths of Jehovah are lovingkindness and truth / To those who observe His covenant and His [[Psalm-25.fn#Footnote 10.1 — testimonies|testimonies]].
 
 ## v11
 
@@ -48,11 +51,11 @@ Who then is the man who fears Jehovah? / Him will He instruct concerning the way
 
 ## v13
 
-His soul will dwell in prosperity, / And his seed will possess the land.
+His soul will dwell in [[Psalm-25.fn#Footnote 13.1 — prosperity|prosperity]], / And his seed will possess the land.
 
 ## v14
 
-The intimate counsel of Jehovah is to those who fear Him, / And His covenant will He make known to them.
+The intimate [[Psalm-25.fn#Footnote 14.1 — counsel|counsel]] of Jehovah is to those who fear Him, / And His [[Psalm-25.fn#Footnote 14.1 — counsel|covenant]] will He make known to them.
 
 ## v15
 
@@ -64,7 +67,7 @@ Turn toward me, and be gracious to me, / For I am alone and afflicted.
 
 ## v17
 
-Relieve the troubles of my heart, / And bring me out of my distresses.
+[[Psalm-25.fn#Footnote 17.1 — Relieve|Relieve]] the troubles of my heart, / And bring me out of my distresses.
 
 ## v18
 
@@ -80,7 +83,7 @@ Keep my soul, and deliver me; / Do not let me be put to shame, / For I take refu
 
 ## v21
 
-May integrity and uprightness preserve me, / For I wait on You.
+May [[Psalm-25.fn#Footnote 21.1 — integrity|integrity]] and [[Psalm-25.fn#Footnote 21.1 — integrity|uprightness]] preserve me, / For I wait on You.
 
 ## v22
 

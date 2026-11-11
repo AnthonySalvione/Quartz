@@ -1,3 +1,6 @@
+> *To the choir director. A Psalm of David; a Song*
+
+---
 ## v1
 
 Praise befits You, O God, in Zion;  
@@ -50,7 +53,7 @@ Shout for joy.
 You visit the earth and water it;  
 You enrich it greatly:  
 The river of God is full of water.  
-You provide men grain, for so You have prepared the earth.
+You provide [[Psalm-65.fn#Footnote 9.1 — men|men]] grain, for so You have prepared [[Psalm-65.fn#Footnote 9.2 — the|the]] earth.
 
 ## v10
 

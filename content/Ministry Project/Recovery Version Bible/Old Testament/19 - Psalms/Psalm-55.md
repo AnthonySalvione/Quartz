@@ -1,6 +1,11 @@
+> *To the choir director: on the stringed instruments. A Maschil of David*
+
+> [!light] Note on Maschil:
+> See note on the superscription of [[Psalm-32|Psa. 32]].
+---
 ## v1
 
-Give ear, O God, to my prayer;  
+[[Psalm-55.fn#Footnote 1.1 — Give|Give]] ear, O God, to my prayer;  
 And do not hide Yourself from my supplication.
 
 ## v2
@@ -66,7 +71,7 @@ Otherwise I could hide myself from him.
 
 ## v13
 
-But it is you, my equal,  
+But it is you, [[Psalm-55.fn#Footnote 13.1 — my|my]] equal,  
 My close friend and my acquaintance.
 
 ## v14
@@ -76,7 +81,7 @@ We walked with the throng in the house of God.
 
 ## v15
 
-Let death surprise them;  
+[[Psalm-55.fn#Footnote 15.1 — Let|Let]] death surprise them;  
 May they go down into Sheol alive.  
 For evil is in their dwelling, in the midst of them.
 
@@ -106,7 +111,7 @@ And they do not fear God.
 
 ## v20
 
-He put forth his hands against those who were at peace with him;  
+[[Psalm-55.fn#Footnote 20.1 — He|He]] put forth his hands against those who were at peace with him;  
 He profaned his covenant.
 
 ## v21

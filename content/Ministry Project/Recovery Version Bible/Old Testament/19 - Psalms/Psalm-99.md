@@ -1,6 +1,6 @@
 ## v1
 
-Jehovah reigns; let the peoples tremble.  
+Jehovah [[Psalm-99.fn#Footnote 1.1 — reigns|reigns]]; let the peoples tremble.  
 He is enthroned between the cherubim; let the earth shake.
 
 ## v2

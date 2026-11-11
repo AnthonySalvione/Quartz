@@ -1,7 +1,10 @@
+> *To the choir director. Of David*
+
+---
 ## v1
 
 In Jehovah have I taken refuge. How can you say to my soul,  
-Flee to the mountains like a bird?
+Flee to [[Psalm-11.fn#Footnote 1.1 — the|the]] mountains like a bird?
 
 ## v2
 
@@ -19,7 +22,7 @@ What will the righteous man do?
 Jehovah is in His holy temple;  
 Jehovah — His throne is in heaven.  
 His eyes behold;  
-His eyelids try the sons of men.
+His [[Psalm-11.fn#Footnote 4.1 — eyelids|eyelids]] try the sons of men.
 
 ## v5
 

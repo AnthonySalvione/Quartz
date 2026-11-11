@@ -27,13 +27,13 @@ The acacia wood of which the altar was made signifies the man Jesus ([[1 Timothy
 
 **Verse:** [[Exodus-27#v1|Exodus 27:1]]
 
-Five is the number of responsibility, and five by five signifies that Christ bore the full responsibility on the cross to fulfill all the requirements of God’s righteousness, holiness, and glory. See note 241 in [[Genesis-03|Gen. 3]].
+Five is the number of responsibility, and five by five signifies that Christ bore the full responsibility on the cross to fulfill all the requirements of God’s righteousness, holiness, and glory. See [note 24¹](<Genesis-03.fn#Footnote 24.1 — cherubim>) in [[Genesis-03|Gen. 3]].
 
 ### Footnote 1.4 — square
 
 **Verse:** [[Exodus-27#v1|Exodus 27:1]]
 
-That the altar was square signifies that the man Jesus was upright, perfect, and without any deficiency, and thus was qualified to be our Substitute and Redeemer (see note 371 in [[Mark-12|Mark 12]]).
+That the altar was square signifies that the man Jesus was upright, perfect, and without any deficiency, and thus was qualified to be our Substitute and Redeemer (see [note 37¹](<Mark-12.fn#Footnote 37.1 — son>) in [[Mark-12|Mark 12]]).
 
 ### Footnote 1.5 — three
 
@@ -77,7 +77,7 @@ The bronze grating, with its rings and poles, is the content of the altar, signi
 
 **Verse:** [[Exodus-27#v4|Exodus 27:4]]
 
-The bronze rings at the four ends of the grating refer to the eternal Spirit (cf. note 121 in [[Exodus-25|Exodus 25]]), through whom Christ offered Himself on the cross to God to accomplish redemption ([[Hebrews-09#v14|Heb. 9:14]] and note 2). The eternal Spirit is the power, the strength, the efficacy, of Christ’s redemption. The function of the rings was twofold: (1) to bear the weight of the grating, on which the wood and the sacrifices were burned, and (2) to provide a way for the altar to move ([[Exodus-38#v5|38:5]], [[Exodus-38#v7|7]]). The fire on the altar came from God ([[Leviticus-09#v24|Lev. 9:24]]; cf. [[2 Chronicles-07#v1|2 Chron. 7:1]]) and never ceased ([[Leviticus-06#v13|Lev. 6:13]]); while the altar was moving, the fire was burning continually. Both the burning and the moving depended on the four rings. This signifies that it is the eternal Spirit who makes Christ’s redemption effective and who is the power for the move of the cross of Christ to the four corners of the earth ([[1 Corinthians-01#v18|1 Cor. 1:18]]; [[Romans-01#v16|Rom. 1:16]]; [[Romans-15#v18|15:18-19]]; [[Acts-01#v8|Acts 1:8]]; [[1 Thessalonians-01#v5|1 Thes. 1:5]]). The rings being of the same material as the grating and forming one piece with the grating indicates that the life-giving Spirit is the issue of the redeeming Christ ([[1 Corinthians-15#v45|1 Cor. 15:45]]) and of His redemption ([[Acts-02#v38|Acts 2:38]]; [[Galatians-03#v13|Gal. 3:13-14]]) and identifies Christ with the Spirit ([[2 Corinthians-03#v17|2 Cor. 3:17]]). Christ and His redemption should not be separated from the Spirit ([[Revelation-05#v6|Rev. 5:6]]).
+The bronze rings at the four ends of the grating refer to the eternal Spirit (cf. [note 12¹](<Exodus-25.fn#Footnote 12.1 — rings>) in [[Exodus-25|Exodus 25]]), through whom Christ offered Himself on the cross to God to accomplish redemption ([[Hebrews-09#v14|Heb. 9:14]] and [note 2](<Hebrews-09.fn#Footnote 14.2 — eternal>)). The eternal Spirit is the power, the strength, the efficacy, of Christ’s redemption. The function of the rings was twofold: (1) to bear the weight of the grating, on which the wood and the sacrifices were burned, and (2) to provide a way for the altar to move ([[Exodus-38#v5|38:5]], [[Exodus-38#v7|7]]). The fire on the altar came from God ([[Leviticus-09#v24|Lev. 9:24]]; cf. [[2 Chronicles-07#v1|2 Chron. 7:1]]) and never ceased ([[Leviticus-06#v13|Lev. 6:13]]); while the altar was moving, the fire was burning continually. Both the burning and the moving depended on the four rings. This signifies that it is the eternal Spirit who makes Christ’s redemption effective and who is the power for the move of the cross of Christ to the four corners of the earth ([[1 Corinthians-01#v18|1 Cor. 1:18]]; [[Romans-01#v16|Rom. 1:16]]; [[Romans-15#v18|15:18-19]]; [[Acts-01#v8|Acts 1:8]]; [[1 Thessalonians-01#v5|1 Thes. 1:5]]). The rings being of the same material as the grating and forming one piece with the grating indicates that the life-giving Spirit is the issue of the redeeming Christ ([[1 Corinthians-15#v45|1 Cor. 15:45]]) and of His redemption ([[Acts-02#v38|Acts 2:38]]; [[Galatians-03#v13|Gal. 3:13-14]]) and identifies Christ with the Spirit ([[2 Corinthians-03#v17|2 Cor. 3:17]]). Christ and His redemption should not be separated from the Spirit ([[Revelation-05#v6|Rev. 5:6]]).
 
 ## Footnotes for verse 5
 
@@ -107,21 +107,21 @@ The poles made of acacia wood overlaid with bronze, signifying Christ as a man u
 
 **Verse:** [[Exodus-27#v9|Exodus 27:9]]
 
-The outer court of the tabernacle signifies the sphere and boundary of God’s dwelling place. The area of the outer court formed a rectangle one hundred cubits in length and fifty cubits in width ([[Exodus-27#v9|vv. 9-13]]). This is half of a square with sides of one hundred cubits, signifying that the outer court was a testimony, with one half present and the other half yet to come. The New Jerusalem, as the consummation of God’s building, will be a complete whole, a square, not a rectangle ([[Revelation-21#v16|Rev. 21:16]]). Cf. note 103 in [[Exodus-25|Exodus 25]].
+The outer court of the tabernacle signifies the sphere and boundary of God’s dwelling place. The area of the outer court formed a rectangle one hundred cubits in length and fifty cubits in width ([[Exodus-27#v9|vv. 9-13]]). This is half of a square with sides of one hundred cubits, signifying that the outer court was a testimony, with one half present and the other half yet to come. The New Jerusalem, as the consummation of God’s building, will be a complete whole, a square, not a rectangle ([[Revelation-21#v16|Rev. 21:16]]). Cf. [note 10³](<Exodus-25.fn#Footnote 10.3 — two>) in [[Exodus-25|Exodus 25]].
 
 ### Footnote 9.2 — hangings
 
 **Verse:** [[Exodus-27#v9|Exodus 27:9]]
 
-When the tabernacle was observed from a distance, its most prominent feature was the fine linen hangings of the outer court. These hangings were both the outward expression and the boundary of God’s building. The hangings of the court signify Christ as God’s righteousness, who is made righteousness to the church ([[1 Corinthians-01#v30|1 Cor. 1:30]]) and is lived out of the church to be its boundary and expression (see notes 201 in [[Matthew-05|Matt. 5]], 95 in [[Philippians-03|Phil. 3]], and 82 in [[Revelation-19|Rev. 19]]). 
+When the tabernacle was observed from a distance, its most prominent feature was the fine linen hangings of the outer court. These hangings were both the outward expression and the boundary of God’s building. The hangings of the court signify Christ as God’s righteousness, who is made righteousness to the church ([[1 Corinthians-01#v30|1 Cor. 1:30]]) and is lived out of the church to be its boundary and expression (see notes [20¹](<Matthew-05.fn#Footnote 20.1 — righteousness>) in [[Matthew-05|Matt. 5]], [9⁵](<Philippians-03.fn#Footnote 9.5 — righteousness>) in [[Philippians-03|Phil. 3]], and [8²](<Revelation-19.fn#Footnote 8.2 — righteousnesses>) in [[Revelation-19|Rev. 19]]). 
 
-With the tabernacle, the expression of God’s building was righteousness outwardly, signified by linen, and holiness inwardly, signified by gold. Righteousness is the expression of God in His deeds, and holiness is the expression of God in His nature. The outward expression of the church should be righteousness toward man, and the inward expression should be holiness toward God (cf. [[Ephesians-04#v24|Eph. 4:24]]). We must have the outward expression of righteousness before we can have the inward expression of holiness (see notes 162 in [[Isaiah-05|Isa. 5]] and 191 in [[Romans-06|Rom. 6]]).
+With the tabernacle, the expression of God’s building was righteousness outwardly, signified by linen, and holiness inwardly, signified by gold. Righteousness is the expression of God in His deeds, and holiness is the expression of God in His nature. The outward expression of the church should be righteousness toward man, and the inward expression should be holiness toward God (cf. [[Ephesians-04#v24|Eph. 4:24]]). We must have the outward expression of righteousness before we can have the inward expression of holiness (see notes [16²](<Isaiah-05.fn#Footnote 16.2 — holy>) in [[Isaiah-05|Isa. 5]] and [19¹](<Romans-06.fn#Footnote 19.1 — unto>) in [[Romans-06|Rom. 6]]).
 
 ### Footnote 9.3 — linen
 
 **Verse:** [[Exodus-27#v9|Exodus 27:9]]
 
-See notes 42 in [[Exodus-25|Exodus 25]] and 12 in [[Exodus-26|Exodus 26]]. The church’s expression of righteousness should be the expression of Christ’s human living.
+See notes [4²](<Exodus-25.fn#Footnote 4.2 — fine>) in [[Exodus-25|Exodus 25]] and [1²](<Exodus-26.fn#Footnote 1.2 — fine>) in [[Exodus-26|Exodus 26]]. The church’s expression of righteousness should be the expression of Christ’s human living.
 
 ## Footnotes for verse 10
 
@@ -129,7 +129,7 @@ See notes 42 in [[Exodus-25|Exodus 25]] and 12 in [[Exodus-26|Exodus 26]]. The c
 
 **Verse:** [[Exodus-27#v10|Exodus 27:10]]
 
-For the boundary of God’s building, the pillars of bronze signify the Christ who was judged by God, as the standing and supporting strength, and the bronze sockets signify the Christ who was judged by God, as the base (see note 372 in [[Exodus-26|Exodus 26]]). In the outer court the most prominent materials are bronze and linen. That the linen hangings were on bronze pillars that stood in bronze sockets signifies that the righteousness of God is the issue of God’s judgment. In Christ there is the element of God’s judgment. When we live the judged Christ, everything related to us is under God’s judgment. As a result, we become sockets and pillars to bear the righteousness of God, which is God’s expression as the boundary and sphere of His dwelling place.
+For the boundary of God’s building, the pillars of bronze signify the Christ who was judged by God, as the standing and supporting strength, and the bronze sockets signify the Christ who was judged by God, as the base (see [note 37²](<Exodus-26.fn#Footnote 37.2 — bronze>) in [[Exodus-26|Exodus 26]]). In the outer court the most prominent materials are bronze and linen. That the linen hangings were on bronze pillars that stood in bronze sockets signifies that the righteousness of God is the issue of God’s judgment. In Christ there is the element of God’s judgment. When we live the judged Christ, everything related to us is under God’s judgment. As a result, we become sockets and pillars to bear the righteousness of God, which is God’s expression as the boundary and sphere of His dwelling place.
 
 ### Footnote 10.2 — hooks
 
@@ -143,13 +143,13 @@ The hooks and the connecting rods of the pillars were of silver, and the capital
 
 **Verse:** [[Exodus-27#v16|Exodus 27:16]]
 
-On the east side of the court was a gate of twenty cubits and linen hangings of fifteen cubits on the two sides of the gate ([[Exodus-27#v13|vv. 13-16]]). The screen of fine twined linen and blue and purple and scarlet strands (see notes 41 and 42 in [[Exodus-25|Exodus 25]]) for the gate signifies the redeeming Christ as the entrance into God’s building. That the gate had four pillars with four openings signifies that God’s building is open toward men from the four corners of the earth (see [[Exodus-27#v2|vv. 2]], [[Exodus-27#v4|4]]). The fact that there were three pillars and three sockets on the two sides of the gate, and four pillars and four sockets for the gate, signifies that the appearance of the gate of the court of the tabernacle is that of man (signified by the number four) bearing the Triune God (signified by three) as a testimony (signified by two). The goal of the gospel is to cause repentant sinners to pass through the gate of God’s judgment, where everything related to them is judged, and enter into God’s building, the church, in which they bear as a testimony the Triune God involved with man.
+On the east side of the court was a gate of twenty cubits and linen hangings of fifteen cubits on the two sides of the gate ([[Exodus-27#v13|vv. 13-16]]). The screen of fine twined linen and blue and purple and scarlet strands (see notes [4¹](<Exodus-25.fn#Footnote 4.1 — blue>) and [4²](<Exodus-25.fn#Footnote 4.2 — fine>) in [[Exodus-25|Exodus 25]]) for the gate signifies the redeeming Christ as the entrance into God’s building. That the gate had four pillars with four openings signifies that God’s building is open toward men from the four corners of the earth (see [[Exodus-27#v2|vv. 2]], [[Exodus-27#v4|4]]). The fact that there were three pillars and three sockets on the two sides of the gate, and four pillars and four sockets for the gate, signifies that the appearance of the gate of the court of the tabernacle is that of man (signified by the number four) bearing the Triune God (signified by three) as a testimony (signified by two). The goal of the gospel is to cause repentant sinners to pass through the gate of God’s judgment, where everything related to them is judged, and enter into God’s building, the church, in which they bear as a testimony the Triune God involved with man.
 
 ### Footnote 16.2 — embroiderer
 
 **Verse:** [[Exodus-27#v16|Exodus 27:16]]
 
-See note 1⁵ in [[Exodus-26|Exodus 26]].
+See [note 1⁵](<Exodus-26.fn#Footnote 1.5 — skillful>) in [[Exodus-26|Exodus 26]].
 
 ## Footnotes for verse 18
 
@@ -171,7 +171,7 @@ The linen hangings between two bronze pillars were five cubits wide by five cubi
 
 **Verse:** [[Exodus-27#v19|Exodus 27:19]]
 
-The two sets of bronze pegs, for the tabernacle and for the outer court, signify standing and holding power. This power is of bronze, of judgment (see note 372 in [[Exodus-26|Exodus 26]]). The scene in the outer court is filled with bronze, with God’s judgment. God’s judgment is the strong base and the standing strength in God’s building. In the church life the more we place ourselves under God’s judgment, the more stable we will be.
+The two sets of bronze pegs, for the tabernacle and for the outer court, signify standing and holding power. This power is of bronze, of judgment (see [note 37²](<Exodus-26.fn#Footnote 37.2 — bronze>) in [[Exodus-26|Exodus 26]]). The scene in the outer court is filled with bronze, with God’s judgment. God’s judgment is the strong base and the standing strength in God’s building. In the church life the more we place ourselves under God’s judgment, the more stable we will be.
 
 ### Footnote 19.2 — bronze
 
@@ -185,7 +185,7 @@ According to the spiritual significances portrayed in the tabernacle and its fur
 
 **Verse:** [[Exodus-27#v20|Exodus 27:20]]
 
-The olive tree signifies Christ (cf. [[Romans-11#v17|Rom. 11:17]]), and the oil of beaten olives signifies the Spirit of Christ produced through Christ’s process of incarnation, human living, crucifixion, and resurrection ([[1 Corinthians-15#v45|1 Cor. 15:45]]; [[Romans-08#v9|Rom. 8:9]] and note 4).
+The olive tree signifies Christ (cf. [[Romans-11#v17|Rom. 11:17]]), and the oil of beaten olives signifies the Spirit of Christ produced through Christ’s process of incarnation, human living, crucifixion, and resurrection ([[1 Corinthians-15#v45|1 Cor. 15:45]]; [[Romans-08#v9|Rom. 8:9]] and [note 4](<Romans-08.fn#Footnote 9.4 — Spirit>)).
 
 ### Footnote 20.2 — make
 

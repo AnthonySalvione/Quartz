@@ -1,3 +1,6 @@
+> *To the choir director. A Psalm of David*
+
+---
 ## v1
 
 The heavens declare the glory of God, / And the expanse proclaims the work of His hands.
@@ -12,7 +15,7 @@ There is no speech and there are no words; / Their voice is not heard.
 
 ## v4
 
-In all the earth their line has gone forth, / And their words to the end of the world. / In the heavens He has made a tent for the sun,
+In all the earth their line has gone forth, / And their words to the end of the world. / In [[Psalm-19.fn#Footnote 4.1 — the|the]] heavens He has made a tent for the sun,
 
 ## v5
 
@@ -24,7 +27,7 @@ His going forth is from the end of the heavens, / And his circuit is unto their 
 
 ## v7
 
-The law of Jehovah is perfect, / Restoring the soul; / The testimony of Jehovah is faithful, / Making the simple wise;
+The [[Psalm-19.fn#Footnote 7.1 — law|law]] of Jehovah is perfect, / Restoring the soul; / The [[Psalm-19.fn#Footnote 7.1 — law|testimony]] of Jehovah is faithful, / Making the simple wise;
 
 ## v8
 
@@ -44,7 +47,7 @@ Moreover by them Your servant is warned; / In keeping them there is much reward.
 
 ## v12
 
-Who can discern his errors? / Clear me of my secret faults.
+Who can discern his errors? / [[Psalm-19.fn#Footnote 12.1 — Clear|Clear]] me of my secret faults.
 
 ## v13
 

@@ -45,7 +45,7 @@ According to Leviticus, there are five main kinds of offerings: the burnt offeri
 
 **Verse:** [[Leviticus-01#v2|Leviticus 1:2]]
 
-All the kinds of cattle used in burnt offerings in this chapter were living animals that move and act according to their will. Christ was such a living one, with a strong will but with His will subdued to be subject to God. He never became blemished ([[Leviticus-01#v3|v. 3]]) because His will was always subdued to be subject to God’s will ([[John-05#v30|John 5:30]]; [[John-06#v38|6:38]]). As the burnt offering Christ went to the cross in order to do the will of God ([[Hebrews-10#v5|Heb. 10:5-10]] and note 72).
+All the kinds of cattle used in burnt offerings in this chapter were living animals that move and act according to their will. Christ was such a living one, with a strong will but with His will subdued to be subject to God. He never became blemished ([[Leviticus-01#v3|v. 3]]) because His will was always subdued to be subject to God’s will ([[John-05#v30|John 5:30]]; [[John-06#v38|6:38]]). As the burnt offering Christ went to the cross in order to do the will of God ([[Hebrews-10#v5|Heb. 10:5-10]] and [[Hebrews-10.fn#Footnote 7.2 — will|note 7²]]).
 
 ## Footnotes for verse 3
 
@@ -65,7 +65,7 @@ As the burnt offering Christ is full of strength (a male) and freshness (young�
 
 **Verse:** [[Leviticus-01#v3|Leviticus 1:3]]
 
-The burnt offering was offered at the entrance of the Tent of Meeting, i.e., in the outer court of the tabernacle. The outer court signifies the earth (cf. note 92 in [[Revelation-06|Rev. 6]]), and the altar signifies the cross. The cross on which Christ offered Himself was on earth, but His offering of Himself was before God, and He was accepted by God and before God.
+The burnt offering was offered at the entrance of the Tent of Meeting, i.e., in the outer court of the tabernacle. The outer court signifies the earth (cf. [note 9²](<Revelation-06.fn#Footnote 9.2 — underneath>) in [[Revelation-06|Rev. 6]]), and the altar signifies the cross. The cross on which Christ offered Himself was on earth, but His offering of Himself was before God, and He was accepted by God and before God.
 
 ## Footnotes for verse 4
 
@@ -73,13 +73,13 @@ The burnt offering was offered at the entrance of the Tent of Meeting, i.e., in 
 
 **Verse:** [[Leviticus-01#v4|Leviticus 1:4]]
 
-The laying on of hands signifies not substitution but identification, union ([[Acts-13#v3|Acts 13:3]] and note 2). By laying our hands on Christ as our offering, we are joined to Him, and He and we become one. In such a union all our weaknesses, defects, and faults are taken on by Him, and all His virtues become ours. This requires us to exercise our spirit through the proper prayer so that we may be one with Him in an experiential way (cf. [[1 Corinthians-06#v17|1 Cor. 6:17]] and notes). When we lay our hands on Christ through prayer, the life-giving Spirit, who is the very Christ on whom we lay our hands ([[1 Corinthians-15#v45|1 Cor. 15:45]]; [[2 Corinthians-03#v6|2 Cor. 3:6]], [[2 Corinthians-03#v17|17]]), will immediately move and work within us to live in us a life that is a repetition of the life that Christ lived on earth, the life of the burnt offering.
+The laying on of hands signifies not substitution but identification, union ([[Acts-13#v3|Acts 13:3]] and [note 2](<Acts-13.fn#Footnote 3.2 — laid>)). By laying our hands on Christ as our offering, we are joined to Him, and He and we become one. In such a union all our weaknesses, defects, and faults are taken on by Him, and all His virtues become ours. This requires us to exercise our spirit through the proper prayer so that we may be one with Him in an experiential way (cf. [[1 Corinthians-06#v17|1 Cor. 6:17]] and notes). When we lay our hands on Christ through prayer, the life-giving Spirit, who is the very Christ on whom we lay our hands ([[1 Corinthians-15#v45|1 Cor. 15:45]]; [[2 Corinthians-03#v6|2 Cor. 3:6]], [[2 Corinthians-03#v17|17]]), will immediately move and work within us to live in us a life that is a repetition of the life that Christ lived on earth, the life of the burnt offering.
 
 ### Footnote 4.2 — expiation
 
 **Verse:** [[Leviticus-01#v4|Leviticus 1:4]]
 
-Although the burnt offering is not for redemption, it nevertheless makes expiation for the offerer (see note 11 in [[Leviticus-16|Leviticus 16]]). For this reason, the burnt offering must be a life that has blood to shed for expiation ([[Hebrews-09#v22|Heb. 9:22]]). Because we are not absolutely for God, we need Christ as our burnt offering to appease our situation with God that we may have peace with Him. Because the burnt offering is for expiation, it can be eaten only by God ([[Leviticus-01#v9|v. 9]]; [[Leviticus-06#v30|6:30]]). We are not qualified to eat it.
+Although the burnt offering is not for redemption, it nevertheless makes expiation for the offerer (see [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Leviticus 16]]). For this reason, the burnt offering must be a life that has blood to shed for expiation ([[Hebrews-09#v22|Heb. 9:22]]). Because we are not absolutely for God, we need Christ as our burnt offering to appease our situation with God that we may have peace with Him. Because the burnt offering is for expiation, it can be eaten only by God ([[Leviticus-01#v9|v. 9]]; [[Leviticus-06#v30|6:30]]). We are not qualified to eat it.
 
 ## Footnotes for verse 5
 
@@ -131,7 +131,7 @@ The head of the burnt offering typifies Christ’s wisdom; the fat signifies His
 
 The washing of the inward parts and the legs of the burnt offering does not imply that Christ was dirty; rather, it indicates that Christ’s inward parts and His daily walk were continually being washed by the Holy Spirit, signified by the water ([[John-07#v38|John 7:38-39]]), to keep Him from becoming defiled by His contact with earthly things. 
 
-In order to offer Christ to God as our burnt offering, we need to experience Him in His experiences and offer Him to God according to our experiences of Him ([[1 Peter-02#v5|1 Pet. 2:5]]; [[Hebrews-13#v15|Heb. 13:15]]). In particular, we need to experience Him in His being slaughtered ([[Romans-08#v36|Rom. 8:36]]; [[2 Corinthians-04#v11|2 Cor. 4:11]]), skinned ([[Matthew-05#v11|Matt. 5:11]]; [[Acts-24#v5|Acts 24:5-6]]; [[2 Corinthians-06#v8|2 Cor. 6:8]]; [[2 Corinthians-12#v16|12:16-18]]), and cut into pieces ([[1 Corinthians-04#v13|1 Cor. 4:13]]). We also need to experience Him in His wisdom ([[1 Corinthians-01#v24|1 Cor. 1:24]], [[1 Corinthians-01#v30|30]]; [[1 Corinthians-02#v7|2:7]]; [[Colossians-01#v26|Col. 1:26-27]]), in His being a delight to God ([[2 Corinthians-05#v9|2 Cor. 5:9]]; [[Galatians-01#v10|Gal. 1:10]]; [[Romans-14#v18|Rom. 14:18]]), in His inward parts ([[Philippians-02#v5|Phil. 2:5]]; [[1 Corinthians-02#v16|1 Cor. 2:16b]]; [[1 Corinthians-16#v24|16:24]]; [[Philippians-01#v8|Phil. 1:8]]; [[2 Corinthians-11#v10|2 Cor. 11:10]]), in His walk ([[Matthew-11#v29|Matt. 11:29]]; [[Ephesians-04#v20|Eph. 4:20]]; [[1 Corinthians-11#v1|1 Cor. 11:1]]; [[1 Peter-02#v21|1 Pet. 2:21]]), and in His being kept by the Holy Spirit from defilement ([[1 Corinthians-06#v11|1 Cor. 6:11]]; [[Titus-03#v5|Titus 3:5]]). Experiencing Christ in His experiences is not a matter of imitating Christ outwardly but a matter of living Him in our daily life ([[Galatians-02#v20|Gal. 2:20]]; [[Philippians-01#v21|Phil. 1:21]]). The way in which we offer Christ as the burnt offering is actually a display and review of our daily experience of Christ. See note 141.
+In order to offer Christ to God as our burnt offering, we need to experience Him in His experiences and offer Him to God according to our experiences of Him ([[1 Peter-02#v5|1 Pet. 2:5]]; [[Hebrews-13#v15|Heb. 13:15]]). In particular, we need to experience Him in His being slaughtered ([[Romans-08#v36|Rom. 8:36]]; [[2 Corinthians-04#v11|2 Cor. 4:11]]), skinned ([[Matthew-05#v11|Matt. 5:11]]; [[Acts-24#v5|Acts 24:5-6]]; [[2 Corinthians-06#v8|2 Cor. 6:8]]; [[2 Corinthians-12#v16|12:16-18]]), and cut into pieces ([[1 Corinthians-04#v13|1 Cor. 4:13]]). We also need to experience Him in His wisdom ([[1 Corinthians-01#v24|1 Cor. 1:24]], [[1 Corinthians-01#v30|30]]; [[1 Corinthians-02#v7|2:7]]; [[Colossians-01#v26|Col. 1:26-27]]), in His being a delight to God ([[2 Corinthians-05#v9|2 Cor. 5:9]]; [[Galatians-01#v10|Gal. 1:10]]; [[Romans-14#v18|Rom. 14:18]]), in His inward parts ([[Philippians-02#v5|Phil. 2:5]]; [[1 Corinthians-02#v16|1 Cor. 2:16b]]; [[1 Corinthians-16#v24|16:24]]; [[Philippians-01#v8|Phil. 1:8]]; [[2 Corinthians-11#v10|2 Cor. 11:10]]), in His walk ([[Matthew-11#v29|Matt. 11:29]]; [[Ephesians-04#v20|Eph. 4:20]]; [[1 Corinthians-11#v1|1 Cor. 11:1]]; [[1 Peter-02#v21|1 Pet. 2:21]]), and in His being kept by the Holy Spirit from defilement ([[1 Corinthians-06#v11|1 Cor. 6:11]]; [[Titus-03#v5|Titus 3:5]]). Experiencing Christ in His experiences is not a matter of imitating Christ outwardly but a matter of living Him in our daily life ([[Galatians-02#v20|Gal. 2:20]]; [[Philippians-01#v21|Phil. 1:21]]). The way in which we offer Christ as the burnt offering is actually a display and review of our daily experience of Christ. See [note 14¹](<Leviticus-01.fn#Footnote 14.1 — birds>).
 
 ### Footnote 9.2 — burn
 
@@ -157,7 +157,7 @@ As the burnt offering Christ lived a life that was absolutely for God’s satisf
 
 **Verse:** [[Leviticus-01#v12|Leviticus 1:12]]
 
-With this category of burnt offering there is no skinning, indicating that the offerer has not experienced Christ’s being stripped of the outward expression of His human virtues (see note 61 and note 91, par. 2).
+With this category of burnt offering there is no skinning, indicating that the offerer has not experienced Christ’s being stripped of the outward expression of His human virtues (see [note 6¹](<Leviticus-01.fn#Footnote 6.1 — skin>) and note [9¹](<Leviticus-01.fn#Footnote 9.1 — wash>), par. 2).
 
 ## Footnotes for verse 14
 
@@ -173,4 +173,4 @@ Offering the burnt offering at the Tent of Meeting typifies the offering of Chri
 
 **Verse:** [[Leviticus-01#v16|Leviticus 1:16]]
 
-See note 10¹ in [[Leviticus-06|Leviticus 6]].
+See [note 10¹](<Leviticus-06.fn#Footnote 10.1 — ashes>) in [[Leviticus-06|Leviticus 6]].

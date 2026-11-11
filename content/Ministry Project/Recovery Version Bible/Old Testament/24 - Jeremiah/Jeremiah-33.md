@@ -16,7 +16,7 @@ For thus says Jehovah the God of Israel concerning the houses of this city and c
 
 ## v5
 
-And who came to fight with the Chaldeans and to fill the houses with the corpses of men whom I have struck in My anger and My wrath, and this city from which I have hidden My face because of all their wickedness:
+And who came to fight with the Chaldeans and to fill [[Jeremiah-33.fn#Footnote 5.1 — the|the]] houses with the corpses of men whom I have struck in My anger and My wrath, and this city from which I have hidden My face because of all their wickedness:
 
 ## v6
 
@@ -32,7 +32,7 @@ And I will cleanse them from all their iniquity, by which they have sinned again
 
 ## v9
 
-And it will be a name of gladness and a praise and a glory to Me before all the nations of the earth, who will hear of all the good that I am about to do for them; and they will fear and tremble because of all the good and because of all the peace that I am about to provide for it.
+And [[Jeremiah-33.fn#Footnote 9.1 — it|it]] will be a name of gladness and a praise and a glory to Me before all the nations of the earth, who will hear of all the good that I am about to do for them; and they will fear and tremble because of all the good and because of all the peace that I am about to provide for it.
 
 ## v10
 
@@ -56,11 +56,11 @@ Indeed, days are coming, declares Jehovah, when I will establish the good word w
 
 ## v15
 
-In those days and at that time I will cause a Shoot of righteousness to shoot forth unto David, and He will execute justice and righteousness in the land.
+In those days and at that time I will cause a [[Jeremiah-33.fn#Footnote 15.1 — Shoot|Shoot]] of righteousness to shoot forth unto David, and He will execute justice and righteousness in the land.
 
 ## v16
 
-In those days Judah will be saved, and Jerusalem will dwell securely; and this is the name by which she will be called: Jehovah our righteousness.
+In those days Judah will be saved, and Jerusalem will dwell securely; and this is the name by which [[Jeremiah-33.fn#Footnote 16.1 — she|she]] will be called: Jehovah our righteousness.
 
 ## v17
 
@@ -76,7 +76,7 @@ And the word of Jehovah came to Jeremiah, saying,
 
 ## v20
 
-Thus says Jehovah, If you can break My covenant with respect to the day and My covenant with respect to the night, so that day and night will not be at their appointed time,
+Thus says Jehovah, [[Jeremiah-33.fn#Footnote 20.1 — If|If]] you can break My covenant with respect to the day and My covenant with respect to the night, so that day and night will not be at their appointed time,
 
 ## v21
 
@@ -84,7 +84,7 @@ Then also My covenant can be broken with David My servant, so that he will not h
 
 ## v22
 
-As the host of heaven cannot be numbered and the sand of the sea cannot be measured, so I will multiply the seed of David My servant and the Levites who minister to Me.
+As the [[Jeremiah-33.fn#Footnote 22.1 — host|host]] of heaven cannot be numbered and the [[Jeremiah-33.fn#Footnote 22.1 — host|sand]] of the sea cannot be measured, so I will multiply the seed of David My servant and the Levites who minister to Me.
 
 ## v23
 

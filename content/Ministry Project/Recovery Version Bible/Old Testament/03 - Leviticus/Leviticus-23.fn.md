@@ -21,7 +21,7 @@ The feasts are for rest and enjoyment, both of which are types of Christ as our 
 
 **Verse:** [[Leviticus-23#v2|Leviticus 23:2]]
 
-The feasts appointed by Jehovah were holy convocations, special assemblies of God’s people called for a special and particular purpose. These signify the gathering of the believers as the church (see note 224 in [[Ephesians-01|Eph. 1]]) to have a corporate rest and enjoyment of Christ before God, with God, and with one another.
+The feasts appointed by Jehovah were holy convocations, special assemblies of God’s people called for a special and particular purpose. These signify the gathering of the believers as the church (see [note 22⁴](<Ephesians-01.fn#Footnote 22.4 — church>) in [[Ephesians-01|Eph. 1]]) to have a corporate rest and enjoyment of Christ before God, with God, and with one another.
 
 ## Footnotes for verse 3
 
@@ -75,7 +75,7 @@ The presenting of an offering by fire to Jehovah for seven days (a full course o
 
 **Verse:** [[Leviticus-23#v10|Leviticus 23:10]]
 
-The third annual feast, the Feast of Firstfruits, signifies the resurrected Christ as the firstfruits ([[1 Corinthians-15#v20|1 Cor. 15:20]]) for our enjoyment as a feast in His resurrection (see notes 202 in [[1 Corinthians-15|1 Cor. 15]] and 531 in [[Matthew-27|Matt. 27]]). Christ was crucified at the time of the Feast of the Passover ([[Mark-14#v12|Mark 14:12]] and note 2), and then on the third day ([[1 Corinthians-15#v4|1 Cor. 15:4]]), the day after the Sabbath ([[Leviticus-23#v11|v. 11]]; [[John-20#v1|John 20:1]]), He was resurrected. Christ’s resurrection was the fulfillment of the Feast of Firstfruits and is the reality of that feast.
+The third annual feast, the Feast of Firstfruits, signifies the resurrected Christ as the firstfruits ([[1 Corinthians-15#v20|1 Cor. 15:20]]) for our enjoyment as a feast in His resurrection (see notes [20²](<1 Corinthians-15.fn#Footnote 20.2 — firstfruits>) in [[1 Corinthians-15|1 Cor. 15]] and [53¹](<Matthew-27.fn#Footnote 53.1 — came>) in [[Matthew-27|Matt. 27]]). Christ was crucified at the time of the Feast of the Passover ([[Mark-14#v12|Mark 14:12]] and [note 2](<Mark-14.fn#Footnote 12.2 — sacrificed>)), and then on the third day ([[1 Corinthians-15#v4|1 Cor. 15:4]]), the day after the Sabbath ([[Leviticus-23#v11|v. 11]]; [[John-20#v1|John 20:1]]), He was resurrected. Christ’s resurrection was the fulfillment of the Feast of Firstfruits and is the reality of that feast.
 
 ## Footnotes for verse 11
 
@@ -105,7 +105,7 @@ The meal offering here signifies the resurrected Christ as our meal offering min
 
 **Verse:** [[Leviticus-23#v13|Leviticus 23:13]]
 
-The five basic offerings in [[Leviticus-01#v1|1:1]]—[[Leviticus-06#v7|6:7]] are types of various aspects of what Christ is to God on our behalf. The drink offering was in addition to the basic offerings and was poured out on one of the basic offerings ([[Numbers-15#v1|Num. 15:1-10]]; [[Numbers-28#v7|28:7-10]]). The drink offering offered with the burnt offering ([[Leviticus-23#v12|v. 12]]) and the meal offering at the Feast of Firstfruits signifies the resurrected Christ in His human life (in His living absolutely for God and His being poured out on the cross—[[Isaiah-53#v12|Isa. 53:12b]]; [[Philippians-02#v5|Phil. 2:5-8]]), offered to God in His resurrection for God’s enjoyment. Cf. [[Philippians-02#v17|Phil. 2:17]] and note 1; [[2 TImothy-04#v6|2 Tim. 4:6]] and note 1.
+The five basic offerings in [[Leviticus-01#v1|1:1]]—[[Leviticus-06#v7|6:7]] are types of various aspects of what Christ is to God on our behalf. The drink offering was in addition to the basic offerings and was poured out on one of the basic offerings ([[Numbers-15#v1|Num. 15:1-10]]; [[Numbers-28#v7|28:7-10]]). The drink offering offered with the burnt offering ([[Leviticus-23#v12|v. 12]]) and the meal offering at the Feast of Firstfruits signifies the resurrected Christ in His human life (in His living absolutely for God and His being poured out on the cross—[[Isaiah-53#v12|Isa. 53:12b]]; [[Philippians-02#v5|Phil. 2:5-8]]), offered to God in His resurrection for God’s enjoyment. Cf. [[Philippians-02#v17|Phil. 2:17]] and [note 1](<Philippians-02.fn#Footnote 17.1 — drink>); [[2 TImothy-04#v6|2 Tim. 4:6]] and [note 1](<2 TImothy-04.fn#Footnote 6.1 — poured>).
 
 ## Footnotes for verse 14
 
@@ -113,7 +113,7 @@ The five basic offerings in [[Leviticus-01#v1|1:1]]—[[Leviticus-06#v7|6:7]] ar
 
 **Verse:** [[Leviticus-23#v14|Leviticus 23:14]]
 
-This signifies that the resurrected Christ ascended to the heavens and was offered to God with all the fruit in His resurrection as God’s food for God’s satisfaction first ([[John-20#v17|John 20:17]] and note 1); then, He became man’s supply for man’s satisfaction.
+This signifies that the resurrected Christ ascended to the heavens and was offered to God with all the fruit in His resurrection as God’s food for God’s satisfaction first ([[John-20#v17|John 20:17]] and [note 1](<John-20.fn#Footnote 17.1 — ascended>)); then, He became man’s supply for man’s satisfaction.
 
 ## Footnotes for verse 15
 
@@ -129,7 +129,7 @@ Or, weeks. The Feast of Firstfruits was followed by the Feast of Pentecost, also
 
 **Verse:** [[Leviticus-23#v16|Leviticus 23:16]]
 
-See [[Acts-02#v1|Acts 2:1]] and note. The Feast of Pentecost was the feast of the fiftieth day, counting from the day after the Sabbath, the day on which the sheaf of the wave offering was brought to God ([[Leviticus-23#v11|v. 11]]), to the day after the seventh Sabbath ([[Leviticus-23#v15|v. 15]]). This signifies the resurrection of Christ in its sevenfold fullness reaching the realm of the complete fullness, bearing the full responsibility, signified by the number fifty (composed of ten times five, ten signifying fullness and five, responsibility), for the testimony of resurrection. 
+See [[Acts-02#v1|Acts 2:1]] and [note](<Acts-02.fn#Footnote 1.1 — Pentecost>). The Feast of Pentecost was the feast of the fiftieth day, counting from the day after the Sabbath, the day on which the sheaf of the wave offering was brought to God ([[Leviticus-23#v11|v. 11]]), to the day after the seventh Sabbath ([[Leviticus-23#v15|v. 15]]). This signifies the resurrection of Christ in its sevenfold fullness reaching the realm of the complete fullness, bearing the full responsibility, signified by the number fifty (composed of ten times five, ten signifying fullness and five, responsibility), for the testimony of resurrection. 
 
 On the day of Pentecost in the New Testament, the consummation of the Triune God—the all-inclusive, life-giving, compound Spirit of the processed Triune God, who is the totality of the Triune God—was poured out upon the one hundred twenty disciples as representatives of the Body of Christ. As a result of such an outpouring of the economical Spirit of God, the Body of Christ came into existence as the increase, the enlargement, of the unlimited, individual Christ, making Him the universal, corporate Christ ([[1 Corinthians-12#v12|1 Cor. 12:12-13]]), the mingling of the processed and consummated Triune God with His chosen and redeemed people, which will ultimately consummate in the New Jerusalem.
 
@@ -189,7 +189,7 @@ The Feast of the Blowing of Trumpets signifies God’s calling together of His s
 
 **Verse:** [[Leviticus-23#v27|Leviticus 23:27]]
 
-Spiritually, the blowing of the trumpets signifies the proclaiming of the gospel to call sinners to repentance and salvation (cf. note 91 in [[Leviticus-25|Leviticus 25]]), and the expiation signifies Christ’s redemption (see note 11 in [[Leviticus-16|Leviticus 16]]). The Feast of Expiation closely followed the Feast of the Blowing of Trumpets, which involves Israel’s repentance and return to God. This signifies that the day of man’s redemption follows the trumpeting of the gospel and man’s repentance as a reaction to it. The Feast of Expiation has a double application. Spiritually, this feast has been applied to the New Testament believers, and literally it will be applied in the future to the Jews.
+Spiritually, the blowing of the trumpets signifies the proclaiming of the gospel to call sinners to repentance and salvation (cf. [note 9¹](<Leviticus-25.fn#Footnote 9.1 — Day>) in [[Leviticus-25|Leviticus 25]]), and the expiation signifies Christ’s redemption (see [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Leviticus 16]]). The Feast of Expiation closely followed the Feast of the Blowing of Trumpets, which involves Israel’s repentance and return to God. This signifies that the day of man’s redemption follows the trumpeting of the gospel and man’s repentance as a reaction to it. The Feast of Expiation has a double application. Spiritually, this feast has been applied to the New Testament believers, and literally it will be applied in the future to the Jews.
 
 ### Footnote 27.2 — afflict
 
@@ -211,7 +211,7 @@ That the people were not to do any work but were to have a Sabbath of complete r
 
 **Verse:** [[Leviticus-23#v34|Leviticus 23:34]]
 
-The Feast of Ingathering ([[Exodus-23#v16|Exo. 23:16b]]). See note 162 in [[Exodus-23|Exo. 23]].
+The Feast of Ingathering ([[Exodus-23#v16|Exo. 23:16b]]). See [note 16²](<Exodus-23.fn#Footnote 16.2 — Feast>) in [[Exodus-23|Exo. 23]].
 
 ### Footnote 34.2 — Tabernacles
 
@@ -237,7 +237,7 @@ The presenting of an offering by fire to Jehovah for seven days signifies the of
 
 **Verse:** [[Leviticus-23#v36|Leviticus 23:36]]
 
-This signifies that God’s people as a sacred congregation offer Christ in resurrection (signified by the eighth day—[[John-20#v1|John 20:1]]) as food to God for the satisfaction of both God and man, not needing to do any work but resting. This indicates that the entire one thousand years of the millennium will be a rest for God and for God’s redeemed people. See note 91 in [[Hebrews-04|Heb. 4]].
+This signifies that God’s people as a sacred congregation offer Christ in resurrection (signified by the eighth day—[[John-20#v1|John 20:1]]) as food to God for the satisfaction of both God and man, not needing to do any work but resting. This indicates that the entire one thousand years of the millennium will be a rest for God and for God’s redeemed people. See [note 9¹](<Hebrews-04.fn#Footnote 9.1 — Sabbath>) in [[Hebrews-04|Heb. 4]].
 
 ## Footnotes for verse 39
 
@@ -253,13 +253,13 @@ This signifies that the millennium will come after the harvest of what God desir
 
 **Verse:** [[Leviticus-23#v40|Leviticus 23:40]]
 
-Or, fruit. Trees signify Christ’s humanity (see note 151 in [[1 Kings-06|1 Kings 6]]). The trees in this verse portray the evergreen, nourishing, beautiful, and rich scenery of the different aspects of Christ’s humanity being lived out from the overcomers among God’s redeemed people in the millennium.
+Or, fruit. Trees signify Christ’s humanity (see [note 15¹](<1 Kings-06.fn#Footnote 15.1 — cedar>) in [[1 Kings-06|1 Kings 6]]). The trees in this verse portray the evergreen, nourishing, beautiful, and rich scenery of the different aspects of Christ’s humanity being lived out from the overcomers among God’s redeemed people in the millennium.
 
 ### Footnote 40.2 — palm
 
 **Verse:** [[Leviticus-23#v40|Leviticus 23:40]]
 
-See note 9⁴ in [[Revelation-07|Rev. 7]].
+See [note 9⁴](<Revelation-07.fn#Footnote 9.4 — palm>) in [[Revelation-07|Rev. 7]].
 
 ## Footnotes for verse 42
 
@@ -267,7 +267,7 @@ See note 9⁴ in [[Revelation-07|Rev. 7]].
 
 **Verse:** [[Leviticus-23#v42|Leviticus 23:42]]
 
-The coming millennium will be a conclusion of all that God has done with His redeemed people in the full course of the ages, the dispensations, in His old creation. The people dwelling in booths indicates that in the four dispensations of the old creation man cannot have a solid dwelling place. Eventually, for God’s redeemed people the present, portable tabernacles will become a solid one—the New Jerusalem with twelve foundations ([[Hebrews-11#v8|Heb. 11:8-10]]; [[Revelation-21#v2|Rev. 21:2-3]], [[Revelation-21#v14|14]]). See note 21, par. 3, in [[John-07|John 7]].
+The coming millennium will be a conclusion of all that God has done with His redeemed people in the full course of the ages, the dispensations, in His old creation. The people dwelling in booths indicates that in the four dispensations of the old creation man cannot have a solid dwelling place. Eventually, for God’s redeemed people the present, portable tabernacles will become a solid one—the New Jerusalem with twelve foundations ([[Hebrews-11#v8|Heb. 11:8-10]]; [[Revelation-21#v2|Rev. 21:2-3]], [[Revelation-21#v14|14]]). See [note 2¹](<John-07.fn#Footnote 2.1 — Feast>), par. 3, in [[John-07|John 7]].
 
 ## Footnotes for verse 43
 

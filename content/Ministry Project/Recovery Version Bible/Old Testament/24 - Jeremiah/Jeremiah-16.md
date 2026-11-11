@@ -4,7 +4,7 @@ The word of Jehovah also came to me, saying,
 
 ## v2
 
-You shall not take a wife for yourself  
+[[Jeremiah-16.fn#Footnote 2.1 — You|You]] shall not take a wife for yourself  
 Nor have sons or daughters in this place.
 
 ## v3
@@ -106,7 +106,7 @@ Out of the land of Egypt,
 ## v15
 
 But, As Jehovah lives,  
-Who brought up the children of Israel  
+Who [[Jeremiah-16.fn#Footnote 15.1 — brought|brought]] up the children of Israel  
 Out of the land of the north  
 And out of all the lands where He had driven them;  
 For I will bring them back to their own land,  

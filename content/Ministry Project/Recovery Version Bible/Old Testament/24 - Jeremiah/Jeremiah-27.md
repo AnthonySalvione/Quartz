@@ -1,6 +1,6 @@
 ## v1
 
-In the beginning of the reign of Zedekiah the son of Josiah,  
+In the beginning of the reign of [[Jeremiah-27.fn#Footnote 1.1 — Zedekiah|Zedekiah]] the son of Josiah,  
 The king of Judah,  
 This word came to Jeremiah from Jehovah, saying,
 
@@ -69,10 +69,10 @@ By his hand.
 
 But as for you,  
 Do not listen to your prophets  
-And to your diviners  
+And to your [[Jeremiah-27.fn#Footnote 9.1 — diviners|diviners]]  
 And to your dreams  
-And to your soothsayers  
-And to your sorcerers  
+And to your [[Jeremiah-27.fn#Footnote 9.1 — diviners|soothsayers]]  
+And to your [[Jeremiah-27.fn#Footnote 9.1 — diviners|sorcerers]]  
 Who speak to you, saying,  
 You will not serve the king of Babylon.
 

@@ -63,7 +63,7 @@ That the good land rose up from the waters that bordered it on either side indic
 
 **Verse:** [[Numbers-34#v15|Numbers 34:15]]
 
-The land given to the two and a half tribes, the land which was according to their choice, could be reached without crossing the Jordan (see notes 51 and 52 in [[Numbers-32|Numbers 32]]) and thus was not actually a part of the land of Canaan (cf. [[Numbers-35#v14|35:14]]). This indicates that, in type, it was outside the death of Christ. Our self-choice is likewise outside the death of Christ and therefore has nothing to do with the real enjoyment of the rich Christ. If we do not pass through the death of Christ, we cannot enter into the realm of His resurrection and ascension to enjoy Him as the heavenly, elevated One (cf. [[Galatians-02#v20|Gal. 2:20]]; [[Philippians-03#v10|Phil. 3:10-11]]; [[Colossians-03#v1|Col. 3:1-4]]).
+The land given to the two and a half tribes, the land which was according to their choice, could be reached without crossing the Jordan (see notes [5¹](<Numbers-32.fn#Footnote 5.1 — land>) and [5²](<Numbers-32.fn#Footnote 5.2 — cross>) in [[Numbers-32|Numbers 32]]) and thus was not actually a part of the land of Canaan (cf. [[Numbers-35#v14|35:14]]). This indicates that, in type, it was outside the death of Christ. Our self-choice is likewise outside the death of Christ and therefore has nothing to do with the real enjoyment of the rich Christ. If we do not pass through the death of Christ, we cannot enter into the realm of His resurrection and ascension to enjoy Him as the heavenly, elevated One (cf. [[Galatians-02#v20|Gal. 2:20]]; [[Philippians-03#v10|Phil. 3:10-11]]; [[Colossians-03#v1|Col. 3:1-4]]).
 
 ## Footnotes for verse 17
 
@@ -71,4 +71,4 @@ The land given to the two and a half tribes, the land which was according to the
 
 **Verse:** [[Numbers-34#v17|Numbers 34:17]]
 
-Eleazar and Joshua both typify Christ, as our Priest ([[Hebrews-04#v14|Heb. 4:14]]) and as our Leader ([[Hebrews-04#v8|Heb. 4:8]] and note 1).
+Eleazar and Joshua both typify Christ, as our Priest ([[Hebrews-04#v14|Heb. 4:14]]) and as our Leader ([[Hebrews-04#v8|Heb. 4:8]] and [note 1](<Hebrews-04.fn#Footnote 8.1 — Joshua>)).

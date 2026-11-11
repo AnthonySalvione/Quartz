@@ -58,8 +58,8 @@ And there will be desolation.
 
 ## v10
 
-For you have forgotten the God of your salvation,  
-And the Rock of your stronghold you have not remembered.  
+For you have forgotten the [[Isaiah-17.fn#Footnote 10.1 — God|God]] of your salvation,  
+And the [[Isaiah-17.fn#Footnote 10.1 — God|Rock]] of your stronghold you have not remembered.  
 Therefore you plant plants of delight  
 And set them with plant cuttings to a strange god.
 

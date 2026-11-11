@@ -37,4 +37,4 @@ Or, hand.
 
 **Verse:** [[Job-12#v10|Job 12:10]]
 
-Heb. nephesh (soul)...ruach (spirit). Every living thing has a soul, but man has not only a soul but also a spirit (cf. notes 75, par. 1, and 76 in [[Genesis-02|Gen. 2]]).
+Heb. nephesh (soul)...ruach (spirit). Every living thing has a soul, but man has not only a soul but also a spirit (cf. [[Genesis-02.fn#Footnote 7.5 — breath|notes 7⁵]], par. 1, and [[Genesis-02.fn#Footnote 7.6 — soul|7⁶]] in [[Genesis-02|Gen. 2]]).

@@ -29,7 +29,7 @@ Than for one to hear the song of fools.
 
 For as the crackling of thorns under a pot,  
 So is the laughter of fools.  
-This also is vanity.
+This also is [[Ecclesiastes-07.fn#Footnote 6.1 — vanity|vanity]].
 
 ## v7
 

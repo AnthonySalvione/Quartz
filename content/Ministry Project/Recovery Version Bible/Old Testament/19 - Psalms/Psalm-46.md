@@ -1,6 +1,11 @@
+> *To the choir director. Of the sons of Korah. According to alamoth. A Song*
+
+> [!light] Not on alamoth:
+> Perhaps referring to soprano voices.
+---
 ## v1
 
-God is our refuge and strength;  
+[[Psalm-46.fn#Footnote 1.1 — God|God]] is our refuge and strength;  
 A help in distress, He is most readily found.
 
 ## v2
@@ -16,12 +21,12 @@ Though the mountains shake at its swelling. Selah
 
 ## v4
 
-There is a river whose streams gladden the city of God,  
+There is a [[Psalm-46.fn#Footnote 4.1 — river|river]] whose streams gladden the [[Psalm-46.fn#Footnote 4.2 — city|city]] of God,  
 The holy place of the tabernacles of the Most High.
 
 ## v5
 
-God is in the midst of her; she will not be moved;  
+God is in the midst of her; she will [[Psalm-46.fn#Footnote 5.1 — not|not]] be moved;  
 God helps her at the dawn of the morning.
 
 ## v6
@@ -47,7 +52,7 @@ He burns the war wagons with fire.
 
 ## v10
 
-Be still and know that I am God.  
+[[Psalm-46.fn#Footnote 10.1 — Be|Be]] still and know that I am God.  
 I will be exalted among the nations; I will be exalted on earth.
 
 ## v11

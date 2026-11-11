@@ -1,6 +1,6 @@
 ## v1
 
-Listen to me, O coastlands, /  
+Listen to [[Isaiah-49.fn#Footnote 1.1 — me|me]], O coastlands, /  
 And hearken, you peoples from afar. /  
 Jehovah has called me from the womb; /  
 From the bowels of my mother He has made mention of my name.
@@ -15,11 +15,11 @@ He has hidden me in His quiver.
 ## v3
 
 And He said to me, You are My servant, /  
-Israel, in whom I will be glorified.
+[[Isaiah-49.fn#Footnote 3.1 — Israel|Israel]], in whom I will be glorified.
 
 ## v4
 
-But I said, I have labored in vain; /  
+But I said, I have [[Isaiah-49.fn#Footnote 4.1 — labored|labored]] in vain; /  
 I have used up my strength for nothing and vanity; /  
 Yet surely the justice due to me is with Jehovah, /  
 And my recompense with my God.
@@ -27,7 +27,7 @@ And my recompense with my God.
 ## v5
 
 And now says Jehovah, /  
-Who formed Me from the womb to be His Servant, /  
+Who formed [[Isaiah-49.fn#Footnote 5.1 — Me|Me]] from the [[Isaiah-49.fn#Footnote 5.2 — womb|womb]] to be His Servant, /  
 To bring Jacob back to Him, /  
 So that Israel would be gathered to Him; /  
 And I will be glorified in the sight of Jehovah, /  
@@ -38,14 +38,14 @@ And My God will be My strength.
 He says, It is too small a thing that You would be My Servant /  
 To raise up the tribes of Jacob /  
 And bring back the preserved of Israel; /  
-I will also set You as a light of the nations /  
-That You may be My salvation unto the ends of the earth.
+I will also set You as a [[Isaiah-49.fn#Footnote 6.1 — light|light]] of the nations /  
+That You may be My [[Isaiah-49.fn#Footnote 6.2 — salvation|salvation]] unto the ends of the earth.
 
 ## v7
 
 Thus says Jehovah, /  
 The Redeemer of Israel, his Holy One, /  
-To the despised One, the One abhorred by the nation, /  
+To the [[Isaiah-49.fn#Footnote 7.1 — despised|despised]] One, the One abhorred by the nation, /  
 The One subjected to tyrants, /  
 Kings will see and arise, /  
 And princes will bow down; /  
@@ -57,14 +57,14 @@ The Holy One of Israel, who has chosen You.
 Thus says Jehovah, /  
 In an acceptable time I have answered You, /  
 And in a day of salvation I have helped You; /  
-And I will preserve You and give You for a covenant of the people, /  
-To restore the land, to apportion the desolate inheritances,
+And I will preserve You and give You for a [[Isaiah-49.fn#Footnote 8.1 — covenant|covenant]] of the people, /  
+To restore the [[Isaiah-49.fn#Footnote 8.2 — land|land]], to [[Isaiah-49.fn#Footnote 8.3 — apportion|apportion]] the desolate inheritances,
 
 ## v9
 
 To say to the prisoners, Come forth, /  
 To say to those who are in darkness, Show yourselves. /  
-They will feed along the roads, /  
+[[Isaiah-49.fn#Footnote 9.1 — They|They]] will feed along the roads, /  
 And their pasture will be on all the bare heights;
 
 ## v10
@@ -83,7 +83,7 @@ And My highways will be raised up.
 
 Indeed, these will come from a distance, /  
 And indeed these will come from the north and the west, /  
-And these from the land of the Sinim.
+And these from the land of the [[Isaiah-49.fn#Footnote 12.1 — Sinim|Sinim]].
 
 ## v13
 
@@ -111,7 +111,7 @@ Your walls are continually before Me.
 
 ## v17
 
-Your children make haste; /  
+[[Isaiah-49.fn#Footnote 17.1 — Your|Your]] children make haste; /  
 Your destroyers and those who lay you waste /  
 Will go forth from you.
 

@@ -1,6 +1,6 @@
 ## v1
 
-Go to and fro in the streets of Jerusalem,  
+[[Jeremiah-05.fn#Footnote 1.1 — Go|Go]] to and fro in the streets of Jerusalem,  
 And look now and know,  
 And seek in her open squares  
 If you can find a man,  
@@ -28,7 +28,7 @@ They have refused to turn.
 Then I said, But they are the poor;  
 They are foolish;  
 For they do not know the way of Jehovah,  
-The ordinance of their God.
+The [[Jeremiah-05.fn#Footnote 4.1 — ordinance|ordinance]] of their God.
 
 ## v5
 
@@ -42,7 +42,7 @@ They have torn off the bonds.
 ## v6
 
 Therefore a lion from the forest will strike them;  
-A wolf of the deserts will destroy them.  
+A wolf of the [[Jeremiah-05.fn#Footnote 6.1 — deserts|deserts]] will destroy them.  
 A leopard is watching their cities;  
 Everyone who goes out from them will be torn in pieces;  
 Because they multiplied their transgressions,  
@@ -63,7 +63,7 @@ Each one neighing after his neighbor’s wife.
 
 ## v9
 
-Shall I not punish because of these things?  
+Shall I not [[Jeremiah-05.fn#Footnote 9.1 — punish|punish]] because of these things?  
 Declares Jehovah;  
 And on a nation such as this  
 Shall My soul not avenge itself?
@@ -90,14 +90,14 @@ Nor will we see sword and famine;
 ## v13
 
 And the prophets will become wind,  
-And the word is not in them;  
+And [[Jeremiah-05.fn#Footnote 13.1 — the|the]] word is not in them;  
 Thus it will be done to them.
 
 ## v14
 
 Therefore thus says Jehovah  
 The God of hosts:  
-Because they have spoken this word,  
+Because [[Jeremiah-05.fn#Footnote 14.1 — they|they]] have spoken this word,  
 I am now making My words  
 A fire in your mouth,  
 And this people wood;  
@@ -134,7 +134,7 @@ I will not make a full end of you.
 
 ## v19
 
-And when they say,  
+And when [[Jeremiah-05.fn#Footnote 19.1 — they|they]] say,  
 Why has Jehovah our God done all these things to us?  
 You shall say to them,  
 As you have forsaken Me and served foreign gods in your land,  
@@ -170,7 +170,7 @@ They have turned aside and have gone away.
 
 And they do not say in their heart,  
 Let us now fear Jehovah our God, who gives us rain,  
-Both the early rain and the late rain, in its season,  
+Both [[Jeremiah-05.fn#Footnote 24.1 — the|the]] early rain and the late rain, in its season,  
 Who preserves the appointed weeks of the harvest for us.
 
 ## v25
@@ -214,6 +214,6 @@ Has happened in the land:
 ## v31
 
 The prophets prophesy falsely,  
-And the priests rule by their own authority;  
+And the priests rule by their own [[Jeremiah-05.fn#Footnote 31.1 — authority|authority]];  
 And My people love it this way.  
 But what will you do at the end of it?

@@ -44,7 +44,7 @@ Mourning and lamentation.
 
 ## v6
 
-And He has violently taken away His pavilion like a garden; /  
+And He has violently taken away His [[Lamentations-02.fn#Footnote 6.1 — pavilion|pavilion]] like a garden; /  
 He has destroyed the place of His assembly; /  
 Jehovah has caused the appointed feast and the Sabbath /  
 To be forgotten in Zion; /  

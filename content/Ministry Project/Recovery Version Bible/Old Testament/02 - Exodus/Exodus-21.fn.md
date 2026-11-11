@@ -31,7 +31,7 @@ The first ordinance concerning man’s relationship with others is an ordinance 
 
 **Verse:** [[Exodus-21#v2|Exodus 21:2]]
 
-The freeing of a slave in a sabbatical year signifies that fallen man under bondage to sin ([[Romans-07#v14|Rom. 7:14]]) may be freed by Christ as God’s rest ([[John-08#v36|John 8:36]]; see note 91 in [[Hebrews-04|Heb. 4]]).
+The freeing of a slave in a sabbatical year signifies that fallen man under bondage to sin ([[Romans-07#v14|Rom. 7:14]]) may be freed by Christ as God’s rest ([[John-08#v36|John 8:36]]; see [note 9¹](<Hebrews-04.fn#Footnote 9.1 — Sabbath>) in [[Hebrews-04|Heb. 4]]).
 
 ## Footnotes for verse 5
 
@@ -61,7 +61,7 @@ A slave should stand in the position of doing nothing on his own but acting only
 
 **Verse:** [[Exodus-21#v7|Exodus 21:7]]
 
-The ordinances in [[Exodus-21#v7|vv. 7-11]], [[Exodus-21#v16|16]], [[Exodus-21#v33|33-36]]; [[Exodus-22#v21|22:21-25]]; and [[Exodus-23#v4|23:4-5]], 9-11 are supplements to the law concerning man’s relationship with others, and the ordinances in [[Exodus-22#v28|22:28-30]] and [[Exodus-23#v14|23:14-19]] are supplements concerning man’s relationship with God.
+The ordinances in [[Exodus-21#v7|vv. 7-11]], [[Exodus-21#v16|16]], [[Exodus-21#v33|33-36]]; [[Exodus-22#v21|22:21-25]]; and [[Exodus-23#v4|23:4-5]], [[Exodus-23#v9|9-11]] are supplements to the law concerning man’s relationship with others, and the ordinances in [[Exodus-22#v28|22:28-30]] and [[Exodus-23#v14|23:14-19]] are supplements concerning man’s relationship with God.
 
 ## Footnotes for verse 12
 
@@ -69,7 +69,7 @@ The ordinances in [[Exodus-21#v7|vv. 7-11]], [[Exodus-21#v16|16]], [[Exodus-21#v
 
 **Verse:** [[Exodus-21#v12|Exodus 21:12]]
 
-The ordinances in [[Exodus-21#v12|vv. 12-14]], 18-32 contain details related to the sixth commandment, forbidding murder ([[Exodus-20#v13|20:13]]).
+The ordinances in [[Exodus-21#v12|vv. 12-14]], [[Exodus-21#v18|18-32]] contain details related to the sixth commandment, forbidding murder ([[Exodus-20#v13|20:13]]).
 
 ## Footnotes for verse 13
 
@@ -77,7 +77,7 @@ The ordinances in [[Exodus-21#v12|vv. 12-14]], 18-32 contain details related to 
 
 **Verse:** [[Exodus-21#v13|Exodus 21:13]]
 
-According to [[Numbers-35#v6|Num. 35:6]], [[Numbers-35#v9|9-15]], these were the cities of refuge, to which one who killed another by mistake could flee. See note 61 in [[Numbers-35|Num. 35]].
+According to [[Numbers-35#v6|Num. 35:6]], [[Numbers-35#v9|9-15]], these were the cities of refuge, to which one who killed another by mistake could flee. See [note 6¹](<Numbers-35.fn#Footnote 6.1 — cities>) in [[Numbers-35|Num. 35]].
 
 ## Footnotes for verse 14
 
@@ -93,7 +93,7 @@ The murder and lies within man signify that the devil, the source of murder and 
 
 **Verse:** [[Exodus-21#v15|Exodus 21:15]]
 
-The ordinances in [[Exodus-21#v15|vv. 15]] and 17 give details related to the fifth commandment, concerning the honoring of one’s father and mother ([[Exodus-20#v12|20:12]]).
+The ordinances in [[Exodus-21#v15|vv. 15]] and [[Exodus-21#v17|17]] give details related to the fifth commandment, concerning the honoring of one’s father and mother ([[Exodus-20#v12|20:12]]).
 
 ## Footnotes for verse 18
 

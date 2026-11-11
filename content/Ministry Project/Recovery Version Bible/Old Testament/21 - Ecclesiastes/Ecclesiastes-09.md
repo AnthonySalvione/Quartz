@@ -42,7 +42,7 @@ In all that is done under the sun forever.
 
 ## v7
 
-Go; eat your bread with joy,  
+Go; [[Ecclesiastes-09.fn#Footnote 7.1 — eat|eat]] your bread with joy,  
 And drink your wine with a merry heart;  
 For God has already accepted your works.
 

@@ -15,7 +15,7 @@ chapter_num: 5
 
 **Verse:** [[Numbers-05#v2|Numbers 5:2]]
 
-The three kinds of defilement dealt with in the camp of Israel typify all the uncleanness that needs to be dealt with in the church. Leprosy signifies the evil issues of the natural man, especially in rebellion (see note 21 in [[Leviticus-13|Lev. 13]]). Spiritually, discharges are the excessive, abnormal, and unrestrained issues of the natural man, signifying one’s being without control, unbridled, in relation to one’s self, temper, preferences, likes, and dislikes (see notes 21 and 41 in [[Leviticus-15|Lev. 15]]). Uncleanness through contact with the dead signifies the defilement of spiritual deadness that issues from contacting those who are spiritually dead (see notes on [[Leviticus-11#v31|Lev. 11:31]]). God is righteous, holy, and living. Thus, these three kinds of defilement cannot be allowed to remain in God’s dwelling place, army, and priesthood.
+The three kinds of defilement dealt with in the camp of Israel typify all the uncleanness that needs to be dealt with in the church. Leprosy signifies the evil issues of the natural man, especially in rebellion (see [note 2¹](<Leviticus-13.fn#Footnote 2.1 — swelling>) in [[Leviticus-13|Lev. 13]]). Spiritually, discharges are the excessive, abnormal, and unrestrained issues of the natural man, signifying one’s being without control, unbridled, in relation to one’s self, temper, preferences, likes, and dislikes (see notes [2¹](<Leviticus-15.fn#Footnote 2.1 — body>) and [4¹](<Leviticus-15.fn#Footnote 4.1 — bed>) in [[Leviticus-15|Lev. 15]]). Uncleanness through contact with the dead signifies the defilement of spiritual deadness that issues from contacting those who are spiritually dead (see notes on [[Leviticus-11#v31|Lev. 11:31]]). God is righteous, holy, and living. Thus, these three kinds of defilement cannot be allowed to remain in God’s dwelling place, army, and priesthood.
 
 ## Footnotes for verse 7
 
@@ -37,7 +37,7 @@ If the wronged one is deceased, then the restitution should go to his relative. 
 
 **Verse:** [[Numbers-05#v8|Numbers 5:8]]
 
-The ram of the expiation here typifies Christ as the propitiation for our sins ([[1 John-02#v2|1 John 2:2]]; [[1 John-04#v10|4:10]]; see note 11 in [[Leviticus-16|Lev. 16]]). In dealing with the defilement of unrighteousness, first we confess our sin to God and then go to make restitution (see note 71). Afterward, we come back to God to offer Christ as our propitiatory sacrifice. This process shows how fine and detailed God is.
+The ram of the expiation here typifies Christ as the propitiation for our sins ([[1 John-02#v2|1 John 2:2]]; [[1 John-04#v10|4:10]]; see [note 1¹](<Leviticus-16.fn#Footnote 1.1 — Then>) in [[Leviticus-16|Lev. 16]]). In dealing with the defilement of unrighteousness, first we confess our sin to God and then go to make restitution (see [note 7¹](<Numbers-05.fn#Footnote 7.1 — confess>)). Afterward, we come back to God to offer Christ as our propitiatory sacrifice. This process shows how fine and detailed God is.
 
 ## Footnotes for verse 14
 
@@ -59,7 +59,7 @@ The priest here may signify Christ or someone who is very close to God.
 
 **Verse:** [[Numbers-05#v15|Numbers 5:15]]
 
-The meal offering signifies Christ in His humanity offered to God that God’s people may be acceptable (see notes in [[Leviticus-02|Lev. 2]]). In this case, the meal offering was of barley meal (the resurrected Christ—see note 92, par. 2, in [[John-06|John 6]]) with no oil (the Holy Spirit) or frankincense (resurrection) upon it. Such a meal offering of jealousy brought iniquity to remembrance.
+The meal offering signifies Christ in His humanity offered to God that God’s people may be acceptable (see notes in [[Leviticus-02|Lev. 2]]). In this case, the meal offering was of barley meal (the resurrected Christ—see [note 9²](<John-06.fn#Footnote 9.2 — barley>), par. 2, in [[John-06|John 6]]) with no oil (the Holy Spirit) or frankincense (resurrection) upon it. Such a meal offering of jealousy brought iniquity to remembrance.
 
 ## Footnotes for verse 18
 
@@ -83,7 +83,7 @@ A Hebrew adjective meaning firm, steadfast.
 
 **Verse:** [[Numbers-05#v25|Numbers 5:25]]
 
-The waving of the meal offering signifies resurrection (see note 241 in [[Exodus-29|Exo. 29]]). The handful of the meal offering that was burned on the altar was offered to God as a memorial portion ([[Numbers-05#v26|v. 26]]).
+The waving of the meal offering signifies resurrection (see [note 24¹](<Exodus-29.fn#Footnote 24.1 — wave>) in [[Exodus-29|Exo. 29]]). The handful of the meal offering that was burned on the altar was offered to God as a memorial portion ([[Numbers-05#v26|v. 26]]).
 
 ## Footnotes for verse 27
 

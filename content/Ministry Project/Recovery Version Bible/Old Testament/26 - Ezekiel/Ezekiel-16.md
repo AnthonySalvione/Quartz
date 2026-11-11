@@ -28,7 +28,7 @@ I caused you to increase like the sprouts of the field; and you increased and gr
 
 ## v8
 
-Then I passed by you and saw you; and then was your time a time of love. And I spread My skirt over you and covered your nakedness; indeed I swore unto you and entered into a covenant with you, declares the Lord Jehovah, and you became Mine.
+Then I passed by you and saw you; and then was your time a time of love. And I spread My skirt over you and covered your nakedness; indeed I swore unto you and entered into a [[Ezekiel-16.fn#Footnote 8.1 — covenant|covenant]] with you, declares the Lord Jehovah, and you became Mine.
 
 ## v9
 
@@ -168,7 +168,7 @@ Thus I will cause My wrath against you to rest, and My jealousy will turn from y
 
 ## v43
 
-Because you have not remembered the days of your youth but have raged against Me in all these things, therefore, I, for My part, will bring your ways upon your head, declares the Lord Jehovah; and you will not commit this lewdness in addition to all your abominations.
+Because you have not remembered the days of your youth but have [[Ezekiel-16.fn#Footnote 43.1 — raged|raged]] against Me in all these things, therefore, I, for My part, will bring your ways upon your head, declares the Lord Jehovah; and you will not commit this lewdness in addition to all your abominations.
 
 ## v44
 
@@ -224,7 +224,7 @@ Indeed, was not Sodom your sister a byword in your mouth on the day of your prid
 
 ## v57
 
-Before your wickedness was uncovered? So now you are the reproach of the daughters of Aram and all who are around her and of the daughters of the Philistines, those all around who despise you.
+Before your wickedness was uncovered? So now you are the reproach of the daughters of [[Ezekiel-16.fn#Footnote 57.1 — Aram|Aram]] and all who are around her and of the daughters of the Philistines, those all around who despise you.
 
 ## v58
 

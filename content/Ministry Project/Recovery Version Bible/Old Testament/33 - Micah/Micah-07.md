@@ -82,7 +82,7 @@ In that day the decree will be far away;
 
 In that day they will come even unto you  
 From Assyria and from the cities of Egypt,  
-And from Egypt even to the River,  
+And from Egypt even to the [[Micah-07.fn#Footnote 12.1 — River|River]],  
 And from sea to sea and mountain to mountain.
 
 ## v13
@@ -103,7 +103,7 @@ As in the days of old.
 ## v15
 
 As in the days of your going forth out from the land of Egypt,  
-I will show you wonders.
+I will show [[Micah-07.fn#Footnote 15.1 — you|you]] wonders.
 
 ## v16
 
@@ -123,7 +123,7 @@ They will turn in fear and be afraid because of You.
 ## v18
 
 Who is a God like You,  
-Pardoning iniquity  
+[[Micah-07.fn#Footnote 18.1 — Pardoning|Pardoning]] iniquity  
 And passing over the transgression  
 Of the remnant of His inheritance?  
 He does not retain His anger forever,  

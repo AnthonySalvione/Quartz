@@ -23,7 +23,7 @@ Being holy because God is holy ([[Leviticus-19#v2|v. 2]]; [[Leviticus-20#v7|20:7
 
 **Verse:** [[Leviticus-19#v5|Leviticus 19:5]]
 
-See note 11 in [[Leviticus-03|Leviticus 3]]. The offering of the peace offering in an acceptable way signifies that the breaking of bread for the remembrance of the Lord should be done in a way that is acceptable to the Lord (cf. [[1 Corinthians-11#v17|1 Cor. 11:17-21]]). 
+See [note 1¹](<Leviticus-03.fn#Footnote 1.1 — peace>) in [[Leviticus-03|Leviticus 3]]. The offering of the peace offering in an acceptable way signifies that the breaking of bread for the remembrance of the Lord should be done in a way that is acceptable to the Lord (cf. [[1 Corinthians-11#v17|1 Cor. 11:17-21]]). 
 
 The mentioning of the peace offering here indicates that in the holy living of God’s holy people, as portrayed in [[Leviticus-18|Leviticus 18—20]], it is important that God’s holy people have fellowship, communion, mutual enjoyment, in peace.
 
@@ -57,7 +57,7 @@ Lit., stand against the blood.
 
 **Verse:** [[Leviticus-19#v19|Leviticus 19:19]]
 
-The fact that no mixture was allowed indicates that God wants everything to be after its kind (cf. [[Genesis-01#v11|Gen. 1:11]], [[Genesis-01#v21|21]], [[Genesis-01#v24|24-25]]), without any kind of mixture. Breeding cattle without mixture signifies that life is not allowed to be mixed: those living by the life of God must not live by the flesh (cf. [[Galatians-05#v16|Gal. 5:16]]). Sowing seed without mixture signifies that the ministry of the word is not allowed to be mixed: the word of God that is ministered should not be mixed with the word of the world (cf. [[1 Corinthians-02#v13|1 Cor. 2:13]]; [[1 Timothy-01#v3|1 Tim. 1:3-4]]). Making a garment without mixing materials signifies that our conduct is not allowed to be mixed: those living in the life of the New Testament should not live by the ordinances of the Old Testament ([[Galatians-02#v19|Gal. 2:19-20]]; [[Galatians-05#v1|5:1-6]]), and those who belong to the Lord should not live according to the customs of the Gentiles ([[Leviticus-20#v23|20:23]]; cf. [[Ephesians-04#v17|Eph. 4:17]]; [[Romans-12#v2|Rom. 12:2a]]). See note 31 in [[Leviticus-18|Leviticus 18]].
+The fact that no mixture was allowed indicates that God wants everything to be after its kind (cf. [[Genesis-01#v11|Gen. 1:11]], [[Genesis-01#v21|21]], [[Genesis-01#v24|24-25]]), without any kind of mixture. Breeding cattle without mixture signifies that life is not allowed to be mixed: those living by the life of God must not live by the flesh (cf. [[Galatians-05#v16|Gal. 5:16]]). Sowing seed without mixture signifies that the ministry of the word is not allowed to be mixed: the word of God that is ministered should not be mixed with the word of the world (cf. [[1 Corinthians-02#v13|1 Cor. 2:13]]; [[1 Timothy-01#v3|1 Tim. 1:3-4]]). Making a garment without mixing materials signifies that our conduct is not allowed to be mixed: those living in the life of the New Testament should not live by the ordinances of the Old Testament ([[Galatians-02#v19|Gal. 2:19-20]]; [[Galatians-05#v1|5:1-6]]), and those who belong to the Lord should not live according to the customs of the Gentiles ([[Leviticus-20#v23|20:23]]; cf. [[Ephesians-04#v17|Eph. 4:17]]; [[Romans-12#v2|Rom. 12:2a]]). See [note 3¹](<Leviticus-18.fn#Footnote 3.1 — Egypt>) in [[Leviticus-18|Leviticus 18]].
 
 ## Footnotes for verse 23
 

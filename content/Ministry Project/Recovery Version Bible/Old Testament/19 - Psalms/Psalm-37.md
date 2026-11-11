@@ -1,6 +1,9 @@
+> *Of David*
+
+---
 ## v1
 
-Do not be incensed because of evildoers; / Do not be envious of wrongdoers.
+[[Psalm-37.fn#Footnote 1.1 — Do|Do]] not be incensed because of evildoers; / Do not be envious of wrongdoers.
 
 ## v2
 

@@ -1,10 +1,13 @@
+> *To the choir director. A Psalm of David*
+
+---
 ## v1
 
-In You, O Jehovah, do I take refuge; / Never let me be put to shame. / Rescue me in Your righteousness.
+In You, O Jehovah, do I take refuge; / Never let me be put to shame. / [[Psalm-31.fn#Footnote 1.1 — Rescue|Rescue]] me in Your righteousness.
 
 ## v2
 
-Incline Your ear to me; / Deliver me speedily. / Be to me a rock of protection, / A fortress, to save me.
+Incline Your ear to me; / Deliver me speedily. / Be to me a [[Psalm-31.fn#Footnote 2.1 — rock|rock]] of protection, / A fortress, to save me.
 
 ## v3
 
@@ -16,11 +19,11 @@ Bring me out of the net / That they have secretly laid for me, / For You are my 
 
 ## v5
 
-Into Your hand I commit my spirit; / Redeem me, O Jehovah, God of truth.
+[[Psalm-31.fn#Footnote 5.1 — Into|Into]] Your hand I commit my spirit; / Redeem me, O Jehovah, God of truth.
 
 ## v6
 
-I hate those who regard vanities of falsehood, / But I trust in Jehovah.
+I hate those who regard [[Psalm-31.fn#Footnote 6.1 — vanities|vanities]] of falsehood, / But I trust in Jehovah.
 
 ## v7
 
@@ -32,7 +35,7 @@ And You have not delivered me into the hand of the enemy; / You have made my fee
 
 ## v9
 
-Be gracious to me, O Jehovah, for I am in distress. / My eye is wasted away with grief, / Indeed my soul and body.
+Be gracious to me, O Jehovah, for I am in [[Psalm-31.fn#Footnote 9.1 — distress|distress]]. / My eye is wasted away with grief, / Indeed my soul and body.
 
 ## v10
 
@@ -92,4 +95,4 @@ Love Jehovah, all you who are His faithful ones; / Jehovah guards the trustworth
 
 ## v24
 
-Be strong, and let your heart be encouraged, / All you who hope in Jehovah.
+Be strong, and let your heart be encouraged, / All you who [[Psalm-31.fn#Footnote 24.1 — hope|hope]] in Jehovah.

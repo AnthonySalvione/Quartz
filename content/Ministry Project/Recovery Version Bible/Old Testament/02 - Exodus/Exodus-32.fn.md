@@ -15,7 +15,7 @@ chapter_num: 32
 
 **Verse:** [[Exodus-32#v1|Exodus 32:1]]
 
-Even before the decree of the law was completed, the people broke at least the first three commandments of the law ([[Exodus-20#v2|20:2-7]]) by falling into the sin of idolatry. Man’s replacing of God with idols causes man to be unable to keep God’s commandments (cf. [[Romans-01#v18|Rom. 1:18-32]] and notes; [[1 John-05#v21|1 John 5:21]] and note 3, par. 1).
+Even before the decree of the law was completed, the people broke at least the first three commandments of the law ([[Exodus-20#v2|20:2-7]]) by falling into the sin of idolatry. Man’s replacing of God with idols causes man to be unable to keep God’s commandments (cf. [[Romans-01#v18|Rom. 1:18-32]] and notes; [[1 John-05#v21|1 John 5:21]] and [note 3](<1 John-05.fn#Footnote 21.3 — idols>), par. 1).
 
 ## Footnotes for verse 2
 
@@ -23,7 +23,7 @@ Even before the decree of the law was completed, the people broke at least the f
 
 **Verse:** [[Exodus-32#v2|Exodus 32:2]]
 
-The gold earrings were worn by the people for self-beautification. This indicates that self-beautification leads to idolatry (cf. [[Genesis-35#v4|Gen. 35:4]] and note). Furthermore, the gold in the earrings was given to the children of Israel by God before their exodus from Egypt ([[Exodus-12#v35|12:35-36]]) and was to be used for the building of the tabernacle ([[Exodus-25#v3|25:3]]; [[Exodus-35#v5|35:5]]). However, before the gold could be used for God’s purpose, it was usurped by Satan and used by God’s people to make an idol. Hence, idolatry is Satan’s usurping and man’s abusing of what God has given for His purpose, in order to make it a waste.
+The gold earrings were worn by the people for self-beautification. This indicates that self-beautification leads to idolatry (cf. [[Genesis-35#v4|Gen. 35:4]] and [note](<Genesis-35.fn#Footnote 4.1 — rings>)). Furthermore, the gold in the earrings was given to the children of Israel by God before their exodus from Egypt ([[Exodus-12#v35|12:35-36]]) and was to be used for the building of the tabernacle ([[Exodus-25#v3|25:3]]; [[Exodus-35#v5|35:5]]). However, before the gold could be used for God’s purpose, it was usurped by Satan and used by God’s people to make an idol. Hence, idolatry is Satan’s usurping and man’s abusing of what God has given for His purpose, in order to make it a waste.
 
 ## Footnotes for verse 4
 
@@ -87,7 +87,7 @@ Those who worship an idol must eventually “drink” the very idol they worship
 
 **Verse:** [[Exodus-32#v26|Exodus 32:26]]
 
-Here Moses sounded a call for the overcomers. This call was not the cause of the division among God’s people but produced a purification (cf. note 41, par. 2).
+Here Moses sounded a call for the overcomers. This call was not the cause of the division among God’s people but produced a purification (cf. [note 4¹](<Exodus-32.fn#Footnote 4.1 — he>), par. 2).
 
 ## Footnotes for verse 27
 
@@ -105,7 +105,7 @@ God’s intention is that every believer in Christ, every child of God, would be
 
 **Verse:** [[Exodus-32#v30|Exodus 32:30]]
 
-In order to solve the serious problem caused by the worshipping of the golden calf by the children of Israel, God needed a mediator between Him and the people. Moses, a man who was intimately involved with both parties, was uniquely qualified to be such a mediator. As a companion of God ([[Exodus-33#v11|33:11]] and note 1), Moses had an intimate relationship with God and knew what was in God’s heart. In particular, he knew that God would not give up His purpose with the children of Israel. Thus, he could speak to God intimately concerning His people and appease God on their behalf.
+In order to solve the serious problem caused by the worshipping of the golden calf by the children of Israel, God needed a mediator between Him and the people. Moses, a man who was intimately involved with both parties, was uniquely qualified to be such a mediator. As a companion of God ([[Exodus-33#v11|33:11]] and [note 1](<Exodus-33.fn#Footnote 11.1 — companion>)), Moses had an intimate relationship with God and knew what was in God’s heart. In particular, he knew that God would not give up His purpose with the children of Israel. Thus, he could speak to God intimately concerning His people and appease God on their behalf.
 
 ## Footnotes for verse 34
 

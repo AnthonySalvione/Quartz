@@ -1,6 +1,14 @@
+> *To the choir director: Do not destroy. Of David. A Michtam*
+
+> [!light] Note on Do:
+> See note on the superscription of [[Psalm-57|Psa. 57]].
+
+> [!light] Note on Michtam:
+> See note on the superscription of [[Psalm-16|Psa. 16]].
+---
 ## v1
 
-Do you indeed, O judges, speak righteousness?  
+[[Psalm-58.fn#Footnote 1.1 — Do|Do]] you indeed, O [[Psalm-58.fn#Footnote 1.2 — judges|judges]], speak righteousness?  
 Do you judge in uprightness, O sons of men?
 
 ## v2

@@ -1,6 +1,9 @@
+> *To the choir director. Of the sons of Korah. A Psalm*
+
+---
 ## v1
 
-You have been pleased, O Jehovah, with Your land;  
+[[Psalm-85.fn#Footnote 1.1 — You|You]] have been pleased, O Jehovah, with Your land;  
 You have turned the captivity of Jacob.
 
 ## v2
@@ -15,7 +18,7 @@ You have turned from the fierceness of Your anger.
 
 ## v4
 
-Restore us, O God of our salvation,  
+[[Psalm-85.fn#Footnote 4.1 — Restore|Restore]] us, O God of our salvation,  
 And cause Your indignation toward us to cease.
 
 ## v5

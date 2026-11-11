@@ -1,6 +1,6 @@
 ## v1
 
-The burden of the word of Jehovah to Israel through Malachi.
+The burden of the word of Jehovah to Israel through [[Malachi-01.fn#Footnote 1.1 — Malachi|Malachi]].
 
 ## v2
 
@@ -12,11 +12,11 @@ But Esau I hated, and I made his mountains a desolation, and gave his inheritanc
 
 ## v4
 
-Though Edom says, We are beaten down, but we will return and build up the waste places; thus says Jehovah of hosts, They will build up, but I will throw down; and they will be called the territory of wickedness and the people with whom Jehovah is indignant forever.
+Though [[Malachi-01.fn#Footnote 4.1 — Edom|Edom]] says, We are beaten down, but we will return and build up the waste places; thus says Jehovah of hosts, They will build up, but I will throw down; and they will be called the territory of wickedness and the people with whom Jehovah is indignant forever.
 
 ## v5
 
-And your eyes will see it, and you yourselves will say, Jehovah is magnified over the territory of Israel.
+And your eyes will see it, and you yourselves will say, Jehovah is magnified [[Malachi-01.fn#Footnote 5.1 — over|over]] the territory of Israel.
 
 ## v6
 

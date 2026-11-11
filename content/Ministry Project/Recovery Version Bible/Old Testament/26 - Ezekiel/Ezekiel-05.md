@@ -1,6 +1,6 @@
 ## v1
 
-And you, son of man, take a sharp sword; take it as a barber’s razor and pass it over your head and over your beard; then take scales to weigh with, and divide the hair.
+And you, son of man, take a sharp sword; take it as a barber’s razor and pass it over your head and over your beard; then take scales to weigh with, and divide [[Ezekiel-05.fn#Footnote 1.1 — the|the]] hair.
 
 ## v2
 
@@ -20,7 +20,7 @@ Thus says the Lord Jehovah, This is Jerusalem; I have set her in the midst of th
 
 ## v6
 
-But she has rebelled against My ordinances in wickedness more than the nations and against My statutes more than the countries that surround her, for they have rejected My ordinances and have not walked in My statutes.
+But she has rebelled against My [[Ezekiel-05.fn#Footnote 6.1 — ordinances|ordinances]] in wickedness more than the nations and against My statutes more than the countries that surround her, for they have rejected My ordinances and have not walked in My statutes.
 
 ## v7
 
@@ -40,7 +40,7 @@ Therefore fathers will eat the sons in your midst, and sons will eat their fathe
 
 ## v11
 
-Therefore as I live, declares the Lord Jehovah, surely because you have defiled My sanctuary with all your detestable things and all your abominations, therefore I will also withdraw My eye that it not pity you, nor will I spare.
+Therefore as I live, declares the Lord Jehovah, surely because you have defiled My sanctuary with all your detestable things and all your abominations, therefore I will also [[Ezekiel-05.fn#Footnote 11.1 — withdraw|withdraw]] My eye that it not pity you, nor will I spare.
 
 ## v12
 
@@ -56,7 +56,7 @@ Moreover I will make you a desolation and a reproach among the nations that surr
 
 ## v15
 
-Thus you will be a reproach and a taunt, a warning and a horror, to the nations that surround you, when I execute judgments upon you in anger and wrath and furious rebukes. I, Jehovah, have spoken.
+Thus [[Ezekiel-05.fn#Footnote 15.1 — you|you]] will be a reproach and a taunt, a warning and a horror, to the nations that surround you, when I execute judgments upon you in anger and wrath and furious rebukes. I, Jehovah, have spoken.
 
 ## v16
 

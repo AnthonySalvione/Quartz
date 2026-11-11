@@ -1,10 +1,10 @@
 ## v1
 
-Then I lifted up my eyes again and I looked, and there were four chariots coming forth from between the two mountains; and the mountains were mountains of bronze.
+Then I lifted up my eyes again and I looked, and there were [[Zechariah-06.fn#Footnote 1.1 — four|four]] chariots coming forth from between the [[Zechariah-06.fn#Footnote 1.2 — two|two]] mountains; and the mountains were mountains of [[Zechariah-06.fn#Footnote 1.3 — bronze|bronze]].
 
 ## v2
 
-With the first chariot were red horses, and with the second chariot were black horses,
+With the first chariot were red [[Zechariah-06.fn#Footnote 2.1 — horses|horses]], and with the second chariot were black horses,
 
 ## v3
 
@@ -20,7 +20,7 @@ And the angel answered and said to me, These are the four winds of heaven who go
 
 ## v6
 
-With one of the winds the black horses went forth to the land of the north, and the white horses went forth after them, and the speckled horses went forth to the land of the south.
+With [[Zechariah-06.fn#Footnote 6.1 — one|one]] of the winds the black horses went forth to the land of the north, and the white horses went forth after them, and the speckled horses went forth to the land of the south.
 
 ## v7
 
@@ -28,7 +28,7 @@ And the strong horses went forth and sought to proceed to go to and fro on the e
 
 ## v8
 
-Then He called out to me and spoke to me, saying, See, these who are going forth to the land of the north have given My Spirit rest in the land of the north.
+Then He called out to me and spoke to me, saying, See, these who are going forth to the land of the north have given My Spirit [[Zechariah-06.fn#Footnote 8.1 — rest|rest]] in the land of the north.
 
 ## v9
 
@@ -40,19 +40,19 @@ Take from them of the captivity, from Heldai, Tobijah, and Jedaiah, and go the s
 
 ## v11
 
-Indeed, take the silver and gold, and make a splendid crown and put it upon the head of Joshua the son of Jehozadak, the high priest,
+Indeed, take the silver and gold, and make a [[Zechariah-06.fn#Footnote 11.1 — splendid|splendid]] crown and put it upon the head of Joshua the son of Jehozadak, the high priest,
 
 ## v12
 
-And speak to him, saying, Thus speaks Jehovah of hosts, saying, Here is a man, whose name is the Shoot; and he will shoot forth from his place and will build the temple of Jehovah.
+And speak to him, saying, Thus speaks Jehovah of hosts, saying, Here is a man, whose name is the Shoot; and he will shoot forth from his place and will [[Zechariah-06.fn#Footnote 12.1 — build|build]] the temple of Jehovah.
 
 ## v13
 
-Indeed, it is he who will build the temple of Jehovah; and he will bear majesty and will sit and rule on his throne; and he will be a priest on his throne; and the counsel of peace will be between the two of them.
+Indeed, it is he who will build the temple of Jehovah; and he will bear majesty and will sit and rule on his throne; and he will be a priest on his throne; and the counsel of peace will be [[Zechariah-06.fn#Footnote 13.1 — between|between]] the two of them.
 
 ## v14
 
-And the splendid crown will be as a reminder in the temple of Jehovah to Helem, Tobijah, Jedaiah, and Hen the son of Zephaniah.
+And the splendid crown will be as a [[Zechariah-06.fn#Footnote 14.1 — reminder|reminder]] in the temple of Jehovah to Helem, Tobijah, Jedaiah, and Hen the son of Zephaniah.
 
 ## v15
 

@@ -1,35 +1,35 @@
-### v1
+## v1
 
-By the rivers of Babylon, / There we sat down; indeed, we wept / When we remembered Zion.
+By the rivers of Babylon, / There we sat down; indeed, we wept / When we [[Psalm-137.fn#Footnote 1.1 — remembered|remembered]] Zion.
 
-### v2
+## v2
 
 On the willows in the midst of it / We hung up our lyres,
 
-### v3
+## v3
 
 For there our captors required of us songs, / And those who tormented us required of us mirth, saying, / Sing for us / One of the songs of Zion.
 
-### v4
+## v4
 
 How can we sing the song of Jehovah / In a foreign land?
 
-### v5
+## v5
 
 If I forget you, O Jerusalem, / Let my right hand forget its skill.
 
-### v6
+## v6
 
 Let my tongue cling to the roof of my mouth, / If I do not remember you, / If I do not prefer Jerusalem / Above my chief joy.
 
-### v7
+## v7
 
-Remember, O Jehovah, / Against the children of Edom, / The day of Jerusalem, / Who said, Lay it bare! Lay it bare, / Down to its foundation!
+Remember, O Jehovah, / [[Psalm-137.fn#Footnote 7.1 — Against|Against]] the children of Edom, / The day of Jerusalem, / Who said, Lay it bare! Lay it bare, / Down to its foundation!
 
-### v8
+## v8
 
 O daughter of Babylon, who are to be devastated, / Happy will he be who repays you / The recompense of what you have rendered to us.
 
-### v9
+## v9
 
 Happy will he be who seizes your little ones / And dashes them against the rock.

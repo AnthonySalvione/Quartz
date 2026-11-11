@@ -37,7 +37,7 @@ The service of the Levites was to take care of the Tent of Meeting, the Tabernac
 
 **Verse:** [[Numbers-18#v5|Numbers 18:5]]
 
-The whole tabernacle was the sanctuary, which typifies Christ and also the church (see note 92 in [[Exodus-25|Exo. 25]]). The altar, which was outside the sanctuary, signifies the cross of Christ ([[Hebrews-13#v10|Heb. 13:10]]). Therefore, the sanctuary and the altar typify Christ with the church and His cross.
+The whole tabernacle was the sanctuary, which typifies Christ and also the church (see [note 9²](<Exodus-25.fn#Footnote 9.2 — tabernacle>) in [[Exodus-25|Exo. 25]]). The altar, which was outside the sanctuary, signifies the cross of Christ ([[Hebrews-13#v10|Heb. 13:10]]). Therefore, the sanctuary and the altar typify Christ with the church and His cross.
 
 ## Footnotes for verse 6
 
@@ -45,7 +45,7 @@ The whole tabernacle was the sanctuary, which typifies Christ and also the churc
 
 **Verse:** [[Numbers-18#v6|Numbers 18:6]]
 
-The Levites were a gift to Aaron and his sons, a gift that had first been given to God. The children of Israel gave their firstborn to God as a gift, and these were replaced by the Levites ([[Numbers-03#v12|3:12-13]] and note 121). God then gave the Levites, who had been given to Him, as a gift to the priests.
+The Levites were a gift to Aaron and his sons, a gift that had first been given to God. The children of Israel gave their firstborn to God as a gift, and these were replaced by the Levites ([[Numbers-03#v12|3:12-13]] and [[Numbers-03.fn#Footnote 12.1 — Levites|note 12¹]]). God then gave the Levites, who had been given to Him, as a gift to the priests.
 
 ## Footnotes for verse 7
 
@@ -89,7 +89,7 @@ Signifying those who are spiritually stronger (cf. [[1 Peter-03#v7|1 Pet. 3:7]])
 
 **Verse:** [[Numbers-18#v11|Numbers 18:11]]
 
-The heave offering (the ascended Christ) and wave offering (the resurrected Christ) were given not only to the priests but also to the sons (the stronger ones) and daughters (the weaker ones) of the priests. This indicates that as long as we belong to the priestly family, whether we are strong or weak, we can enjoy such a Christ. See note 101.
+The heave offering (the ascended Christ) and wave offering (the resurrected Christ) were given not only to the priests but also to the sons (the stronger ones) and daughters (the weaker ones) of the priests. This indicates that as long as we belong to the priestly family, whether we are strong or weak, we can enjoy such a Christ. See [note 10¹](<Numbers-18.fn#Footnote 10.1 — male>).
 
 ## Footnotes for verse 12
 
@@ -113,7 +113,7 @@ Since each firstborn son did not belong to his parents, the parents were to rede
 
 **Verse:** [[Numbers-18#v19|Numbers 18:19]]
 
-See note 13² in [[Leviticus-02|Lev. 2]].
+See [note 13²](<Leviticus-02.fn#Footnote 13.2 — covenant>) in [[Leviticus-02|Lev. 2]].
 
 ## Footnotes for verse 20
 
@@ -121,7 +121,7 @@ See note 13² in [[Leviticus-02|Lev. 2]].
 
 **Verse:** [[Numbers-18#v20|Numbers 18:20]]
 
-Neither the priests nor the Levites ([[Numbers-18#v23|vv. 23b]], [[Numbers-18#v24|24b]]) had any inheritance or any portion in the land of Israel. God Himself was their portion and their inheritance among the sons of Israel ([[Deuteronomy-10#v9|Deut. 10:9]]; [[Deuteronomy-18#v2|18:2]]; [[Joshua-13#v33|Josh. 13:33]]; [[Ezekiel-44#v28|Ezek. 44:28]]). Not only was God’s food their portion—God Himself was their portion and their inheritance. Because God was their portion and inheritance, they did not need any other portion or inheritance. Cf. notes 186 in [[Acts-26|Acts 26]] and 122 in [[Colossians-01|Col. 1]].
+Neither the priests nor the Levites ([[Numbers-18#v23|vv. 23b]], [[Numbers-18#v24|24b]]) had any inheritance or any portion in the land of Israel. God Himself was their portion and their inheritance among the sons of Israel ([[Deuteronomy-10#v9|Deut. 10:9]]; [[Deuteronomy-18#v2|18:2]]; [[Joshua-13#v33|Josh. 13:33]]; [[Ezekiel-44#v28|Ezek. 44:28]]). Not only was God’s food their portion—God Himself was their portion and their inheritance. Because God was their portion and inheritance, they did not need any other portion or inheritance. Cf. notes [18⁶](<Acts-26.fn#Footnote 18.6 — an>) in [[Acts-26|Acts 26]] and [12²](<Colossians-01.fn#Footnote 12.2 — allotted>) in [[Colossians-01|Col. 1]].
 
 ## Footnotes for verse 21
 
@@ -147,7 +147,7 @@ The tithe from the Levites was considered a heave offering, which typifies the a
 
 The tithe from the people was given to the Levites ([[Numbers-18#v21|vv. 21]], [[Numbers-18#v26|26a]]), and the tithe of the tithe ([[Numbers-18#v26|v. 26b]]) from the Levites was given to Aaron the priest to be offered to God as a heave offering. This became God’s food, a portion of which was also the food of the priests. Thus, the Levites lived on the tithe from the people, and God and the priests lived on the tithe from the Levites. 
 
-God and His people, including the serving ones, were one large family. In this family God the Father as the source gave the good land to His children, who then had to work the land. Eventually, they reaped a harvest, which was to be enjoyed by both God and all the people. They were to bring a portion of the produce to the serving ones, and the serving ones were to offer a portion of what they received to God. In this way, God and His serving ones shared the tithes and lived together. The good land is a type of the all-inclusive Christ (see note 71 in [[Deuteronomy-08|Deut. 8]]). God’s food is the riches of Christ, typified by the produce of the good land, and this produce comes through our labor. We need to labor on Christ and experience Christ. Then Christ will be the produce not only for our satisfaction but also for God’s satisfaction.
+God and His people, including the serving ones, were one large family. In this family God the Father as the source gave the good land to His children, who then had to work the land. Eventually, they reaped a harvest, which was to be enjoyed by both God and all the people. They were to bring a portion of the produce to the serving ones, and the serving ones were to offer a portion of what they received to God. In this way, God and His serving ones shared the tithes and lived together. The good land is a type of the all-inclusive Christ (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]). God’s food is the riches of Christ, typified by the produce of the good land, and this produce comes through our labor. We need to labor on Christ and experience Christ. Then Christ will be the produce not only for our satisfaction but also for God’s satisfaction.
 
 ## Footnotes for verse 31
 

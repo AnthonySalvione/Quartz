@@ -4,11 +4,11 @@ In the first year of Darius the son of Ahasuerus, a Median descendant who was ma
 
 ## v2
 
-In the first year of his reign I, Daniel, understood by means of the Scriptures the number of the years, which came as the word of Jehovah to Jeremiah the prophet, for the completion of the desolations of Jerusalem, that is, seventy years.
+In the first year of his reign I, Daniel, understood by means of the [[Daniel-09.fn#Footnote 2.1 — Scriptures|Scriptures]] the number of the years, which came as the word of Jehovah to Jeremiah the prophet, for the completion of the desolations of Jerusalem, that is, seventy years.
 
 ## v3
 
-So I set my face toward the Lord God to seek Him in prayer and supplications with fasting and sackcloth and ashes.
+So I set my face toward the Lord God to [[Daniel-09.fn#Footnote 3.1 — seek|seek]] Him in prayer and supplications with fasting and sackcloth and ashes.
 
 ## v4
 
@@ -60,7 +60,7 @@ And now, O Lord our God, who have brought Your people out of the land of Egypt w
 
 ## v16
 
-O Lord, in accordance with all the manifestations of Your righteousness, may Your anger and Your wrath be turned away, I pray, from Your city Jerusalem, Your holy mountain; for because of our sins and the iniquities of our fathers, Jerusalem and Your people are a reproach to all those around us.
+O Lord, in accordance with all the [[Daniel-09.fn#Footnote 16.1 — manifestations|manifestations]] of Your righteousness, may Your anger and Your wrath be turned away, I pray, from Your city Jerusalem, Your holy mountain; for because of our sins and the iniquities of our fathers, Jerusalem and Your people are a reproach to all those around us.
 
 ## v17
 
@@ -80,7 +80,7 @@ And while I was still speaking and praying and confessing my sin and the sin of 
 
 ## v21
 
-Even while I was speaking in prayer, the man Gabriel, whom I had seen in the vision at the beginning, reached me in my utter exhaustion about the time of the evening oblation.
+Even while I was speaking in prayer, the man [[Daniel-09.fn#Footnote 21.1 — Gabriel|Gabriel]], whom I had seen in the vision at the beginning, reached me in my utter exhaustion about the time of the evening oblation.
 
 ## v22
 
@@ -92,16 +92,16 @@ At the beginning of your supplications the command went forth, and I have come t
 
 ## v24
 
-Seventy weeks are apportioned for your people and for your holy city, to close the transgression, and to make an end of sins, and to make propitiation for iniquity, and to bring in the righteousness of the ages, and to seal up vision and prophet, and to anoint the Holy of Holies.
+[[Daniel-09.fn#Footnote 24.1 — Seventy|Seventy]] weeks are apportioned for your people and for your holy city, to close the transgression, and to [[Daniel-09.fn#Footnote 24.2 — make|make]] an end of sins, and to make propitiation for iniquity, and to bring in the [[Daniel-09.fn#Footnote 24.3 — righteousness|righteousness]] of the ages, and to [[Daniel-09.fn#Footnote 24.4 — seal|seal]] up vision and prophet, and to [[Daniel-09.fn#Footnote 24.5 — anoint|anoint]] the Holy of Holies.
 
 ## v25
 
-Know therefore and comprehend: From the issuing of the decree to restore and rebuild Jerusalem until the time of Messiah the Prince will be seven weeks and sixty-two weeks; it will be built again, with street and trench, even in distressful times.
+Know therefore and comprehend: From the issuing of the decree to restore and rebuild Jerusalem until the time of Messiah the Prince will be [[Daniel-09.fn#Footnote 25.1 — seven|seven]] weeks and [[Daniel-09.fn#Footnote 25.1 — seven|sixty-two]] weeks; it will be built again, with [[Daniel-09.fn#Footnote 25.2 — street|street]] and trench, even in distressful times.
 
 ## v26
 
-And after the sixty-two weeks Messiah will be cut off and will have nothing; and the people of the prince who will come will destroy the city and the sanctuary; and the end of it will be with a flood, and even to the end there will be war; desolations are determined.
+And after the sixty-two weeks Messiah will be [[Daniel-09.fn#Footnote 26.1 — cut|cut]] off and will have nothing; and the people of the [[Daniel-09.fn#Footnote 26.2 — prince|prince]] who will come will destroy the city and the sanctuary; and the end of it will be with a flood, and even to the end there will be [[Daniel-09.fn#Footnote 26.3 — war|war]]; desolations are determined.
 
 ## v27
 
-And he will make a firm covenant with the many for one week; and in the middle of the week he will cause the sacrifice and the oblation to cease and will replace the sacrifice and the oblation with abominations of the desolator, even until the complete destruction that has been determined is poured out upon the desolator.
+And [[Daniel-09.fn#Footnote 27.1 — he|he]] will make a firm covenant with the many for one week; and in the middle of the week he will cause the sacrifice and the oblation to cease and [[Daniel-09.fn#Footnote 27.2 — will|will]] replace the sacrifice and the oblation with [[Daniel-09.fn#Footnote 27.3 — abominations|abominations]] of the desolator, even until the complete destruction that has been determined is poured out upon the desolator.

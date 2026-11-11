@@ -1,7 +1,7 @@
 ## v1
 
 Israel is a luxuriant vine;  
-He brings forth fruit for himself.  
+He brings forth fruit for [[Hosea-10.fn#Footnote 1.1 — himself|himself]].  
 According to the abundance of his fruit  
 He has multiplied altars;  
 According to the goodness of their land  
@@ -17,7 +17,7 @@ He will destroy their pillars.
 ## v3
 
 For now they will say,  
-We have no king,  
+We have [[Hosea-10.fn#Footnote 3.1 — no|no]] king,  
 For we did not fear Jehovah;  
 And the king, what can he do for us?
 
@@ -32,9 +32,9 @@ In the furrows of the field.
 ## v5
 
 The inhabitants of Samaria will fear  
-For the calves of Beth-aven;  
+For the calves of [[Hosea-10.fn#Footnote 5.1 — Beth-aven|Beth-aven]];  
 For its people will mourn over it,  
-And its idol priests will tremble for it,  
+And its idol priests [[Hosea-10.fn#Footnote 5.2 — will|will]] tremble for it,  
 For its glory,  
 Because it has departed from it.
 
@@ -72,7 +72,7 @@ Because of the children of iniquity?
 
 When I so desire, I will chastise them;  
 And the peoples will be gathered against them,  
-When they are bound for their double iniquity.
+When they are bound for their [[Hosea-10.fn#Footnote 10.1 — double|double]] iniquity.
 
 ## v11
 
@@ -86,9 +86,9 @@ Jacob will break his clods.
 
 ## v12
 
-Sow unto righteousness for yourselves;  
+[[Hosea-10.fn#Footnote 12.1 — Sow|Sow]] unto righteousness for yourselves;  
 Reap according to lovingkindness;  
-Break up your fallow ground;  
+Break up your [[Hosea-10.fn#Footnote 12.2 — fallow|fallow]] ground;  
 For it is time to seek Jehovah  
 Until He comes and rains  
 Righteousness on you.
@@ -103,7 +103,7 @@ In the multitude of your mighty men.
 
 ## v14
 
-And a tumult will arise among your peoples;  
+And a [[Hosea-10.fn#Footnote 14.1 — tumult|tumult]] will arise among your peoples;  
 And all your fortresses will be devastated,  
 As Shalman devastated Beth-arbel  
 In the day of battle:  
@@ -113,5 +113,5 @@ The mother was dashed in pieces with the children.
 
 Thus Bethel will cause this to happen to you  
 Because of your great evil:  
-At dawn the king of Israel  
+At [[Hosea-10.fn#Footnote 15.1 — dawn|dawn]] the king of Israel  
 Will be utterly cut off.

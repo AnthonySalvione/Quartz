@@ -8,8 +8,8 @@ And what I will reply concerning my complaint.
 ## v2
 
 Then Jehovah answered me and said,  
-Write the vision, and render it plainly upon tablets,  
-That even he who runs by may read it.
+Write the [[Habakkuk-02.fn#Footnote 2.1 — vision|vision]], and render it plainly upon tablets,  
+[[Habakkuk-02.fn#Footnote 2.2 — That|That]] even he who runs by may read it.
 
 ## v3
 
@@ -22,13 +22,13 @@ For it will surely come; it will not delay.
 
 See, he who is puffed up,  
 His soul is not upright within him,  
-But the righteous one will live by his faith.
+[[Habakkuk-02.fn#Footnote 4.1 — But|But]] the righteous one will [[Habakkuk-02.fn#Footnote 4.2 — live|live]] by his faith.
 
 ## v5
 
 Furthermore his wine is treacherous:  
 A boasting man, he does not abide at home,  
-He who enlarges his appetite like Sheol,  
+He who enlarges his appetite like [[Habakkuk-02.fn#Footnote 5.1 — Sheol|Sheol]],  
 And is like death and cannot be satisfied,  
 But gathers to himself all the nations  
 And collects for himself all the peoples.
@@ -49,7 +49,7 @@ And you will become booty to them?
 ## v8
 
 Because you have plundered many nations;  
-All the remnant of the peoples will plunder you,  
+All the remnant of the peoples will [[Habakkuk-02.fn#Footnote 8.1 — plunder|plunder]] you,  
 Because of the bloodshed of men and the violence done to the land,  
 To the city, and to all the inhabitants in it.
 
@@ -83,14 +83,14 @@ And the nations weary themselves for vanity?
 
 ## v14
 
-For the earth will be filled  
+For the earth will be [[Habakkuk-02.fn#Footnote 14.1 — filled|filled]]  
 With the knowledge of the glory of Jehovah  
 As water covers the sea.
 
 ## v15
 
 Woe to him who makes his neighbor drink,  
-Adding in his poison,  
+Adding in [[Habakkuk-02.fn#Footnote 15.1 — his|his]] poison,  
 And also making him drunk  
 In order to look at their nakedness!
 

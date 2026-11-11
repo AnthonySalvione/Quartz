@@ -23,7 +23,7 @@ The Septuagint reads, Merom (cf. [[Joshua-11#v5|vv. 5]], [[Joshua-11#v7|7]]).
 
 **Verse:** [[Joshua-11#v20|Joshua 11:20]]
 
-This indicates that the destruction of the thirty-one kings of the thirty-one nations was according to God’s intention. Cf. [[Exodus-09#v12|Exo. 9:12]] and note.
+This indicates that the destruction of the thirty-one kings of the thirty-one nations was according to God’s intention. Cf. [[Exodus-09#v12|Exo. 9:12]] and [note](<Exodus-09.fn#Footnote 12.1 — hardened>).
 
 ## Footnotes for verse 21
 
@@ -31,4 +31,4 @@ This indicates that the destruction of the thirty-one kings of the thirty-one na
 
 **Verse:** [[Joshua-11#v21|Joshua 11:21]]
 
-See [[Numbers-13#v33|Num. 13:33]] and note.
+See [[Numbers-13#v33|Num. 13:33]] and [note](<Numbers-13.fn#Footnote 33.1 — Nephilim>).

@@ -15,7 +15,7 @@ chapter_num: 6
 
 **Verse:** [[1 Samuel-06#v4|1 Samuel 6:4]]
 
-The Philistines, who were very close neighbors of Israel, typify the people of the religious world. Their worldly way in handling the things of God is shown in the trespass offering that they offered to God and in their use of a cart and two milch cows to send the Ark back to Israel ([[1 Samuel-06#v7|vv. 7-12]]). Cf. note 72 in [[2 Samuel-06|2 Sam. 6]].
+The Philistines, who were very close neighbors of Israel, typify the people of the religious world. Their worldly way in handling the things of God is shown in the trespass offering that they offered to God and in their use of a cart and two milch cows to send the Ark back to Israel ([[1 Samuel-06#v7|vv. 7-12]]). Cf. [note 7²](<2 Samuel-06.fn#Footnote 7.2 — died>) in [[2 Samuel-06|2 Sam. 6]].
 
 ## Footnotes for verse 6
 

@@ -33,7 +33,7 @@ The earth is for growing life ([[Genesis-01#v11|1:11]]). To make bricks is to ki
 
 **Verse:** [[Genesis-11#v4|Genesis 11:4]]
 
-The city built by man’s labor signifies that man had forsaken God and replaced Him with a man-made and godless culture (see note 172 in [[Genesis-04|Genesis 4]]).
+The city built by man’s labor signifies that man had forsaken God and replaced Him with a man-made and godless culture (see [note 17²](<Genesis-04.fn#Footnote 17.2 — city>) in [[Genesis-04|Genesis 4]]).
 
 ### Footnote 4.2 — tower
 
@@ -41,7 +41,7 @@ The city built by man’s labor signifies that man had forsaken God and replaced
 
 The tower was built for the purpose of making a name for the people and for declaring their rebellion and opposition against God. Abraham’s building an altar and calling on the name of Jehovah in [[Genesis-12#v7|12:7-8]] are in contrast to what was done here. 
 
-According to historical records and archeological evidence, the city and tower of Babel were full of the names of idols. Thus, at Babel man followed Satan, exalted himself to oppose God, rejected God’s name, denied God’s right and authority over man, and fell into idolatry. This was man’s fourth fall, a fall from human government under God’s authority to a collective rebellion of the whole human race against God under Satan’s instigation (see note 32 in [[Genesis-06|Genesis 6]]).
+According to historical records and archeological evidence, the city and tower of Babel were full of the names of idols. Thus, at Babel man followed Satan, exalted himself to oppose God, rejected God’s name, denied God’s right and authority over man, and fell into idolatry. This was man’s fourth fall, a fall from human government under God’s authority to a collective rebellion of the whole human race against God under Satan’s instigation (see [note 3²](<Genesis-06.fn#Footnote 3.2 — flesh>) in [[Genesis-06|Genesis 6]]).
 
 ## Footnotes for verse 7
 
@@ -49,7 +49,7 @@ According to historical records and archeological evidence, the city and tower o
 
 **Verse:** [[Genesis-11#v7|Genesis 11:7]]
 
-The pronoun Us here indicates that at Babel the Triune God came down personally and judged that rebellion directly. See note 13 in [[Genesis-01|Genesis 1]].
+The pronoun Us here indicates that at Babel the Triune God came down personally and judged that rebellion directly. See [note 1³](<Genesis-01.fn#Footnote 1.3 — God>) in [[Genesis-01|Genesis 1]].
 
 ### Footnote 7.2 — confound
 
@@ -73,15 +73,15 @@ Meaning confusion.
 
 **Verse:** [[Genesis-11#v28|Genesis 11:28]]
 
-Meaning light. According to [[Acts-07#v2|Acts 7:2]], the God of glory appeared to Abraham first in Ur of the Chaldeans, while he was still in Mesopotamia, before he dwelt in Haran (cf. [[Genesis-11#v31|v. 31]]). Before God’s initial appearing to Abraham, he and his family served other gods ([[Joshua-24#v2|Josh. 24:2]]). It was out of such a dark background of idol worship, the background of Babel ([[Genesis-11#v3|vv. 3-4]]), that God called Abraham, the father of faith ([[Romans-04#v16|Rom. 4:16]]; [[Galatians-03#v7|Gal. 3:7]]). God’s coming to Abraham and appearing to him brought light to Abraham (cf. [[Matthew-04#v16|Matt. 4:16]]; [[Acts-09#v1|Acts 9:1-3]]; [[2 Corinthians-04#v6|2 Cor. 4:6]]) and motivated him to come out of the country of satanic idolatry. See note 22 in [[Acts-07|Acts 7]] and note 22 in [[Hebrews-12|Heb. 12]]. 
+Meaning light. According to [[Acts-07#v2|Acts 7:2]], the God of glory appeared to Abraham first in Ur of the Chaldeans, while he was still in Mesopotamia, before he dwelt in Haran (cf. [[Genesis-11#v31|v. 31]]). Before God’s initial appearing to Abraham, he and his family served other gods ([[Joshua-24#v2|Josh. 24:2]]). It was out of such a dark background of idol worship, the background of Babel ([[Genesis-11#v3|vv. 3-4]]), that God called Abraham, the father of faith ([[Romans-04#v16|Rom. 4:16]]; [[Galatians-03#v7|Gal. 3:7]]). God’s coming to Abraham and appearing to him brought light to Abraham (cf. [[Matthew-04#v16|Matt. 4:16]]; [[Acts-09#v1|Acts 9:1-3]]; [[2 Corinthians-04#v6|2 Cor. 4:6]]) and motivated him to come out of the country of satanic idolatry. See [note 2²](<Acts-07.fn#Footnote 2.2 — glory>) in [[Acts-07|Acts 7]] and note [2²](<Hebrews-12.fn#Footnote 2.2 — Jesus>) in [[Hebrews-12|Heb. 12]]. 
 
-God came in to call Abraham that He might have a new beginning with fallen man. God’s calling of Abraham was a transfer of race, a transfer from the created Adamic race to the called Abrahamic race (see note 161 in [[Romans-04|Rom. 4]]). The transfer of race in God’s calling is actually the transfer of life, from the life of Adam to the life of Christ ([[Galatians-02#v20|Gal. 2:20]]; [[Philippians-01#v21|Phil. 1:21a]]), from the fallen life of the old creation to the stronger and better life of the new creation—the uncreated life of God. The process of this transfer of life is portrayed in the succeeding chapters of Genesis and is seen in the collective experiences of Abraham, Isaac, and Jacob.
+God came in to call Abraham that He might have a new beginning with fallen man. God’s calling of Abraham was a transfer of race, a transfer from the created Adamic race to the called Abrahamic race (see [note 16¹](<Romans-04.fn#Footnote 16.1 — father>) in [[Romans-04|Rom. 4]]). The transfer of race in God’s calling is actually the transfer of life, from the life of Adam to the life of Christ ([[Galatians-02#v20|Gal. 2:20]]; [[Philippians-01#v21|Phil. 1:21a]]), from the fallen life of the old creation to the stronger and better life of the new creation—the uncreated life of God. The process of this transfer of life is portrayed in the succeeding chapters of Genesis and is seen in the collective experiences of Abraham, Isaac, and Jacob.
 
 ### Footnote 28.2 — Chaldeans
 
 **Verse:** [[Genesis-11#v28|Genesis 11:28]]
 
-Chaldea was a demonic place, a land of idolatry, in Mesopotamia, a region bounded by two great rivers, the Euphrates and the Tigris. Thus, in order to leave Chaldea, the land of idolatry, and travel to the good land, the land of Canaan, Abraham, the first Hebrew ([[Genesis-14#v13|14:13]] and note), had to cross the Euphrates. See note 12, par. 2, in [[Hebrews-01|Heb. 1]] and note 132 in [[Hebrews-11|Heb. 11]].
+Chaldea was a demonic place, a land of idolatry, in Mesopotamia, a region bounded by two great rivers, the Euphrates and the Tigris. Thus, in order to leave Chaldea, the land of idolatry, and travel to the good land, the land of Canaan, Abraham, the first Hebrew ([[Genesis-14#v13|14:13]] and [note](<Genesis-14.fn#Footnote 13.1 — Hebrew>)), had to cross the Euphrates. See [note 1²](<Hebrews-01.fn#Footnote 1.2 — many>), par. 2, in [[Hebrews-01|Heb. 1]] and note [13²](<Hebrews-11.fn#Footnote 13.2 — sojourners>) in [[Hebrews-11|Heb. 11]].
 
 ## Footnotes for verse 29
 
@@ -97,7 +97,7 @@ Meaning my princess.
 
 **Verse:** [[Genesis-11#v31|Genesis 11:31]]
 
-According to [[Acts-07#v2|Acts 7:2-3]], God appeared to Abraham in Ur of the Chaldeans and called him to “come out from your land and from your relatives, and come into the land which I will show you.” This was God’s first appearing and calling to him. However, Abraham did not accept God’s calling immediately but remained in Ur for some time. After the death of Haran, Abraham’s brother ([[Genesis-11#v28|v. 28]]), God sovereignly caused his father, Terah, to bring the family from Ur to Haran. Thus, it was not Abraham but his father who took the initiative to leave Ur. See [[Acts-07#v4|Acts 7:4]] and note.
+According to [[Acts-07#v2|Acts 7:2-3]], God appeared to Abraham in Ur of the Chaldeans and called him to “come out from your land and from your relatives, and come into the land which I will show you.” This was God’s first appearing and calling to him. However, Abraham did not accept God’s calling immediately but remained in Ur for some time. After the death of Haran, Abraham’s brother ([[Genesis-11#v28|v. 28]]), God sovereignly caused his father, Terah, to bring the family from Ur to Haran. Thus, it was not Abraham but his father who took the initiative to leave Ur. See [[Acts-07#v4|Acts 7:4]] and [note](<Acts-07.fn#Footnote 4.1 — removed>).
 
 ### Footnote 31.2 — Haran
 

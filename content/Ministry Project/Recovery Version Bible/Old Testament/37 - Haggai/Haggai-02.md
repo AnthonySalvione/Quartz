@@ -28,13 +28,13 @@ Do not fear.
 ## v6
 
 For thus says Jehovah of hosts,  
-Yet once more — it is but a little while —  
+[[Haggai-02.fn#Footnote 6.1 — Yet|Yet]] once more — it is but a little while —  
 I will shake the heavens and the earth and the sea and the dry land;
 
 ## v7
 
 And I will shake all the nations,  
-And the Desire of all the nations will come;  
+And the [[Haggai-02.fn#Footnote 7.1 — Desire|Desire]] of all the nations will come;  
 And I will fill this house with glory,  
 Says Jehovah of hosts.
 
@@ -80,7 +80,7 @@ And the priests answered and said, It will be unclean.
 Then Haggai answered and said,  
 So is this people and so is this nation before Me, declares Jehovah,  
 And so is all the work of their hands.  
-Thus what they offer there is unclean.
+Thus what they offer there is [[Haggai-02.fn#Footnote 14.1 — unclean|unclean]].
 
 ## v15
 
@@ -118,7 +118,7 @@ And the word of Jehovah came a second time to Haggai on the twenty-fourth day of
 
 ## v21
 
-Speak to Zerubbabel the governor of Judah, saying,  
+Speak to [[Haggai-02.fn#Footnote 21.1 — Zerubbabel|Zerubbabel]] the governor of Judah, saying,  
 I will shake the heavens and the earth.
 
 ## v22

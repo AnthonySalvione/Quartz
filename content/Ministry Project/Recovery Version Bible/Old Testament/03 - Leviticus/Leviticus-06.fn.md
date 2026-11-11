@@ -15,7 +15,7 @@ chapter_num: 6
 
 **Verse:** [[Leviticus-06#v4|Leviticus 6:4]]
 
-See note 16¹ in [[Leviticus-05|Leviticus 5]].
+See [note 16¹](<Leviticus-05.fn#Footnote 16.1 — restitution>) in [[Leviticus-05|Leviticus 5]].
 
 ## Footnotes for verse 5
 
@@ -67,13 +67,13 @@ Ashes indicate the result of Christ’s death, which brings us to an end, i.e., 
 
 **Verse:** [[Leviticus-06#v12|Leviticus 6:12]]
 
-The priest’s burning wood on the altar every morning signifies the need of the serving one’s cooperation with God’s desire (see note 94) by adding more fuel to the holy fire to strengthen the burning for the receiving of the burnt offering as God’s food (cf. [[Romans-12#v11|Rom. 12:11]]; [[2 Timothy-01#v6|2 Tim. 1:6]]). The morning signifies a new start for the burning.
+The priest’s burning wood on the altar every morning signifies the need of the serving one’s cooperation with God’s desire (see [note 9⁴](<Leviticus-06.fn#Footnote 9.4 — kept>)) by adding more fuel to the holy fire to strengthen the burning for the receiving of the burnt offering as God’s food (cf. [[Romans-12#v11|Rom. 12:11]]; [[2 Timothy-01#v6|2 Tim. 1:6]]). The morning signifies a new start for the burning.
 
 ### Footnote 12.2 — burnt
 
 **Verse:** [[Leviticus-06#v12|Leviticus 6:12]]
 
-See note 51 in [[Leviticus-03|Leviticus 3]]. The burning of the burnt offering laid a foundation for the sweetness of the peace offering. This indicates that our offering ourselves to God as a continual burnt offering (cf. [[Romans-12#v1|Rom. 12:1]]) should be laid as a foundation for our sweet fellowship with God, signified by the burning of the fat of the peace offering. The burning of both the burnt offering and the peace offering signifies that both our absoluteness for God and our enjoyment of the Triune God should be a matter of burning.
+See [note 5¹](<Leviticus-03.fn#Footnote 5.1 — burnt>) in [[Leviticus-03|Leviticus 3]]. The burning of the burnt offering laid a foundation for the sweetness of the peace offering. This indicates that our offering ourselves to God as a continual burnt offering (cf. [[Romans-12#v1|Rom. 12:1]]) should be laid as a foundation for our sweet fellowship with God, signified by the burning of the fat of the peace offering. The burning of both the burnt offering and the peace offering signifies that both our absoluteness for God and our enjoyment of the Triune God should be a matter of burning.
 
 ## Footnotes for verse 14
 
@@ -81,7 +81,7 @@ See note 51 in [[Leviticus-03|Leviticus 3]]. The burning of the burnt offering l
 
 **Verse:** [[Leviticus-06#v14|Leviticus 6:14]]
 
-Before Jehovah signifies that the meal offering is offered to God in His presence, and before the altar signifies that the meal offering is offered in relation to the redemption of Christ on the cross, the altar being a type of the cross ([[Hebrews-13#v10|Heb. 13:10]] and note).
+Before Jehovah signifies that the meal offering is offered to God in His presence, and before the altar signifies that the meal offering is offered in relation to the redemption of Christ on the cross, the altar being a type of the cross ([[Hebrews-13#v10|Heb. 13:10]] and [note](<Hebrews-13.fn#Footnote 10.1 — altar>)).
 
 ## Footnotes for verse 15
 
@@ -103,7 +103,7 @@ The meal offering is not common food. It is food only for the priests, i.e., onl
 
 **Verse:** [[Leviticus-06#v16|Leviticus 6:16]]
 
-Eating the priests’ portion of the meal offering without leaven in a holy place signifies that we enjoy Christ as the life supply for our service without sin (leaven) in a separated, sanctified realm. Since the Tent of Meeting typifies the church (see note 13 in [[Leviticus-01|Leviticus 1]]), eating the meal offering in the court of the Tent of Meeting signifies that Christ should be enjoyed as our life supply in the sphere of the church life.
+Eating the priests’ portion of the meal offering without leaven in a holy place signifies that we enjoy Christ as the life supply for our service without sin (leaven) in a separated, sanctified realm. Since the Tent of Meeting typifies the church (see [note 1³](<Leviticus-01.fn#Footnote 1.3 — Tent>) in [[Leviticus-01|Leviticus 1]]), eating the meal offering in the court of the Tent of Meeting signifies that Christ should be enjoyed as our life supply in the sphere of the church life.
 
 ## Footnotes for verse 17
 
@@ -117,7 +117,7 @@ Not baking the meal offering with leaven signifies that our laboring on Christ t
 
 **Verse:** [[Leviticus-06#v17|Leviticus 6:17]]
 
-The law of the meal offering refers us here to the sin offering and the trespass offering, signifying that if we would enjoy Christ as our life supply, we need to deal with the sin in our fallen nature and with the sins (trespasses) in our conduct. See note 34, par. 1, in [[Leviticus-04|Leviticus 4]].
+The law of the meal offering refers us here to the sin offering and the trespass offering, signifying that if we would enjoy Christ as our life supply, we need to deal with the sin in our fallen nature and with the sins (trespasses) in our conduct. See [note 3⁴](<Leviticus-04.fn#Footnote 3.4 — sin>), par. 1, in [[Leviticus-04|Leviticus 4]].
 
 ## Footnotes for verse 18
 
@@ -133,7 +133,7 @@ Those who partake of Christ as the life supply should be strong in the divine li
 
 **Verse:** [[Leviticus-06#v20|Leviticus 6:20]]
 
-The offering of a meal offering by Aaron and his sons on the day when Aaron was anointed signifies that the enjoyment of Christ as the life supply is related to the priestly service. Cf. note 351 in [[Leviticus-07|Leviticus 7]].
+The offering of a meal offering by Aaron and his sons on the day when Aaron was anointed signifies that the enjoyment of Christ as the life supply is related to the priestly service. Cf. [note 35¹](<Leviticus-07.fn#Footnote 35.1 — anointing>) in [[Leviticus-07|Leviticus 7]].
 
 ### Footnote 20.2 — tenth
 
@@ -161,7 +161,7 @@ The sin offering being most holy signifies that Christ as our sin offering was m
 
 **Verse:** [[Leviticus-06#v26|Leviticus 6:26]]
 
-That the priest who offered the sin offering ate it in a holy place, in the court of the Tent of Meeting, signifies that the one who serves sinners with Christ as their sin offering enjoys Christ as the sin offering in a separated, sanctified realm, in the sphere of the church (cf. note 162).
+That the priest who offered the sin offering ate it in a holy place, in the court of the Tent of Meeting, signifies that the one who serves sinners with Christ as their sin offering enjoys Christ as the sin offering in a separated, sanctified realm, in the sphere of the church (cf. [note 16²](<Leviticus-06.fn#Footnote 16.2 — without>)).
 
 ## Footnotes for verse 27
 
@@ -189,7 +189,7 @@ This signifies that the natural life of the one who, as an earthen vessel (cf. [
 
 **Verse:** [[Leviticus-06#v28|Leviticus 6:28]]
 
-This signifies that the one who has been enlightened and judged by the Spirit (likened to a bronze mirror—cf. note 182 in [[Exodus-30|Exo. 30]]) to be regenerated needs not to be broken but to be dealt with by being scoured and rinsed ([[1 Corinthians-06#v11|1 Cor. 6:11]]; [[Titus-03#v5|Titus 3:5]]).
+This signifies that the one who has been enlightened and judged by the Spirit (likened to a bronze mirror—cf. [note 18²](<Exodus-30.fn#Footnote 18.2 — bronze>) in [[Exodus-30|Exo. 30]]) to be regenerated needs not to be broken but to be dealt with by being scoured and rinsed ([[1 Corinthians-06#v11|1 Cor. 6:11]]; [[Titus-03#v5|Titus 3:5]]).
 
 ## Footnotes for verse 29
 

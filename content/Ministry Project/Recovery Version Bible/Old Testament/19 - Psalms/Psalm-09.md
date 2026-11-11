@@ -1,6 +1,13 @@
+> *To the choir director: according to muth-labben. A Psalm of David*
+
+> [!light] Note on *according:*
+>  The meaning of the Hebrew is obscure. It may refer to a kind of singing voice. Some versions translate, over the death of a son.
+
+
+---
 ## v1
 
-I will give thanks to You, O Jehovah, with all my heart;  
+[[Psalm-09.fn#Footnote 1.1 — I|I]] will give thanks to You, O Jehovah, with all my heart;  
 I will tell out all Your wonders.
 
 ## v2
@@ -10,13 +17,13 @@ I will sing psalms to Your name, O Most High.
 
 ## v3
 
-When my enemies turn back,  
+When my [[Psalm-09.fn#Footnote 3.1 — enemies|enemies]] turn back,  
 They stumble and perish at Your presence.
 
 ## v4
 
 For You have upheld my right and my cause;  
-You sit on the throne, judging righteously.
+You sit on the throne, [[Psalm-09.fn#Footnote 4.1 — judging|judging]] righteously.
 
 ## v5
 
@@ -75,8 +82,8 @@ In the net that they hid, their own foot is caught.
 
 ## v16
 
-Jehovah has made Himself known; He has executed justice;  
-The wicked have been snared in the work of their hands. Higgaion. Selah
+Jehovah has made Himself known; He has executed [[Psalm-09.fn#Footnote 16.1 — justice|justice]];  
+The wicked have been snared in the work of their hands. [[Psalm-09.fn#Footnote 16.2 — Higgaion|Higgaion]]. Selah
 
 ## v17
 

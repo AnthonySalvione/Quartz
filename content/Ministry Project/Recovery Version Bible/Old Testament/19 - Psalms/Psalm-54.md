@@ -1,6 +1,11 @@
+> *To the choir director: on the stringed instruments. A Maschil of David, when the Ziphites came and said to Saul, David is indeed hiding among us!*
+
+> [!light] Note on Maschil:
+> See note on the superscription of [[Psalm-32|Psa. 32]].
+---
 ## v1
 
-O God, save me by Your name,  
+O God, [[Psalm-54.fn#Footnote 1.1 — save|save]] me by Your name,  
 And execute judgment for me by Your might.
 
 ## v2
@@ -22,12 +27,12 @@ The Lord is among those who sustain my soul.
 ## v5
 
 He will return the evil to those who lie in wait for me.  
-Annihilate them in Your faithfulness.
+Annihilate them in Your [[Psalm-54.fn#Footnote 5.1 — faithfulness|faithfulness]].
 
 ## v6
 
 I will offer a freewill offering to You;  
-I will praise Your name, O Jehovah, for it is good.
+I will [[Psalm-54.fn#Footnote 6.1 — praise|praise]] Your name, O Jehovah, for it is good.
 
 ## v7
 

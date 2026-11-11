@@ -15,4 +15,4 @@ chapter_num: 12
 
 **Verse:** [[2 Kings-12#v3|2 Kings 12:3]]
 
-See note 31² in [[1 Kings-12|1 Kings 12]].
+See [note 31²](<1 Kings-12.fn#Footnote 31.2 — high>) in [[1 Kings-12|1 Kings 12]].

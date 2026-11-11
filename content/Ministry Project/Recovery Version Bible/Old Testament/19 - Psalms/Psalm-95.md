@@ -11,7 +11,7 @@ Let us make a joyful noise to Him with psalms.
 ## v3
 
 For Jehovah is a great God  
-And a great King above all gods.
+And a [[Psalm-95.fn#Footnote 3.1 — great|great]] King above all gods.
 
 ## v4
 
@@ -37,8 +37,8 @@ Today, if you hear His voice,
 
 ## v8
 
-Do not harden your heart as at Meribah,  
-As in the day of Massah in the wilderness,
+Do not harden your heart as at [[Psalm-95.fn#Footnote 8.1 — Meribah|Meribah]],  
+As in the day of [[Psalm-95.fn#Footnote 8.2 — Massah|Massah]] in the wilderness,
 
 ## v9
 
@@ -49,9 +49,9 @@ They tried Me, even though they had seen My work.
 
 For forty years I loathed that generation,  
 And I said, They are a people who go astray in heart;  
-And they do not know My ways;
+And they do not know My [[Psalm-95.fn#Footnote 10.1 — ways|ways]];
 
 ## v11
 
 Therefore I swore in My anger:  
-They shall by no means enter into My rest!
+They shall by no means enter into My [[Psalm-95.fn#Footnote 11.1 — rest|rest]]!

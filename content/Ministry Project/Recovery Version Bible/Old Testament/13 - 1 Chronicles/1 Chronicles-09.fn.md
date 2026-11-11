@@ -15,7 +15,7 @@ chapter_num: 9
 
 **Verse:** [[1 Chronicles-09#v19|1 Chronicles 9:19]]
 
-Among the serving Levites were the descendants of Korah, the great rebel who rebelled against God and Moses ([[1 Chronicles-09#v19|vv. 19]], [[1 Chronicles-09#v31|31]]; see note 331, par. 2, in [[Numbers-16|Num. 16]]).
+Among the serving Levites were the descendants of Korah, the great rebel who rebelled against God and Moses ([[1 Chronicles-09#v19|vv. 19]], [[1 Chronicles-09#v31|31]]; see [note 33¹](<Numbers-16.fn#Footnote 33.1 — descended>), par. 2, in [[Numbers-16|Num. 16]]).
 
 ## Footnotes for verse 41
 

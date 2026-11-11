@@ -37,7 +37,7 @@ And you have not listened —
 
 ## v6
 
-Then I will make this house like Shiloh,  
+Then I will make this house like [[Jeremiah-26.fn#Footnote 6.1 — Shiloh|Shiloh]],  
 And this city I will make a curse  
 To all the nations of the earth.
 
@@ -133,7 +133,7 @@ And spoke to all the people of Judah, saying,
 Thus says Jehovah of hosts:  
 Zion will be plowed as a field,  
 And Jerusalem will become a heap of ruins,  
-And the mountain of the house  
+And the mountain of the [[Jeremiah-26.fn#Footnote 18.1 — house|house]]  
 As the high places of a forest.
 
 ## v19
@@ -183,6 +183,6 @@ Into the graves of the common people.
 
 Nevertheless the hand of Ahikam the son of Shaphan  
 Was with Jeremiah,  
-So that he was not given  
+So that he was [[Jeremiah-26.fn#Footnote 24.1 — not|not]] given  
 Into the hands of the people  
 To put him to death.

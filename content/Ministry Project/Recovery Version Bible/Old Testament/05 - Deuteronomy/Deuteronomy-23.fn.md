@@ -23,7 +23,7 @@ The congregation of Jehovah typifies the church. In the persons mentioned in thi
 
 **Verse:** [[Deuteronomy-23#v3|Deuteronomy 23:3]]
 
-See note 372, par. 1, in [[Genesis-19|Gen. 19]].
+See [note 37²](<Genesis-19.fn#Footnote 37.2 — Moabites>), par. 1, in [[Genesis-19|Gen. 19]].
 
 ## Footnotes for verse 7
 
@@ -31,7 +31,7 @@ See note 372, par. 1, in [[Genesis-19|Gen. 19]].
 
 **Verse:** [[Deuteronomy-23#v7|Deuteronomy 23:7]]
 
-The Edomites were the descendants of Esau, the brother of Jacob ([[Genesis-36#v1|Gen. 36:1]]). See note 141 in [[Numbers-20|Num. 20]].
+The Edomites were the descendants of Esau, the brother of Jacob ([[Genesis-36#v1|Gen. 36:1]]). See [note 14¹](<Numbers-20.fn#Footnote 14.1 — Edom>) in [[Numbers-20|Num. 20]].
 
 ## Footnotes for verse 15
 
@@ -55,7 +55,7 @@ I.e., a male prostitute.
 
 **Verse:** [[Deuteronomy-23#v21|Deuteronomy 23:21]]
 
-See note 301, par. 2, in [[Leviticus-27|Lev. 27]].
+See [note 30¹](<Leviticus-27.fn#Footnote 30.1 — Jehovah’s>), par. 2, in [[Leviticus-27|Lev. 27]].
 
 ## Footnotes for verse 24
 

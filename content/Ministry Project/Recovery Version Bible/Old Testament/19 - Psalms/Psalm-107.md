@@ -5,18 +5,18 @@ For His lovingkindness is forever.
 
 ## v2
 
-Let the redeemed of Jehovah say so,  
+Let the [[Psalm-107.fn#Footnote 2.1 — redeemed|redeemed]] of Jehovah say so,  
 Whom He redeemed from the hand of the adversary,
 
 ## v3
 
-And gathered out of the lands,  
+And [[Psalm-107.fn#Footnote 3.1 — gathered|gathered]] out of the lands,  
 From the east and from the west,  
 From the north and from the south.
 
 ## v4
 
-They wandered in the wilderness, on the desert way;  
+They [[Psalm-107.fn#Footnote 4.1 — wandered|wandered]] in the wilderness, on the desert way;  
 They found no city of habitation.
 
 ## v5
@@ -122,11 +122,11 @@ And His wondrous deeds in the deep.
 ## v25
 
 For He commanded and raised up a storm wind,  
-And it lifted up the waves of the sea.
+And it lifted up [[Psalm-107.fn#Footnote 25.1 — the|the]] waves of the sea.
 
 ## v26
 
-They mounted up to the heavens; they went down to the depths;  
+[[Psalm-107.fn#Footnote 26.1 — They|They]] mounted up to the heavens; they went down to the depths;  
 Their soul melted in the calamity.
 
 ## v27
@@ -142,7 +142,7 @@ And He brought them out of their distresses.
 ## v29
 
 He made the storm be still,  
-And the waves of the sea were calm;
+And [[Psalm-107.fn#Footnote 29.1 — the|the]] waves of the sea were calm;
 
 ## v30
 

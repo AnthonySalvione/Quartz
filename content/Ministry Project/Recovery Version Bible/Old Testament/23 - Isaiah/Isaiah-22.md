@@ -1,6 +1,6 @@
 ## v1
 
-The burden concerning the valley of vision:  
+The burden concerning the [[Isaiah-22.fn#Footnote 1.1 — valley|valley]] of vision:  
 What then troubles you  
 That all have gone up to the housetops?
 
@@ -123,38 +123,38 @@ And from your standing He will pull you down.
 ## v20
 
 And in that day  
-I will call to My servant Eliakim the son of Hilkiah,
+I will call to My servant [[Isaiah-22.fn#Footnote 20.1 — Eliakim|Eliakim]] the son of Hilkiah,
 
 ## v21
 
 And I will clothe him with your tunic,  
 And I will strengthen him with your girding sash,  
 And I will put your dominion into his hand;  
-And he will become a father to the inhabitants of Jerusalem  
+And he will become a [[Isaiah-22.fn#Footnote 21.1 — father|father]] to the inhabitants of Jerusalem  
 And to the house of Judah.
 
 ## v22
 
-And I will set the key of the house of David upon his shoulder —  
+And I will set the [[Isaiah-22.fn#Footnote 22.1 — key|key]] of the house of David upon his shoulder —  
 When he opens, no one will shut;  
 When he shuts, no one will open.
 
 ## v23
 
-And I will drive him as a peg into a sure place,  
-And he will become a throne of glory for his father’s house.
+And I will drive him as a [[Isaiah-22.fn#Footnote 23.1 — peg|peg]] into a sure place,  
+And he will become a [[Isaiah-22.fn#Footnote 23.2 — throne|throne]] of glory for his father’s house.
 
 ## v24
 
-And they will hang upon him all the glory of his father’s house,  
+And they will hang upon him all the [[Isaiah-22.fn#Footnote 24.1 — glory|glory]] of his father’s house,  
 The offspring and the issue,  
 All the smallest vessels,  
-From the bowls to all the jars.
+From the [[Isaiah-22.fn#Footnote 24.2 — bowls|bowls]] to all the jars.
 
 ## v25
 
 In that day, declares Jehovah of hosts,  
-The peg driven into the sure place will be removed,  
+The [[Isaiah-22.fn#Footnote 25.1 — peg|peg]] driven into the sure place will be removed,  
 Even cut away, and it will fall;  
 And the burden that was upon it will be cut down;  
 For Jehovah has spoken.

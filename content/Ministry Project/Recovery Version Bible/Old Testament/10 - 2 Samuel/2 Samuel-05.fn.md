@@ -39,7 +39,7 @@ This indicates that David had God’s presence. Moreover, Hiram’s helping Davi
 
 **Verse:** [[2 Samuel-05#v13|2 Samuel 5:13]]
 
-See note 2¹ in [[2 Samuel-03|2 Samuel 3]].
+See [note 2¹](<2 Samuel-03.fn#Footnote 2.1 — sons>) in [[2 Samuel-03|2 Samuel 3]].
 
 ## Footnotes for verse 20
 

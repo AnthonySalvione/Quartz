@@ -16,7 +16,7 @@ Then the word of Jehovah came to Isaiah, saying,
 
 ## v5
 
-Go and speak to Hezekiah, Thus says Jehovah, the God of David your father, I have heard your prayer, I have seen your tears; I will now add to your life fifteen years.
+Go and speak to Hezekiah, Thus says Jehovah, the God of David your father, I have heard your prayer, I have seen your tears; I will now add to your life [[Isaiah-38.fn#Footnote 5.1 — fifteen|fifteen]] years.
 
 ## v6
 
@@ -52,7 +52,7 @@ While I am with those who dwell where everything has ceased.
 Like a shepherd’s tent, /  
 My dwelling has been pulled up and removed from me. /  
 Like a weaver, I have rolled up my life. /  
-He will cut me off from the loom; /  
+He will cut me off [[Isaiah-38.fn#Footnote 12.1 — from|from]] the loom; /  
 From day until night You make an end of me.
 
 ## v13
@@ -72,7 +72,7 @@ O Lord, I am oppressed; be my surety.
 
 What shall I say? He has both spoken to me, /  
 And He Himself has done it; /  
-I will walk deliberately all my years, /  
+I will walk [[Isaiah-38.fn#Footnote 15.1 — deliberately|deliberately]] all my years, /  
 Because of the bitterness of my soul.
 
 ## v16
@@ -91,7 +91,7 @@ All my sins.
 
 ## v18
 
-For Sheol cannot thank You, /  
+For [[Isaiah-38.fn#Footnote 18.1 — Sheol|Sheol]] cannot thank You, /  
 And Death cannot praise You; /  
 They that go down to the pit /  
 Cannot hope in Your truth.

@@ -1,7 +1,10 @@
+> *To the choir director: on the stringed instruments, on the octave. A Psalm of David*
+
+---
 ## v1
 
 O Jehovah, do not rebuke me in Your anger,  
-Nor chasten me in Your burning wrath.
+Nor [[Psalm-06.fn#Footnote 1.1 — chasten|chasten]] me in Your burning wrath.
 
 ## v2
 
@@ -21,7 +24,7 @@ Save me for Your lovingkindness’ sake.
 ## v5
 
 For in death there is no remembrance of You;  
-In Sheol who can give thanks to You?
+In [[Psalm-06.fn#Footnote 5.1 — Sheol|Sheol]] who can give thanks to You?
 
 ## v6
 

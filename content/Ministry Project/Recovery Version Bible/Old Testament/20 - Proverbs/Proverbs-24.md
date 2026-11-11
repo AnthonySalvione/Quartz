@@ -26,7 +26,7 @@ And a man of knowledge increases power.
 ## v6
 
 For by sound counsel you can wage your war,  
-And in the multitude of counselors there is victory.
+And in the multitude of counselors there is [[Proverbs-24.fn#Footnote 6.1 — victory|victory]].
 
 ## v7
 

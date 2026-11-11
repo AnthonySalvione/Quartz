@@ -23,7 +23,7 @@ After giving His people a revelation of Himself and His economy through the law,
 
 **Verse:** [[Exodus-24#v3|Exodus 24:3]]
 
-See note 8¹ in [[Exodus-19|Exodus 19]].
+See [note 8¹](<Exodus-19.fn#Footnote 8.1 — All>) in [[Exodus-19|Exodus 19]].
 
 ## Footnotes for verse 4
 
@@ -53,7 +53,7 @@ The cross of Christ, signified by the altar, redeems us through Christ’s blood
 
 **Verse:** [[Exodus-24#v7|Exodus 24:7]]
 
-See note 8¹ in [[Exodus-19|Exodus 19]].
+See [note 8¹](<Exodus-19.fn#Footnote 8.1 — All>) in [[Exodus-19|Exodus 19]].
 
 ## Footnotes for verse 8
 
@@ -89,7 +89,7 @@ Or, a work of transparent sapphire.
 
 **Verse:** [[Exodus-24#v11|Exodus 24:11]]
 
-To behold God and to eat and drink is to worship God (cf. [[Exodus-24#v1|v. 1]]) with the worship that He desires (see note 241 in [[Exodus-20|Exodus 20]]).
+To behold God and to eat and drink is to worship God (cf. [[Exodus-24#v1|v. 1]]) with the worship that He desires (see [note 24¹](<Exodus-20.fn#Footnote 24.1 — altar>) in [[Exodus-20|Exodus 20]]).
 
 ## Footnotes for verse 13
 
@@ -97,7 +97,7 @@ To behold God and to eat and drink is to worship God (cf. [[Exodus-24#v1|v. 1]])
 
 **Verse:** [[Exodus-24#v13|Exodus 24:13]]
 
-There were at least three classes of people who stood at different distances in relation to Mount Horeb: Moses, perhaps accompanied by Joshua, was on the mountaintop being infused with God under His glory and receiving the vision of the tabernacle as God’s dwelling place on earth ([[Exodus-24#v13|vv. 13]], [[Exodus-24#v16|16a]]; [[Exodus-34#v29|34:29]]; [[Exodus-25#v1|25:1]]—[[Exodus-30#v38|30:38]]); Aaron, Nadab, Abihu, and the seventy elders were on the mountain worshipping at a distance and watching ([[Exodus-24#v1|vv. 1]], [[Exodus-24#v9|9]]); and the majority of the children of Israel were at the bottom of the mountain standing at a distance and trembling ([[Exodus-20#v18|20:18]]). These three locations, corresponding to the three parts of the tabernacle—the outer court, the Holy Place, and the Holy of Holies—illustrate the fact that among God’s people there are different degrees of fellowship with Him. See note 43 in [[Hebrews-09|Heb. 9]].
+There were at least three classes of people who stood at different distances in relation to Mount Horeb: Moses, perhaps accompanied by Joshua, was on the mountaintop being infused with God under His glory and receiving the vision of the tabernacle as God’s dwelling place on earth ([[Exodus-24#v13|vv. 13]], [[Exodus-24#v16|16a]]; [[Exodus-34#v29|34:29]]; [[Exodus-25#v1|25:1]]—[[Exodus-30#v38|30:38]]); Aaron, Nadab, Abihu, and the seventy elders were on the mountain worshipping at a distance and watching ([[Exodus-24#v1|vv. 1]], [[Exodus-24#v9|9]]); and the majority of the children of Israel were at the bottom of the mountain standing at a distance and trembling ([[Exodus-20#v18|20:18]]). These three locations, corresponding to the three parts of the tabernacle—the outer court, the Holy Place, and the Holy of Holies—illustrate the fact that among God’s people there are different degrees of fellowship with Him. See [note 4³](<Hebrews-09.fn#Footnote 4.3 — pot>) in [[Hebrews-09|Heb. 9]].
 
 ## Footnotes for verse 18
 

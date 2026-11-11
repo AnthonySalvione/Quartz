@@ -15,4 +15,4 @@ chapter_num: 36
 
 **Verse:** [[Job-36#v3|Job 36:3]]
 
-See note 10¹ in [[Job-32|Job 32]].
+See [note 10¹](<Job-32.fn#Footnote 10.1 — know>) in [[Job-32|Job 32]].

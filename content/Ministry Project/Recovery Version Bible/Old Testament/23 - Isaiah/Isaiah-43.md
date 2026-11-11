@@ -17,7 +17,7 @@ And the flame will not consume you.
 Because I am Jehovah your God, /  
 The Holy One of Israel, your Savior, /  
 I have given Egypt as your ransom, /  
-Cush and Seba instead of you.
+[[Isaiah-43.fn#Footnote 3.1 — Cush|Cush]] and Seba instead of you.
 
 ## v4
 
@@ -42,7 +42,7 @@ And My daughters from the end of the earth,
 ## v7
 
 Everyone who is called by My name, /  
-Whom I have created, formed, and even made for My glory.
+Whom I have created, formed, and even made for My [[Isaiah-43.fn#Footnote 7.1 — glory|glory]].
 
 ## v8
 
@@ -60,11 +60,11 @@ And let them hear and say, It is true.
 
 ## v10
 
-You are My witnesses, declares Jehovah, /  
-And My servant whom I have chosen, /  
+You are My [[Isaiah-43.fn#Footnote 10.1 — witnesses|witnesses]], declares Jehovah, /  
+And My [[Isaiah-43.fn#Footnote 10.1 — witnesses|servant]] whom I have chosen, /  
 In order that you may know and believe Me /  
 And understand that I am He. /  
-Before Me there was no God formed, /  
+Before Me there was no [[Isaiah-43.fn#Footnote 10.2 — God|God]] formed, /  
 Neither will there be any after Me.
 
 ## v11
@@ -81,8 +81,8 @@ And I am God.
 
 ## v13
 
-Indeed, before the day was, I am He, /  
-And there is no one who can deliver from My hand. /  
+Indeed, [[Isaiah-43.fn#Footnote 13.1 — before|before]] the day was, I am He, /  
+And there is no one who can deliver [[Isaiah-43.fn#Footnote 13.2 — from|from]] My hand. /  
 I will work and who will reverse it?
 
 ## v14

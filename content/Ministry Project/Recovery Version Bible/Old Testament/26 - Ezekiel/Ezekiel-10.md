@@ -1,6 +1,6 @@
 ## v1
 
-Then I looked, and there, in the expanse that was over the heads of the cherubim, appeared the likeness of a throne over them, like the appearance of a sapphire stone.
+[[Ezekiel-10.fn#Footnote 1.1 — Then|Then]] I looked, and there, in the expanse that was over the heads of the cherubim, appeared the likeness of a throne over them, like the appearance of a sapphire stone.
 
 ## v2
 
@@ -84,4 +84,4 @@ Each one had four faces, and each one had four wings; and the likeness of a man�
 
 ## v22
 
-And as for the likeness of their faces, they were the faces that I had seen by the river Chebar, both their appearance and themselves. Each went straight forward.
+And as for the likeness of their faces, they were the faces that I had seen by the river Chebar, both their appearance and themselves. Each went [[Ezekiel-10.fn#Footnote 22.1 — straight|straight]] forward.

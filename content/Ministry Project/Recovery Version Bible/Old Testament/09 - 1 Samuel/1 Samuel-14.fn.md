@@ -31,7 +31,7 @@ Lit., panic of God.
 
 **Verse:** [[1 Samuel-14#v33|1 Samuel 14:33]]
 
-See note 17¹ in [[Leviticus-03|Lev. 3]].
+See [note 17¹](<Leviticus-03.fn#Footnote 17.1 — fat>) in [[Leviticus-03|Lev. 3]].
 
 ## Footnotes for verse 44
 

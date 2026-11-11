@@ -15,4 +15,4 @@ chapter_num: 23
 
 **Verse:** [[Joshua-23#v11|Joshua 23:11]]
 
-See note 62 in [[Exodus-20|Exo. 20]].
+See [note 6²](<Exodus-20.fn#Footnote 6.2 — love>) in [[Exodus-20|Exo. 20]].

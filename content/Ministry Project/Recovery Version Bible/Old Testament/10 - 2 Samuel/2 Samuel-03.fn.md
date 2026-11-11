@@ -23,7 +23,7 @@ In all the details concerning the house of David and the house of Saul, God was 
 
 **Verse:** [[2 Samuel-03#v2|2 Samuel 3:2]]
 
-David’s begetting six sons of six wives in Hebron ([[2 Samuel-03#v2|vv. 2-5]]) and his later taking more concubines and wives and begetting more sons in Jerusalem ([[2 Samuel-05#v13|5:13]]) further manifested his weakness in the indulgence of the lust of the flesh. See note 391 in [[1 Samuel-25|1 Sam. 25]].
+David’s begetting six sons of six wives in Hebron ([[2 Samuel-03#v2|vv. 2-5]]) and his later taking more concubines and wives and begetting more sons in Jerusalem ([[2 Samuel-05#v13|5:13]]) further manifested his weakness in the indulgence of the lust of the flesh. See [note 39¹](<1 Samuel-25.fn#Footnote 39.1 — wife>) in [[1 Samuel-25|1 Sam. 25]].
 
 ## Footnotes for verse 7
 

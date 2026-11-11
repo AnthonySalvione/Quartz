@@ -1,3 +1,6 @@
+> *To the choir director, to Jeduthun. A Psalm of David*
+
+---
 ## v1
 
 I said, I will keep my ways, / So that I do not sin with my tongue; / I will keep a muzzle on my mouth / When the wicked are before me.
@@ -16,7 +19,7 @@ O Jehovah, cause me to know my end, / And the measure of my days, what it is. / 
 
 ## v5
 
-Behold, You have made my days as mere handbreadths, / And my lifetime is as nothing before You; / Surely every man at his best is altogether vanity. Selah
+Behold, You have made my days as mere handbreadths, / And my lifetime is as nothing before You; / Surely every man [[Psalm-39.fn#Footnote 5.1 — at|at]] his best is altogether [[Psalm-39.fn#Footnote 5.2 — vanity|vanity]]. Selah
 
 ## v6
 

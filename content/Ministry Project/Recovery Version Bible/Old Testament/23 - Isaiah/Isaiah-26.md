@@ -42,7 +42,7 @@ You make the path of the righteous level.
 
 ## v8
 
-Indeed in the path of Your judgments,  
+Indeed in the [[Isaiah-26.fn#Footnote 8.1 — path|path]] of Your judgments,  
 O Jehovah, we have waited for You.  
 Your name, that is, Your memorial,  
 Is the desire of our soul.
@@ -76,7 +76,7 @@ For You have also performed all our works for us.
 ## v13
 
 O Jehovah our God,  
-Other lords besides You have been master to us,  
+Other [[Isaiah-26.fn#Footnote 13.1 — lords|lords]] besides You have been master to us,  
 But through You alone do we mention Your name.
 
 ## v14
@@ -88,13 +88,13 @@ And You have caused all memory of them to perish.
 
 ## v15
 
-You have increased the nation, O Jehovah;  
+You have [[Isaiah-26.fn#Footnote 15.1 — increased|increased]] the nation, O Jehovah;  
 You have increased the nation — You are glorified;  
-You have far extended all the edges of the land.
+You have far [[Isaiah-26.fn#Footnote 15.1 — increased|extended]] all the edges of the land.
 
 ## v16
 
-O Jehovah, in distress they sought You;  
+O Jehovah, in distress they [[Isaiah-26.fn#Footnote 16.1 — sought|sought]] You;  
 They whispered out a prayer,  
 For Your chastening was upon them.
 

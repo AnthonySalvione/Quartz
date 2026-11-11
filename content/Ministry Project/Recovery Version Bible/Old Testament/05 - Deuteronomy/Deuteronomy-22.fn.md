@@ -15,7 +15,7 @@ chapter_num: 22
 
 **Verse:** [[Deuteronomy-22#v9|Deuteronomy 22:9]]
 
-The prohibition against sowing two kinds of seed in one’s vineyard may typify the prohibition against teaching differently in the church ([[1 Timothy-01#v3|1 Tim. 1:3-4]]; [[1 Timothy-06#v3|6:3]]; cf. [[Luke-08#v11|Luke 8:11]]). The church is God’s vineyard (cf. [[1 Corinthians-03#v9|1 Cor. 3:9b]]), and in this vineyard only one kind of seed, one kind of teaching, should be sown ([[Acts-02#v42|Acts 2:42]] and note). If we teach differently, sowing more than one kind of seed, the “produce” in the church will be forfeited.
+The prohibition against sowing two kinds of seed in one’s vineyard may typify the prohibition against teaching differently in the church ([[1 Timothy-01#v3|1 Tim. 1:3-4]]; [[1 Timothy-06#v3|6:3]]; cf. [[Luke-08#v11|Luke 8:11]]). The church is God’s vineyard (cf. [[1 Corinthians-03#v9|1 Cor. 3:9b]]), and in this vineyard only one kind of seed, one kind of teaching, should be sown ([[Acts-02#v42|Acts 2:42]] and [note](<Acts-02.fn#Footnote 42.1 — teaching>)). If we teach differently, sowing more than one kind of seed, the “produce” in the church will be forfeited.
 
 ## Footnotes for verse 10
 
@@ -23,7 +23,7 @@ The prohibition against sowing two kinds of seed in one’s vineyard may typify 
 
 **Verse:** [[Deuteronomy-22#v10|Deuteronomy 22:10]]
 
-The prohibition against plowing with an ox and a donkey together typifies the prohibition against becoming dissimilarly yoked with unbelievers ([[2 Corinthians-06#v14|2 Cor. 6:14a]] and note 2). In this verse an ox, a clean animal, typifies a believer, and a donkey, being unclean, typifies an unbeliever ([[Leviticus-11#v3|Lev. 11:3-4a]]).
+The prohibition against plowing with an ox and a donkey together typifies the prohibition against becoming dissimilarly yoked with unbelievers ([[2 Corinthians-06#v14|2 Cor. 6:14a]] and [note 2](<2 Corinthians-06.fn#Footnote 14.2 — dissimilarly>)). In this verse an ox, a clean animal, typifies a believer, and a donkey, being unclean, typifies an unbeliever ([[Leviticus-11#v3|Lev. 11:3-4a]]).
 
 ## Footnotes for verse 12
 

@@ -15,13 +15,13 @@ chapter_num: 3
 
 **Verse:** [[1 Chronicles-03#v5|1 Chronicles 3:5]]
 
-See note 6³ in [[Matthew-01|Matt. 1]].
+See [note 6³](<Matthew-01.fn#Footnote 6.3 — Solomon>) in [[Matthew-01|Matt. 1]].
 
 ### Footnote 5.2 — Bath-shua
 
 **Verse:** [[1 Chronicles-03#v5|1 Chronicles 3:5]]
 
-This is Bathsheba. See note 64 in [[Matthew-01|Matt. 1]].
+This is Bathsheba. See [note 6⁴](<Matthew-01.fn#Footnote 6.4 — wife>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 10
 
@@ -29,7 +29,7 @@ This is Bathsheba. See note 64 in [[Matthew-01|Matt. 1]].
 
 **Verse:** [[1 Chronicles-03#v10|1 Chronicles 3:10]]
 
-See note 71 in [[Matthew-01|Matt. 1]].
+See [note 7¹](<Matthew-01.fn#Footnote 7.1 — Rehoboam>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 12
 
@@ -37,7 +37,7 @@ See note 71 in [[Matthew-01|Matt. 1]].
 
 **Verse:** [[1 Chronicles-03#v12|1 Chronicles 3:12]]
 
-See note 8¹ in [[Matthew-01|Matt. 1]].
+See [note 8¹](<Matthew-01.fn#Footnote 8.1 — Joram>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 15
 
@@ -45,7 +45,7 @@ See note 8¹ in [[Matthew-01|Matt. 1]].
 
 **Verse:** [[1 Chronicles-03#v15|1 Chronicles 3:15]]
 
-See note 11¹ in [[Matthew-01|Matt. 1]].
+See [note 11¹](<Matthew-01.fn#Footnote 11.1 — Josiah>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 16
 
@@ -59,7 +59,7 @@ Lit., sons.
 
 **Verse:** [[1 Chronicles-03#v16|1 Chronicles 3:16]]
 
-See notes 11² and 11³ in [[Matthew-01|Matt. 1]].
+See notes [11²](<Matthew-01.fn#Footnote 11.2 — Jeconiah>) and [11³](<Matthew-01.fn#Footnote 11.3 — brothers>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 19
 
@@ -67,7 +67,7 @@ See notes 11² and 11³ in [[Matthew-01|Matt. 1]].
 
 **Verse:** [[1 Chronicles-03#v19|1 Chronicles 3:19]]
 
-See note 12² in [[Matthew-01|Matt. 1]].
+See [note 12²](<Matthew-01.fn#Footnote 12.2 — Zerubbabel>) in [[Matthew-01|Matt. 1]].
 
 ## Footnotes for verse 21
 

@@ -52,15 +52,15 @@ And this second thing you do: You cover the altar of Jehovah with tears, with we
 
 ## v14
 
-Yet you say, For what reason? Because Jehovah has been the witness between you and the wife of your youth, to whom you have been treacherous; yet she is your companion and your wife of covenant.
+Yet you say, For what reason? Because Jehovah has been the witness between you and the [[Malachi-02.fn#Footnote 14.1 — wife|wife]] of your youth, to whom you have been treacherous; yet she is your companion and your wife of covenant.
 
 ## v15
 
-But did He not make them one? And the remnant of the Spirit was His. And why the one? He sought the seed of God. Take heed then to your spirit, and let no one be treacherous to the wife of his youth.
+But did He not make them one? And the remnant of the Spirit was His. And why the one? He sought the [[Malachi-02.fn#Footnote 15.1 — seed|seed]] of God. Take heed then to your [[Malachi-02.fn#Footnote 15.2 — spirit|spirit]], and let no one be treacherous to the wife of his youth.
 
 ## v16
 
-For I hate divorce, says Jehovah the God of Israel; and he who does it behaves in violence, says Jehovah of hosts. Take heed then to your spirit, and do not be treacherous.
+For I hate divorce, says Jehovah the God of Israel; and he who does it [[Malachi-02.fn#Footnote 16.1 — behaves|behaves]] in violence, says Jehovah of hosts. Take heed then to your spirit, and do not be treacherous.
 
 ## v17
 

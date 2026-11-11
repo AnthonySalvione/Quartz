@@ -1,6 +1,6 @@
 ## v1
 
-Gather yourselves together, yes, gather,  
+[[Zephaniah-02.fn#Footnote 1.1 — Gather|Gather]] yourselves together, yes, gather,  
 O nation that has no shame,
 
 ## v2
@@ -87,7 +87,7 @@ Each from his own place.
 
 ## v12
 
-You Cushites also  
+You [[Zephaniah-02.fn#Footnote 12.1 — Cushites|Cushites]] also  
 Will be slain by My sword.
 
 ## v13

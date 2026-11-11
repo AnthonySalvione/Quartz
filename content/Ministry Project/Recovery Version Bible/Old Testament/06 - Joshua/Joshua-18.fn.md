@@ -15,7 +15,7 @@ chapter_num: 18
 
 **Verse:** [[Joshua-18#v6|Joshua 18:6]]
 
-See note 21 in [[Joshua-14|Joshua 14]].
+See [note 2¹](<Joshua-14.fn#Footnote 2.1 — lot>) in [[Joshua-14|Joshua 14]].
 
 ## Footnotes for verse 16
 
@@ -23,7 +23,7 @@ See note 21 in [[Joshua-14|Joshua 14]].
 
 **Verse:** [[Joshua-18#v16|Joshua 18:16]]
 
-See note 81 in [[Joshua-15|Joshua 15]].
+See [note 8¹](<Joshua-15.fn#Footnote 8.1 — Valley>) in [[Joshua-15|Joshua 15]].
 
 ## Footnotes for verse 28
 

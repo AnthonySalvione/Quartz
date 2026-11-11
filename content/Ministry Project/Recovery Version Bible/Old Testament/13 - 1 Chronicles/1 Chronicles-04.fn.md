@@ -23,7 +23,7 @@ Others read, and Zohar.
 
 **Verse:** [[1 Chronicles-04#v10|1 Chronicles 4:10]]
 
-The enlarging of the border of the good land in the prayer of Jabez signifies the enlarging of the border of the gaining of Christ and the enjoyment of Christ (cf. [[Philippians-03#v8|Phil. 3:8-14]]), who is the reality of the good land (see note 71 in [[Deuteronomy-08|Deut. 8]]). We all should have such a prayer, a prayer that God would enlarge the border of our enjoyment of Christ (cf. [[Ephesians-03#v14|Eph. 3:14-19]]). See note 401.
+The enlarging of the border of the good land in the prayer of Jabez signifies the enlarging of the border of the gaining of Christ and the enjoyment of Christ (cf. [[Philippians-03#v8|Phil. 3:8-14]]), who is the reality of the good land (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]). We all should have such a prayer, a prayer that God would enlarge the border of our enjoyment of Christ (cf. [[Ephesians-03#v14|Eph. 3:14-19]]). See [note 40¹](<1 Chronicles-04.fn#Footnote 40.1 — rich>).
 
 ## Footnotes for verse 13
 

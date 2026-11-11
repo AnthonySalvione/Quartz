@@ -9,7 +9,7 @@ And a net spread over Tabor.
 
 ## v2
 
-And the revolters have gone deep into slaughtering,  
+And the revolters have gone deep [[Hosea-05.fn#Footnote 2.1 — into|into]] slaughtering,  
 Though I am a chastisement to them all.
 
 ## v3
@@ -100,4 +100,4 @@ I will carry them off, and there will be no one to deliver them.
 I will go away, I will return to My place,  
 Until they acknowledge their offense  
 And seek My face;  
-In their affliction they will seek Me earnestly.
+In their affliction they will seek Me [[Hosea-05.fn#Footnote 15.1 — earnestly|earnestly]].

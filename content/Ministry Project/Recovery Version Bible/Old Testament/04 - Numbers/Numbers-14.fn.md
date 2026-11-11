@@ -23,7 +23,7 @@ This shows their meekness.
 
 **Verse:** [[Numbers-14#v7|Numbers 14:7]]
 
-See note 7¹ in [[Deuteronomy-08|Deut. 8]].
+See [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]].
 
 ## Footnotes for verse 9
 
@@ -55,7 +55,7 @@ Moses prayed for the people not according to his concept but according to God’
 
 **Verse:** [[Numbers-14#v20|Numbers 14:20]]
 
-God pardoned the people according to Moses’ prayer; nevertheless, their unbelief had certain negative consequences ([[Numbers-14#v21|vv. 21-38]]). Cf. [[Hebrews-03#v7|Heb. 3:7-19]]. God forgave the sinning Israelites yet still punished them. This shows that God’s forgiveness is of different kinds. One kind is forgiveness through punishment. Cf. notes 322 in [[Matthew-12|Matt. 12]] and 341 in [[Matthew-18|Matt. 18]].
+God pardoned the people according to Moses’ prayer; nevertheless, their unbelief had certain negative consequences ([[Numbers-14#v21|vv. 21-38]]). Cf. [[Hebrews-03#v7|Heb. 3:7-19]]. God forgave the sinning Israelites yet still punished them. This shows that God’s forgiveness is of different kinds. One kind is forgiveness through punishment. Cf. notes [32²](<Matthew-12.fn#Footnote 32.2 — age>) in [[Matthew-12|Matt. 12]] and [34¹](<Matthew-18.fn#Footnote 34.1 — delivered>) in [[Matthew-18|Matt. 18]].
 
 ## Footnotes for verse 30
 

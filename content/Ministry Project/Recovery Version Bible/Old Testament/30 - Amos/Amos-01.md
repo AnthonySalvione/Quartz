@@ -1,6 +1,6 @@
 ## v1
 
-The words of Amos, who was among the sheep tenders from Tekoa, which he saw concerning Israel in the days of Uzziah the king of Judah and in the days of Jeroboam the son of Joash, the king of Israel, two years before the earthquake.
+The words of [[Amos-01.fn#Footnote 1.1 — Amos|Amos]], who was among the sheep tenders from Tekoa, which he saw concerning Israel in the days of Uzziah the king of Judah and in the days of Jeroboam the son of Joash, the king of Israel, two years before the earthquake.
 
 ## v2
 
@@ -13,8 +13,8 @@ And the top of Carmel will dry up.
 ## v3
 
 Thus says Jehovah,  
-Because of three transgressions of Damascus, /  
-Indeed, because of four, I will not turn away the punishment; /  
+Because of [[Amos-01.fn#Footnote 3.1 — three|three]] transgressions of Damascus, /  
+Indeed, because of four, I will not turn away [[Amos-01.fn#Footnote 3.2 — the|the]] punishment; /  
 Because they have threshed Gilead /  
 With sharp threshing tools of iron.
 
@@ -26,9 +26,9 @@ And it will devour the palaces of Ben-hadad.
 ## v5
 
 And I will break the bar of Damascus, /  
-And I will cut off the inhabitant of the valley of Aven /  
+And I will cut off the inhabitant of the valley of [[Amos-01.fn#Footnote 5.1 — Aven|Aven]] /  
 And him who holds the scepter from Beth-eden; /  
-And the people of Aram will go into captivity unto Kir, /  
+And the people of [[Amos-01.fn#Footnote 5.2 — Aram|Aram]] will go into captivity unto Kir, /  
 Says Jehovah.
 
 ## v6
@@ -83,7 +83,7 @@ And it will devour the palaces of Bozrah.
 ## v13
 
 Thus says Jehovah,  
-Because of three transgressions of the children of Ammon, /  
+Because of three transgressions of the children of [[Amos-01.fn#Footnote 13.1 — Ammon|Ammon]], /  
 Indeed, because of four, I will not turn away the punishment; /  
 Because they ripped up the pregnant women of Gilead /  
 In order to enlarge their border.

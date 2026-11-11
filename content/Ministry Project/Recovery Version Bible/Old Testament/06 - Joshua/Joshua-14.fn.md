@@ -23,7 +23,7 @@ The way the good land was divided among the different tribes was by casting lots
 
 **Verse:** [[Joshua-14#v12|Joshua 14:12]]
 
-See [[Numbers-13#v33|Num. 13:33]] and note.
+See [[Numbers-13#v33|Num. 13:33]] and [note](<Numbers-13.fn#Footnote 33.1 — Nephilim>).
 
 ## Footnotes for verse 13
 

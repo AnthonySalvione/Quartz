@@ -1,3 +1,6 @@
+> *Of David*
+
+---
 ## v1
 
 Jehovah is my light and my salvation; / Whom shall I fear? / Jehovah is the strength of my life; / Whom shall I dread?
@@ -12,7 +15,7 @@ If an army camps against me, / My heart does not fear; / If a battle arises agai
 
 ## v4
 
-One thing I have asked from Jehovah; / That do I seek: / To dwell in the house of Jehovah / All the days of my life, / To behold the beauty of Jehovah, / And to inquire in His temple.
+One thing I have asked from Jehovah; / That do I seek: / To dwell in the [[Psalm-27.fn#Footnote 4.1 — house|house]] of Jehovah / All the days of my life, / To behold the [[Psalm-27.fn#Footnote 4.2 — beauty|beauty]] of Jehovah, / And to inquire in His temple.
 
 ## v5
 
@@ -48,7 +51,7 @@ Do not give me over / To the will of my adversaries; / For false witnesses have 
 
 ## v13
 
-I have believed / That I would see the goodness of Jehovah / In the land of the living.
+[[Psalm-27.fn#Footnote 13.1 — I|I]] have believed / That I would see the goodness of Jehovah / In the land of the living.
 
 ## v14
 

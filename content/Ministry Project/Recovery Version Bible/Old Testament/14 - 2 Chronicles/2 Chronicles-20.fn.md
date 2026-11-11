@@ -31,4 +31,4 @@ Meaning blessing.
 
 **Verse:** [[2 Chronicles-20#v37|2 Chronicles 20:37]]
 
-See note 2¹ in [[2 Chronicles-19|2 Chronicles 19]].
+See [note 2¹](<2 Chronicles-19.fn#Footnote 2.1 — Should>) in [[2 Chronicles-19|2 Chronicles 19]].

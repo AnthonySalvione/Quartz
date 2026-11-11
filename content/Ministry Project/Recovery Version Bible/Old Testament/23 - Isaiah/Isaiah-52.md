@@ -45,7 +45,7 @@ How beautiful on the mountains /
 Are the feet of him who brings good news, /  
 Of him who announces peace, who brings news of good things, /  
 Who announces salvation; /  
-Of him who says to Zion, Your God reigns!
+Of him who says to Zion, [[Isaiah-52.fn#Footnote 7.1 — Your|Your]] God reigns!
 
 ## v8
 
@@ -63,17 +63,17 @@ He has redeemed Jerusalem.
 
 ## v10
 
-Jehovah has bared His holy arm /  
+Jehovah has bared His holy [[Isaiah-52.fn#Footnote 10.1 — arm|arm]] /  
 In the sight of all the nations, /  
 And all the ends of the earth will see /  
 The salvation of our God.
 
 ## v11
 
-Depart! Depart! Go out from there! /  
+Depart! Depart! Go out from [[Isaiah-52.fn#Footnote 11.1 — there|there]]! /  
 Do not touch any unclean thing! /  
 Go out from the midst of her! Cleanse yourselves, /  
-You who bear the vessels of Jehovah!
+You who bear the [[Isaiah-52.fn#Footnote 11.2 — vessels|vessels]] of Jehovah!
 
 ## v12
 
@@ -84,18 +84,18 @@ And the God of Israel will be your rear guard.
 
 ## v13
 
-Indeed, My Servant will act wisely and will prosper; /  
-He will be exalted and lifted up and very high.
+Indeed, My [[Isaiah-52.fn#Footnote 13.1 — Servant|Servant]] will act [[Isaiah-52.fn#Footnote 13.2 — wisely|wisely]] and will prosper; /  
+He will be [[Isaiah-52.fn#Footnote 13.3 — exalted|exalted]] and lifted up and very high.
 
 ## v14
 
-Even as many were astonished at Him — /  
-His visage was marred more than that of any man, /  
+Even as many were astonished at [[Isaiah-52.fn#Footnote 14.1 — Him|Him]] — /  
+His [[Isaiah-52.fn#Footnote 14.2 — visage|visage]] was marred more than that of any man, /  
 And His form more than that of the sons of men —
 
 ## v15
 
-So will He surprise many nations; /  
-Kings will shut their mouths because of Him; /  
-For what had not been recounted to them they will see, /  
+So will He [[Isaiah-52.fn#Footnote 15.1 — surprise|surprise]] many nations; /  
+Kings will [[Isaiah-52.fn#Footnote 15.1 — surprise|shut]] their mouths because of Him; /  
+For what had not been [[Isaiah-52.fn#Footnote 15.2 — recounted|recounted]] to them they will see, /  
 And what they had not heard of they will contemplate.

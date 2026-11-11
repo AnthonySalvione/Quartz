@@ -15,7 +15,7 @@ chapter_num: 15
 
 **Verse:** [[Joshua-15#v8|Joshua 15:8]]
 
-Or, the valley of the son of Hinnom; Heb. Ge-ben-hinnom. It is also called the Valley of Hinnom (in this verse; [[Joshua-18#v16|18:16]]; [[Nehemiah-11#v30|Neh. 11:30]]), which in Hebrew is Ge-hinnom. Gehenna in the New Testament corresponds to it ([[Matthew-05#v22|Matt. 5:22]] and note 8).
+Or, the valley of the son of Hinnom; Heb. Ge-ben-hinnom. It is also called the Valley of Hinnom (in this verse; [[Joshua-18#v16|18:16]]; [[Nehemiah-11#v30|Neh. 11:30]]), which in Hebrew is Ge-hinnom. Gehenna in the New Testament corresponds to it ([[Matthew-05#v22|Matt. 5:22]] and [note 8](<Matthew-05.fn#Footnote 22.8 — Gehenna>)).
 
 ## Footnotes for verse 13
 
@@ -23,7 +23,7 @@ Or, the valley of the son of Hinnom; Heb. Ge-ben-hinnom. It is also called the V
 
 **Verse:** [[Joshua-15#v13|Joshua 15:13]]
 
-See [[Numbers-13#v33|Num. 13:33]] and note.
+See [[Numbers-13#v33|Num. 13:33]] and [note](<Numbers-13.fn#Footnote 33.1 — Nephilim>).
 
 ## Footnotes for verse 45
 

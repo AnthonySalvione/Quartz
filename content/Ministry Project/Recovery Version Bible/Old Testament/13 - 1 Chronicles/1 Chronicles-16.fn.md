@@ -39,4 +39,4 @@ Lit., brothers.
 
 **Verse:** [[1 Chronicles-16#v39|1 Chronicles 16:39]]
 
-The tabernacle with the bronze altar was at Gibeon while the Ark was in a tent at Jerusalem ([[1 Chronicles-15#v28|15:28]]—[[1 Chronicles-16#v1|16:1]]). This was an abnormal situation. See note 111 in [[1 Samuel-04|1 Sam. 4]].
+The tabernacle with the bronze altar was at Gibeon while the Ark was in a tent at Jerusalem ([[1 Chronicles-15#v28|15:28]]—[[1 Chronicles-16#v1|16:1]]). This was an abnormal situation. See [note 11¹](<1 Samuel-04.fn#Footnote 11.1 — taken>) in [[1 Samuel-04|1 Sam. 4]].

@@ -1,26 +1,26 @@
 ## v1
 
-In the third year of the reign of Jehoiakim the king of Judah Nebuchadnezzar the king of Babylon came to Jerusalem and besieged it.
+[[Daniel-01.fn#Footnote 1.1 — In|In]] the third year of the reign of Jehoiakim the king of Judah Nebuchadnezzar the king of Babylon came to Jerusalem and besieged it.
 
 ## v2
 
-And the Lord gave Jehoiakim the king of Judah into his hand with some of the vessels of the house of God; and he brought them into the land of Shinar to the house of his god, and he brought the vessels into the treasury of his god.
+And the Lord gave Jehoiakim the king of Judah into his hand with some of the vessels of the house of God; and he brought them into the land of [[Daniel-01.fn#Footnote 2.1 — Shinar|Shinar]] to the house of his god, and he brought the [[Daniel-01.fn#Footnote 2.2 — vessels|vessels]] into the treasury of his god.
 
 ## v3
 
-Then the king told Ashpenaz, the chief of his eunuchs, to bring some of the sons of Israel, including some from the royal seed and from the nobility,
+[[Daniel-01.fn#Footnote 3.1 — Then|Then]] the king told Ashpenaz, the chief of his eunuchs, to bring some of the sons of Israel, including some from the royal seed and from the nobility,
 
 ## v4
 
-Children in whom was no defect, who were good in appearance, who showed insight in all wisdom, understanding in knowledge, and apprehension in thought, and in whom was the ability to stand in the king’s palace. And he told him to teach them the learning and language of the Chaldeans.
+Children in whom was no defect, who were good in appearance, who showed insight in all wisdom, understanding in knowledge, and apprehension in thought, and in whom was the ability to stand in the king’s palace. And he told him to teach them the learning and [[Daniel-01.fn#Footnote 4.1 — language|language]] of the Chaldeans.
 
 ## v5
 
-And the king appointed to them a daily portion from the king’s choice provision and from the wine that he drank, and appointed that they should be brought up for three years so that at the end of the time they might stand before the king.
+And the king appointed to them a daily portion from the king’s [[Daniel-01.fn#Footnote 5.1 — choice|choice]] provision and from the wine that he drank, and appointed that they should be brought up for three years so that at the end [[Daniel-01.fn#Footnote 5.2 — of|of]] the time they might stand before the king.
 
 ## v6
 
-Now among these from the sons of Judah were Daniel, Hananiah, Mishael, and Azariah.
+Now among these from the sons of Judah were [[Daniel-01.fn#Footnote 6.1 — Daniel|Daniel]], Hananiah, Mishael, and Azariah.
 
 ## v7
 
@@ -28,7 +28,7 @@ And the leader of the eunuchs gave them names: he gave Daniel the name Belteshaz
 
 ## v8
 
-But Daniel set his heart not to defile himself with the king’s choice provision and with the wine that the king drank, so he requested of the leader of the eunuchs that he might not defile himself.
+But Daniel [[Daniel-01.fn#Footnote 8.1 — set|set]] his heart not to defile himself with the king’s choice provision and with the wine that [[Daniel-01.fn#Footnote 8.2 — the|the]] king drank, so he requested of the leader of the eunuchs that he might not defile himself.
 
 ## v9
 
@@ -80,4 +80,4 @@ And in every matter of wisdom and understanding that the king inquired of them, 
 
 ## v21
 
-And Daniel continued until the first year of Cyrus the king.
+And Daniel continued until the [[Daniel-01.fn#Footnote 21.1 — first|first]] year of Cyrus the king.

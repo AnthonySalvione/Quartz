@@ -2,14 +2,14 @@
 
 In that day Jehovah will punish,  
 With His harsh, great, and mighty sword,  
-Leviathan the fleeing serpent,  
+[[Isaiah-27.fn#Footnote 1.1 — Leviathan|Leviathan]] the fleeing serpent,  
 And leviathan the crooked serpent;  
 And He will slay the dragon that is in the sea.
 
 ## v2
 
 In that day:  
-A vineyard of wine, sing of it!
+A vineyard of [[Isaiah-27.fn#Footnote 2.1 — wine|wine]], sing of it!
 
 ## v3
 
@@ -73,8 +73,8 @@ And He who formed them will not show favor to them.
 
 ## v12
 
-And in that day Jehovah will beat out the grain  
-From the flowing stream of the River  
+And in that day Jehovah will beat out the [[Isaiah-27.fn#Footnote 12.1 — grain|grain]]  
+From the flowing stream of the [[Isaiah-27.fn#Footnote 12.2 — River|River]]  
 Unto the brook of Egypt;  
 And you will be gleaned  
 One by one, O you children of Israel.

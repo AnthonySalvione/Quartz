@@ -1,7 +1,7 @@
 ## v1
 
 The word of Jehovah that came to Jeremiah  
-Concerning the drought:
+Concerning the [[Jeremiah-14.fn#Footnote 1.1 — drought|drought]]:
 
 ## v2
 
@@ -125,7 +125,7 @@ And I will pour out their own wickedness on them.
 ## v17
 
 And you shall speak this word to them:  
-Let my eyes run down with tears  
+Let [[Jeremiah-14.fn#Footnote 17.1 — my|my]] eyes run down with tears  
 Night and day, and let them not cease;  
 For the virgin daughter of my people  
 Is broken with great brokenness,  

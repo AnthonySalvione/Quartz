@@ -1,6 +1,6 @@
 ## v1
 
-Bless Jehovah, O my soul.  
+[[Psalm-104.fn#Footnote 1.1 — Bless|Bless]] Jehovah, O my soul.  
 O Jehovah my God, You are very great.  
 You are clothed with majesty and splendor,
 
@@ -11,7 +11,7 @@ You stretch out the heavens like a tent curtain.
 
 ## v3
 
-He lays the beams of His upper chambers in the waters;  
+He lays the beams of His upper chambers in the [[Psalm-104.fn#Footnote 3.1 — waters|waters]];  
 He makes the clouds His chariot;  
 He walks upon the wings of the wind.
 
@@ -181,4 +181,4 @@ I will rejoice in Jehovah.
 May the sinners be consumed from off the earth,  
 And may the wicked be no more.  
 Bless Jehovah, O my soul.  
-Hallelujah.
+[[Psalm-104.fn#Footnote 35.1 — Hallelujah|Hallelujah]].

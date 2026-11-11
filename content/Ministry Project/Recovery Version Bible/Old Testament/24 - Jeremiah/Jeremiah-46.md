@@ -1,10 +1,10 @@
 ## v1
 
-The word of Jehovah that came to Jeremiah the prophet concerning the nations:
+The word of Jehovah that came to Jeremiah the prophet concerning the [[Jeremiah-46.fn#Footnote 1.1 — nations|nations]]:
 
 ## v2
 
-Concerning Egypt: Concerning the army of Pharaoh Neco, the king of Egypt, which was by the river Euphrates at Carchemish, which Nebuchadrezzar the king of Babylon struck down in the fourth year of Jehoiakim the son of Josiah, the king of Judah:
+Concerning [[Jeremiah-46.fn#Footnote 2.1 — Egypt|Egypt]]: Concerning the army of Pharaoh Neco, the king of Egypt, which was by the river Euphrates at Carchemish, which Nebuchadrezzar the king of Babylon struck down in the fourth year of Jehoiakim the son of Josiah, the king of Judah:
 
 ## v3
 
@@ -54,7 +54,7 @@ Go up, O horses, /
 And drive furiously, O chariots; /  
 And let the mighty men go forth: /  
 Cush and Put, who handle the shield, /  
-And the Ludim, who handle and bend the bow.
+And the [[Jeremiah-46.fn#Footnote 9.1 — Ludim|Ludim]], who handle and bend the bow.
 
 ## v10
 
@@ -125,7 +125,7 @@ And it will be burned, without inhabitant.
 ## v20
 
 Egypt is a beautiful heifer; /  
-A gadfly from the north has come on her.
+A [[Jeremiah-46.fn#Footnote 20.1 — gadfly|gadfly]] from the north has come [[Jeremiah-46.fn#Footnote 20.2 — on|on]] her.
 
 ## v21
 
@@ -158,18 +158,18 @@ She is given into the hand of a people from the north.
 ## v25
 
 Jehovah of hosts, the God of Israel, says, /  
-I will punish Amon of No and Pharaoh and Egypt and her gods and her kings, /  
+I will punish [[Jeremiah-46.fn#Footnote 25.1 — Amon|Amon]] of No and Pharaoh and Egypt and her gods and her kings, /  
 Even Pharaoh and those who trust in him.
 
 ## v26
 
 And I will give them into the hand of those who seek their life, /  
 Even into the hand of Nebuchadrezzar the king of Babylon and into the hand of his servants; /  
-And afterward she will be inhabited as in the days of old, declares Jehovah.
+And [[Jeremiah-46.fn#Footnote 26.1 — afterward|afterward]] she will be inhabited as in the days of old, declares Jehovah.
 
 ## v27
 
-But as for you, O Jacob My servant, do not fear; /  
+[[Jeremiah-46.fn#Footnote 27.1 — But|But]] as for you, O Jacob My servant, do not fear; /  
 And do not be dismayed, O Israel. /  
 For indeed I will save you from afar /  
 And your seed from the land of their captivity; /  

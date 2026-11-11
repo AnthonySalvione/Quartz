@@ -8,7 +8,7 @@ Arise, go to Nineveh, the great city; and proclaim to it the proclamation that I
 
 ## v3
 
-So Jonah arose and went to Nineveh according to the word of Jehovah. Now Nineveh was an exceedingly great city, a three days’ journey in size.
+So Jonah [[Jonah-03.fn#Footnote 3.1 — arose|arose]] and went to Nineveh according to the word of Jehovah. Now Nineveh was an [[Jonah-03.fn#Footnote 3.2 — exceedingly|exceedingly]] great city, a three days’ journey in size.
 
 ## v4
 

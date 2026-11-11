@@ -35,7 +35,7 @@ Meaning breath or vanity. As a result of man’s first fall, everything in human
 
 **Verse:** [[Genesis-04#v2|Genesis 4:2]]
 
-Or, a shepherd, a feeder. Before the flood man was permitted to eat only fruits and vegetables ([[Genesis-01#v29|1:29]]; [[Genesis-03#v18|3:18]]), not meat (cf. [[Genesis-09#v3|9:3]]). Thus, Abel’s tending of sheep was not to produce food for his living but to provide offerings for God’s satisfaction. Abel not only believed the gospel (see note 41) but also practiced the gospel and lived for it.
+Or, a shepherd, a feeder. Before the flood man was permitted to eat only fruits and vegetables ([[Genesis-01#v29|1:29]]; [[Genesis-03#v18|3:18]]), not meat (cf. [[Genesis-09#v3|9:3]]). Thus, Abel’s tending of sheep was not to produce food for his living but to provide offerings for God’s satisfaction. Abel not only believed the gospel (see [note 4¹](<Genesis-04.fn#Footnote 4.1 — offering>)) but also practiced the gospel and lived for it.
 
 ### Footnote 2.3 — tiller
 
@@ -49,7 +49,7 @@ Or, laborer. In his occupation Abel took care only of God’s satisfaction, wher
 
 **Verse:** [[Genesis-04#v3|Genesis 4:3]]
 
-Cain did not follow the way of God’s salvation through the anticipated redemption by the bleeding sacrifice ([[Genesis-03#v21|3:21]]; [[Hebrews-09#v22|Heb. 9:22]]) but continued man’s fall by presumptuously offering the fruit of his own labor to God. Cain’s way of worshipping God was to invent a religion according to his human concept and opinion ([[Jude-01#v11|Jude 11]] and note 1), which were motivated by Satan, the subtle one ([[Genesis-04#v7|v. 7]] and note; [[1 John-03#v12|1 John 3:12]]). Throughout the centuries and generations there have been countless followers of Cain, people in every place and time who have invented their own religion.
+Cain did not follow the way of God’s salvation through the anticipated redemption by the bleeding sacrifice ([[Genesis-03#v21|3:21]]; [[Hebrews-09#v22|Heb. 9:22]]) but continued man’s fall by presumptuously offering the fruit of his own labor to God. Cain’s way of worshipping God was to invent a religion according to his human concept and opinion ([[Jude-01#v11|Jude 11]] and [note 1](<Jude-01.fn#Footnote 11.1 — way>)), which were motivated by Satan, the subtle one ([[Genesis-04#v7|v. 7]] and [note](<Genesis-04.fn#Footnote 7.1 — sin>); [[1 John-03#v12|1 John 3:12]]). Throughout the centuries and generations there have been countless followers of Cain, people in every place and time who have invented their own religion.
 
 ## Footnotes for verse 4
 
@@ -75,7 +75,7 @@ Cain rejected God’s way of taking Christ as God’s righteousness to cover him
 
 **Verse:** [[Genesis-04#v7|Genesis 4:7]]
 
-Sin and Satan are one ([[Romans-07#v8|Rom. 7:8]] and note). If we reject God’s way of salvation, Satan as sin is crouching at the door, waiting for the opportunity to seize and devour us (cf. [[Luke-22#v31|Luke 22:31]]; [[1 Peter-05#v8|1 Pet. 5:8]]).
+Sin and Satan are one ([[Romans-07#v8|Rom. 7:8]] and [note](<Romans-07.fn#Footnote 8.1 — sin>)). If we reject God’s way of salvation, Satan as sin is crouching at the door, waiting for the opportunity to seize and devour us (cf. [[Luke-22#v31|Luke 22:31]]; [[1 Peter-05#v8|1 Pet. 5:8]]).
 
 ## Footnotes for verse 8
 
@@ -89,7 +89,7 @@ This clause is present in many ancient versions but lacking in the Hebrew text.
 
 **Verse:** [[Genesis-04#v8|Genesis 4:8]]
 
-Cain murdered his brother because of his anger provoked by his religious jealousy ([[Genesis-04#v4|vv. 4-5]]). Throughout the generations those who worship God according to the flesh have opposed, persecuted, and even murdered those who worship according to the Spirit ([[Matthew-23#v35|Matt. 23:35]]; [[John-16#v2|John 16:2]]; [[Revelation-17#v6|Rev. 17:6]]; cf. [[Galatians-04#v29|Gal. 4:29]]). In his offering to God and his murdering his brother, Cain was on the line of the tree of the knowledge of good and evil. In contrast, Abel was on the line of the tree of life. See note 93, par. 2, in [[Genesis-02|Genesis 2]].
+Cain murdered his brother because of his anger provoked by his religious jealousy ([[Genesis-04#v4|vv. 4-5]]). Throughout the generations those who worship God according to the flesh have opposed, persecuted, and even murdered those who worship according to the Spirit ([[Matthew-23#v35|Matt. 23:35]]; [[John-16#v2|John 16:2]]; [[Revelation-17#v6|Rev. 17:6]]; cf. [[Galatians-04#v29|Gal. 4:29]]). In his offering to God and his murdering his brother, Cain was on the line of the tree of the knowledge of good and evil. In contrast, Abel was on the line of the tree of life. See [note 9³](<Genesis-02.fn#Footnote 9.3 — tree>), par. 2, in [[Genesis-02|Genesis 2]].
 
 ## Footnotes for verse 9
 
@@ -105,7 +105,7 @@ This lie showed Cain’s arrogance toward God. Cain’s murdering of Abel and hi
 
 **Verse:** [[Genesis-04#v10|Genesis 4:10]]
 
-Both the blood of Abel and the blood of Jesus speak ([[Hebrews-12#v24|Heb. 12:24]] and note 3). Abel’s blood spoke from the earth; Jesus’ blood speaks from heaven.
+Both the blood of Abel and the blood of Jesus speak ([[Hebrews-12#v24|Heb. 12:24]] and [note 3](<Hebrews-12.fn#Footnote 24.3 — speaks>)). Abel’s blood spoke from the earth; Jesus’ blood speaks from heaven.
 
 ## Footnotes for verse 16
 
@@ -149,4 +149,4 @@ Meaning frail, mortal man.
 
 **Verse:** [[Genesis-04#v26|Genesis 4:26]]
 
-The Hebrew word means to call out to, to cry unto, i.e., to cry out audibly. Because men realized that their life was vanity (see note 21) and that they were frail and mortal (see note 261), they spontaneously began to call upon the name of Jehovah, the eternal One (see note 44 in [[Genesis-02|Genesis 2]]). Although they were vain and weak, by calling on the name of the Lord, they were made rich and strong, for they entered into the riches and strength of the One on whom they called ([[Romans-10#v12|Rom. 10:12-13]] and notes). See note 211 in [[Acts-02|Acts 2]].
+The Hebrew word means to call out to, to cry unto, i.e., to cry out audibly. Because men realized that their life was vanity (see [note 2¹](<Genesis-04.fn#Footnote 2.1 — Abel>)) and that they were frail and mortal (see [note 26¹](<Genesis-04.fn#Footnote 26.1 — Enosh>)), they spontaneously began to call upon the name of Jehovah, the eternal One (see [note 4⁴](<Genesis-02.fn#Footnote 4.4 — Jehovah>) in [[Genesis-02|Genesis 2]]). Although they were vain and weak, by calling on the name of the Lord, they were made rich and strong, for they entered into the riches and strength of the One on whom they called ([[Romans-10#v12|Rom. 10:12-13]] and notes). See [note 21¹](<Acts-02.fn#Footnote 21.1 — calls>) in [[Acts-02|Acts 2]].

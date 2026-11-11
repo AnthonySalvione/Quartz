@@ -1,9 +1,9 @@
 ## v1
 
-Concerning the children of Ammon: / Thus says Jehovah, /  
+Concerning the children of [[Jeremiah-49.fn#Footnote 1.1 — Ammon|Ammon]]: / Thus says Jehovah, /  
 Does Israel have no sons? /  
 Or has he no heir? /  
-Why has Malcam possessed Gad, /  
+Why has [[Jeremiah-49.fn#Footnote 1.2 — Malcam|Malcam]] possessed Gad, /  
 And why do his people dwell in his cities?
 
 ## v2
@@ -43,13 +43,13 @@ And no one will gather him who flees.
 
 ## v6
 
-But afterward I will turn again /  
+[[Jeremiah-49.fn#Footnote 6.1 — But|But]] afterward I will turn again /  
 The captivity of the children of Ammon, /  
 Declares Jehovah.
 
 ## v7
 
-Concerning Edom: / Thus says Jehovah of hosts, /  
+Concerning [[Jeremiah-49.fn#Footnote 7.1 — Edom|Edom]]: / Thus says Jehovah of hosts, /  
 Is there no more wisdom in Teman? /  
 Has counsel perished from those who understand? /  
 Is their wisdom spent?
@@ -78,8 +78,8 @@ And he is no more.
 
 ## v11
 
-Leave your orphans behind; I will preserve them alive, /  
-And let your widows trust in Me.
+Leave your [[Jeremiah-49.fn#Footnote 11.1 — orphans|orphans]] behind; I will preserve them alive, /  
+And let your [[Jeremiah-49.fn#Footnote 11.1 — orphans|widows]] trust in Me.
 
 ## v12
 
@@ -157,13 +157,13 @@ The sound of it has been heard in the Red Sea.
 ## v22
 
 Indeed, He will mount up and swoop down like an eagle /  
-And spread out His wings over Bozrah; /  
+And spread out His wings over [[Jeremiah-49.fn#Footnote 22.1 — Bozrah|Bozrah]]; /  
 And the heart of the mighty men of Edom in that day /  
 Will be like the heart of a woman in labor.
 
 ## v23
 
-Concerning Damascus: /  
+Concerning [[Jeremiah-49.fn#Footnote 23.1 — Damascus|Damascus]]: /  
 Hamath and Arpad are put to shame /  
 Because they have heard an evil report. /  
 They melt; anxiety is on the sea; /  
@@ -195,7 +195,7 @@ And it will consume the palaces of Ben-hadad.
 
 ## v28
 
-Concerning Kedar and the kingdoms of Hazor, /  
+Concerning [[Jeremiah-49.fn#Footnote 28.1 — Kedar|Kedar]] and the kingdoms of [[Jeremiah-49.fn#Footnote 28.1 — Kedar|Hazor]], /  
 Which Nebuchadrezzar the king of Babylon struck down: /  
 Thus says Jehovah: /  
 Arise, go up against Kedar, /  
@@ -242,7 +242,7 @@ Neither will a son of man sojourn in it.
 ## v34
 
 The word of Jehovah which came to Jeremiah the prophet /  
-Concerning Elam, /  
+Concerning [[Jeremiah-49.fn#Footnote 34.1 — Elam|Elam]], /  
 In the beginning of the reign of Zedekiah the king of Judah, saying,
 
 ## v35
@@ -276,6 +276,6 @@ Declares Jehovah.
 
 ## v39
 
-But in the last days, /  
+[[Jeremiah-49.fn#Footnote 39.1 — But|But]] in the last days, /  
 I will turn again the captivity of Elam, /  
 Declares Jehovah.

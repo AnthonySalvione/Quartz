@@ -15,7 +15,7 @@ chapter_num: 4
 
 **Verse:** [[Nehemiah-04#v14|Nehemiah 4:14]]
 
-On the one hand, the children of Israel were prepared to fight; on the other hand, they trusted in God, believing that He would fight for them ([[Nehemiah-04#v20|v. 20b]]). In this matter they too were aggressive (cf. note 201 in [[Nehemiah-02|Nehemiah 2]]).
+On the one hand, the children of Israel were prepared to fight; on the other hand, they trusted in God, believing that He would fight for them ([[Nehemiah-04#v20|v. 20b]]). In this matter they too were aggressive (cf. [note 20¹](<Nehemiah-02.fn#Footnote 20.1 — The>) in [[Nehemiah-02|Nehemiah 2]]).
 
 ## Footnotes for verse 18
 

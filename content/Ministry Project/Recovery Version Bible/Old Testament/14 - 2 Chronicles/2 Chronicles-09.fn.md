@@ -15,4 +15,4 @@ chapter_num: 9
 
 **Verse:** [[2 Chronicles-09#v26|2 Chronicles 9:26]]
 
-I.e., the Euphrates. See note 211 in [[1 Kings-04|1 Kings 4]].
+I.e., the Euphrates. See [note 21¹](<1 Kings-04.fn#Footnote 21.1 — River>) in [[1 Kings-04|1 Kings 4]].

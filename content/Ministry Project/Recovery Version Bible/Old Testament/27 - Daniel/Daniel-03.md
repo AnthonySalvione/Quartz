@@ -1,6 +1,6 @@
 ## v1
 
-Nebuchadnezzar the king made an image of gold, its height sixty cubits and its width six cubits; he set it up in the plain of Dura in the province of Babylon.
+Nebuchadnezzar the king made an [[Daniel-03.fn#Footnote 1.1 — image|image]] of gold, its height sixty cubits and its width six cubits; he set it up in the plain of Dura in the province of Babylon.
 
 ## v2
 
@@ -8,7 +8,7 @@ Then Nebuchadnezzar the king sent word to assemble the satraps, the prefects and
 
 ## v3
 
-Then the satraps, the prefects and the governors, the chief judges, the treasury officials, the law officials, the judges, and all the rulers of the provinces assembled themselves for the dedication of the image that Nebuchadnezzar the king had set up; and they stood before the image that Nebuchadnezzar had set up.
+Then the satraps, the prefects and the governors, the chief judges, the treasury officials, the law officials, the judges, and all the [[Daniel-03.fn#Footnote 3.1 — rulers|rulers]] of the provinces assembled themselves for the dedication of the image that Nebuchadnezzar the king had set up; and they stood before the image that Nebuchadnezzar had set up.
 
 ## v4
 
@@ -24,7 +24,7 @@ And whoever does not fall down and worship shall be thrown into the midst of a b
 
 ## v7
 
-Therefore at that time, when all the peoples heard the sound of the horn, flute, lyre, trigon, psaltery, bagpipe, and all kinds of music, all the peoples, nations, and languages fell down and worshipped the golden image that Nebuchadnezzar the king had set up.
+Therefore at that time, when all the peoples heard the sound of the horn, flute, lyre, trigon, psaltery, [[Daniel-03.fn#Footnote 7.1 — bagpipe|bagpipe]], and all kinds of music, all the peoples, nations, and languages fell down and worshipped the golden image that Nebuchadnezzar the king had set up.
 
 ## v8
 
@@ -96,7 +96,7 @@ Then Nebuchadnezzar the king was astonished and stood up in haste; he responded 
 
 ## v25
 
-He answered and said, Look, I see four men loose, walking in the midst of the fire; and they are not harmed. And the appearance of the fourth is like a son of the gods.
+He answered and said, Look, I see four men loose, walking in the midst of the fire; and they are not harmed. And the appearance of the [[Daniel-03.fn#Footnote 25.1 — fourth|fourth]] is like a son of the gods.
 
 ## v26
 
@@ -108,7 +108,7 @@ And the satraps, prefects, and governors, and the king’s counselors, being gat
 
 ## v28
 
-Nebuchadnezzar responded and said, Blessed be the God of Shadrach, Meshach, and Abed-nego, who has sent His angel and delivered His servants who trusted in Him and changed the king’s word and yielded their bodies that they might not serve nor worship any god except their own God.
+Nebuchadnezzar responded and said, Blessed be the God of Shadrach, Meshach, and Abed-nego, who has sent His angel and delivered His servants who trusted in Him and [[Daniel-03.fn#Footnote 28.1 — changed|changed]] the king’s word and yielded their bodies that they might not serve nor worship any god except their own God.
 
 ## v29
 

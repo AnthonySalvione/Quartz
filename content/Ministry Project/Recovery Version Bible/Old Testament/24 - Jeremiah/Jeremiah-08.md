@@ -96,7 +96,7 @@ Were they ashamed when they committed abomination?
 They were not at all ashamed;  
 They did not even know to blush.  
 Therefore they will fall with those who fall;  
-At the time of their punishment they will stumble,  
+At the time of their [[Jeremiah-08.fn#Footnote 12.1 — punishment|punishment]] they will stumble,  
 Says Jehovah.
 
 ## v13

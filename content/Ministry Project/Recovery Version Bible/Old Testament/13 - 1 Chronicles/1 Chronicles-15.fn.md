@@ -15,7 +15,7 @@ chapter_num: 15
 
 **Verse:** [[1 Chronicles-15#v3|1 Chronicles 15:3]]
 
-See note 21 in [[2 Samuel-06|2 Sam. 6]].
+See [note 2¹](<2 Samuel-06.fn#Footnote 2.1 — Ark>) in [[2 Samuel-06|2 Sam. 6]].
 
 ## Footnotes for verse 18
 

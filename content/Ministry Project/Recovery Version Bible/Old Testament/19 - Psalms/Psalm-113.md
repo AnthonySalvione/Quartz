@@ -1,6 +1,6 @@
 ## v1
 
-Hallelujah!  
+[[Psalm-113.fn#Footnote 1.1 — Hallelujah|Hallelujah]]!  
 Praise, you servants of Jehovah,  
 Praise the name of Jehovah.
 

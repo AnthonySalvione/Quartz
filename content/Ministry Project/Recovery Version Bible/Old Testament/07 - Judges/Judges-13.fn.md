@@ -15,7 +15,7 @@ chapter_num: 13
 
 **Verse:** [[Judges-13#v3|Judges 13:3]]
 
-The Angel of Jehovah in [[Judges-13#v3|vv. 3-21]] is Jehovah, the Triune God ([[Judges-13#v22|vv. 22-23]]). This Angel is Christ as the sent One of God (see note 21 in [[Exodus-03|Exo. 3]]).
+The Angel of Jehovah in [[Judges-13#v3|vv. 3-21]] is Jehovah, the Triune God ([[Judges-13#v22|vv. 22-23]]). This Angel is Christ as the sent One of God (see [note 2¹](<Exodus-03.fn#Footnote 2.1 — Angel>) in [[Exodus-03|Exo. 3]]).
 
 ### Footnote 3.2 — appeared
 
@@ -37,7 +37,7 @@ Concerning the Nazarite, see notes in [[Numbers-06#v1|Num. 6:1-21]].
 
 **Verse:** [[Judges-13#v6|Judges 13:6]]
 
-The man of God was Christ as a man. Thus, the Triune God embodied in Christ appeared to Manoah and his wife before Christ’s incarnation. See note 21 in [[Genesis-18|Gen. 18]].
+The man of God was Christ as a man. Thus, the Triune God embodied in Christ appeared to Manoah and his wife before Christ’s incarnation. See [note 2¹](<Genesis-18.fn#Footnote 2.1 — men>) in [[Genesis-18|Gen. 18]].
 
 ## Footnotes for verse 18
 

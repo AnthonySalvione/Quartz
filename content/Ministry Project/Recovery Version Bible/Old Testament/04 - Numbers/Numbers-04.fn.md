@@ -21,7 +21,7 @@ To serve as a Levite, one had to be between thirty and fifty years old ([[Number
 
 **Verse:** [[Numbers-04#v3|Numbers 4:3]]
 
-See note 32 in [[Numbers-01|Numbers 1]]. So also in [[Numbers-01#v23|vv. 23]], [[Numbers-01#v30|30]], [[Numbers-01#v35|35]], [[Numbers-01#v39|39]], and 43. The holy service of the priests and the Levites was considered a warfare. Likewise, the service of the New Testament priests of the gospel of God ([[Romans-01#v1|Rom. 1:1]]; [[Romans-15#v16|15:16]]) for the building up of the Body of Christ is a warfare ([[2 Corinthians-10#v3|2 Cor. 10:3-5]]; [[Ephesians-06#v12|Eph. 6:12]]; [[1 Timothy-01#v18|1 Tim. 1:18]]; [[2 TImothy-04#v7|2 Tim. 4:7a]]).
+See [note 3²](<Numbers-01.fn#Footnote 3.2 — for>) in [[Numbers-01|Numbers 1]]. So also in [[Numbers-01#v23|vv. 23]], [[Numbers-01#v30|30]], [[Numbers-01#v35|35]], [[Numbers-01#v39|39]], and 43. The holy service of the priests and the Levites was considered a warfare. Likewise, the service of the New Testament priests of the gospel of God ([[Romans-01#v1|Rom. 1:1]]; [[Romans-15#v16|15:16]]) for the building up of the Body of Christ is a warfare ([[2 Corinthians-10#v3|2 Cor. 10:3-5]]; [[Ephesians-06#v12|Eph. 6:12]]; [[1 Timothy-01#v18|1 Tim. 1:18]]; [[2 TImothy-04#v7|2 Tim. 4:7a]]).
 
 ## Footnotes for verse 5
 
@@ -35,7 +35,7 @@ The holy service of the priests and the Levites was for God’s move. The tabern
 
 **Verse:** [[Numbers-04#v5|Numbers 4:5]]
 
-See note 19¹.
+See [note 19¹](<Numbers-04.fn#Footnote 19.1 — assign>).
 
 ## Footnotes for verse 6
 
@@ -51,7 +51,7 @@ The meaning of the Hebrew is uncertain. It probably refers to the skin of a sea 
 
 **Verse:** [[Numbers-04#v7|Numbers 4:7]]
 
-See note 13² in [[Leviticus-23|Lev. 23]].
+See [note 13²](<Leviticus-23.fn#Footnote 13.2 — drink>) in [[Leviticus-23|Lev. 23]].
 
 ## Footnotes for verse 16
 
@@ -59,7 +59,7 @@ See note 13² in [[Leviticus-23|Lev. 23]].
 
 **Verse:** [[Numbers-04#v16|Numbers 4:16]]
 
-All the items over which Eleazar was responsible signify different aspects of the rich Christ. See notes 81 and 311 in [[Numbers-03|Numbers 3]], and notes in [[Exodus-25|Exo. 25—30]] concerning the items of the tabernacle.
+All the items over which Eleazar was responsible signify different aspects of the rich Christ. See notes [8¹](<Numbers-03.fn#Footnote 8.1 — furnishings>) and [31¹](<Numbers-03.fn#Footnote 31.1 — charge>) in [[Numbers-03|Numbers 3]], and notes in [[Exodus-25|Exo. 25—30]] concerning the items of the tabernacle.
 
 ## Footnotes for verse 19
 

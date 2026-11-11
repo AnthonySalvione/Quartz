@@ -6,7 +6,7 @@ hymn:
   - "[[Hymn-639]]"
 training: Semi-Annual Summer
 ---
-[[Ministry Project/Assembly/Semi-annual/Summer-2026/Messages/Message 9|⇐ Previous Message]] | [[Message 11|Next Message ⇒]]
+[[Ministry Project/Assembly/Semi-annual/Summer-2026/Messages/Message 9|⇐ Previous Message]] | [[Ministry Project/Assembly/Semi-annual/Summer-2026/Messages/Message 11|Next Message ⇒]]
 
 ---
 Singing brothers — Dennis Cooley, Angel Hernandez

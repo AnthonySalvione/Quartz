@@ -1,7 +1,7 @@
 ## v1
 
 Thus says Jehovah,  
-Because of three transgressions of Moab, /  
+Because of three transgressions of [[Amos-02.fn#Footnote 1.1 — Moab|Moab]], /  
 Indeed, because of four, I will not turn away the punishment; /  
 Because he burned the bones /  
 Of the king of Edom into lime.

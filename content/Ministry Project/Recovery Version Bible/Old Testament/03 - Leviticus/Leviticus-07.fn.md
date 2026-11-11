@@ -15,7 +15,7 @@ chapter_num: 7
 
 **Verse:** [[Leviticus-07#v1|Leviticus 7:1]]
 
-That the trespass offering (like the meal offering and the sin offering—[[Leviticus-06#v17|6:17]], [[Leviticus-06#v25|25]]) was most holy signifies that Christ as our trespass offering is most holy in dealing with the sins in our conduct. Since the trespass offering refers us to the sin offering, reminding us that sin is in our flesh ([[1 John-01#v7|1 John 1:7-8]]), and to the burnt offering, reminding us that we commit sins because we are not absolute for God (see note 71 in [[Leviticus-05|Leviticus 5]]), we must not take it in a light way; rather, we must apply Christ as our trespass offering in a holy way.
+That the trespass offering (like the meal offering and the sin offering—[[Leviticus-06#v17|6:17]], [[Leviticus-06#v25|25]]) was most holy signifies that Christ as our trespass offering is most holy in dealing with the sins in our conduct. Since the trespass offering refers us to the sin offering, reminding us that sin is in our flesh ([[1 John-01#v7|1 John 1:7-8]]), and to the burnt offering, reminding us that we commit sins because we are not absolute for God (see [note 7¹](<Leviticus-05.fn#Footnote 7.1 — sin>) in [[Leviticus-05|Leviticus 5]]), we must not take it in a light way; rather, we must apply Christ as our trespass offering in a holy way.
 
 ## Footnotes for verse 2
 
@@ -29,7 +29,7 @@ The trespass offering being slaughtered where the burnt offering was slaughtered
 
 **Verse:** [[Leviticus-07#v2|Leviticus 7:2]]
 
-Cf. note 9¹ in [[Leviticus-05|Leviticus 5]].
+Cf. [note 9¹](<Leviticus-05.fn#Footnote 9.1 — blood>) in [[Leviticus-05|Leviticus 5]].
 
 ## Footnotes for verse 3
 
@@ -37,7 +37,7 @@ Cf. note 9¹ in [[Leviticus-05|Leviticus 5]].
 
 **Verse:** [[Leviticus-07#v3|Leviticus 7:3]]
 
-See note 8¹ in [[Leviticus-04|Leviticus 4]]. Cf. [[Leviticus-04#v7|v. 7a]].
+See [note 8¹](<Leviticus-04.fn#Footnote 8.1 — fat>) in [[Leviticus-04|Leviticus 4]]. Cf. [[Leviticus-04#v7|v. 7a]].
 
 ## Footnotes for verse 6
 
@@ -45,7 +45,7 @@ See note 8¹ in [[Leviticus-04|Leviticus 4]]. Cf. [[Leviticus-04#v7|v. 7a]].
 
 **Verse:** [[Leviticus-07#v6|Leviticus 7:6]]
 
-Cf. [[Leviticus-07#v7|v. 7]] and notes 26¹ and 29¹ in [[Leviticus-06|Leviticus 6]].
+Cf. [[Leviticus-07#v7|v. 7]] and notes [26¹](<Leviticus-06.fn#Footnote 26.1 — priest>) and [29¹](<Leviticus-06.fn#Footnote 29.1 — male>) in [[Leviticus-06|Leviticus 6]].
 
 ## Footnotes for verse 7
 
@@ -53,13 +53,13 @@ Cf. [[Leviticus-07#v7|v. 7]] and notes 26¹ and 29¹ in [[Leviticus-06|Leviticus
 
 **Verse:** [[Leviticus-07#v7|Leviticus 7:7]]
 
-This signifies that sin and trespasses (sins) are of the same category. All are sin in its totality. See note 34, par. 1, in [[Leviticus-04|Leviticus 4]].
+This signifies that sin and trespasses (sins) are of the same category. All are sin in its totality. See [note 3⁴](<Leviticus-04.fn#Footnote 3.4 — sin>), par. 1, in [[Leviticus-04|Leviticus 4]].
 
 ### Footnote 7.2 — priest
 
 **Verse:** [[Leviticus-07#v7|Leviticus 7:7]]
 
-Cf. [[Leviticus-06#v26|6:26]] and note.
+Cf. [[Leviticus-06#v26|6:26]] and [note](<Leviticus-06.fn#Footnote 26.1 — priest>).
 
 ## Footnotes for verse 8
 
@@ -75,7 +75,7 @@ This signifies that Christ’s outward expression of beauty (the skin) is ascrib
 
 **Verse:** [[Leviticus-07#v9|Leviticus 7:9]]
 
-This signifies that the one who ministers Christ as the suffering One partakes of and enjoys such a Christ. See note 41 in [[Leviticus-02|Leviticus 2]].
+This signifies that the one who ministers Christ as the suffering One partakes of and enjoys such a Christ. See [note 4¹](<Leviticus-02.fn#Footnote 4.1 — oven>) in [[Leviticus-02|Leviticus 2]].
 
 ## Footnotes for verse 11
 
@@ -83,7 +83,7 @@ This signifies that the one who ministers Christ as the suffering One partakes o
 
 **Verse:** [[Leviticus-07#v11|Leviticus 7:11]]
 
-See note 3¹ in [[Leviticus-03|Leviticus 3]].
+See [note 3¹](<Leviticus-03.fn#Footnote 3.1 — Jehovah>) in [[Leviticus-03|Leviticus 3]].
 
 ## Footnotes for verse 12
 
@@ -147,7 +147,7 @@ The word in [[Leviticus-07#v20|vv. 20-21]] signifies that the unclean person who
 
 **Verse:** [[Leviticus-07#v23|Leviticus 7:23]]
 
-This signifies that when we practice our priestly service, we should be concerned about God’s food and should not eat the fat, which is God’s portion ([[Leviticus-03#v3|3:3-5]]). See note 251.
+This signifies that when we practice our priestly service, we should be concerned about God’s food and should not eat the fat, which is God’s portion ([[Leviticus-03#v3|3:3-5]]). See [note 25¹](<Leviticus-07.fn#Footnote 25.1 — fat>).
 
 ## Footnotes for verse 24
 
@@ -171,7 +171,7 @@ This signifies that we who enjoy Christ as our peace offering should keep the ex
 
 **Verse:** [[Leviticus-07#v26|Leviticus 7:26]]
 
-See note 171 in [[Leviticus-03|Leviticus 3]]. Anyone who regards the blood of Jesus as a common thing will be put aside from the fellowship of the enjoyment of Christ (v. 27).
+See [note 17¹](<Leviticus-03.fn#Footnote 17.1 — fat>) in [[Leviticus-03|Leviticus 3]]. Anyone who regards the blood of Jesus as a common thing will be put aside from the fellowship of the enjoyment of Christ ([[Leviticus-07#v27|v. 27]]).
 
 ## Footnotes for verse 29
 
@@ -179,7 +179,7 @@ See note 171 in [[Leviticus-03|Leviticus 3]]. Anyone who regards the blood of Je
 
 **Verse:** [[Leviticus-07#v29|Leviticus 7:29]]
 
-The word in [[Leviticus-07#v29|vv. 29-34]] signifies that we who take Christ as our peace offering should offer the excellent part of Christ (the fat) to God for His satisfaction, the loving part of Christ in His resurrection (the breast as a wave offering) and the strong part of Christ in His ascension (the right thigh as a heave offering) being for the serving ones’ enjoyment. In our enjoyment of Christ as the peace offering, God has allotted the loving capacity and the strengthening power of Christ to us, the New Testament priests ([[1 Peter-02#v5|1 Pet. 2:5]], [[1 Peter-02#v9|9]]; [[Revelation-01#v5|Rev. 1:5-6]]; [[Revelation-05#v10|5:10]]), as our eternal portion for our enjoyment in serving God. See notes 261 through 281 in [[Exodus-29|Exo. 29]].
+The word in [[Leviticus-07#v29|vv. 29-34]] signifies that we who take Christ as our peace offering should offer the excellent part of Christ (the fat) to God for His satisfaction, the loving part of Christ in His resurrection (the breast as a wave offering) and the strong part of Christ in His ascension (the right thigh as a heave offering) being for the serving ones’ enjoyment. In our enjoyment of Christ as the peace offering, God has allotted the loving capacity and the strengthening power of Christ to us, the New Testament priests ([[1 Peter-02#v5|1 Pet. 2:5]], [[1 Peter-02#v9|9]]; [[Revelation-01#v5|Rev. 1:5-6]]; [[Revelation-05#v10|5:10]]), as our eternal portion for our enjoyment in serving God. See notes [[Exodus-29.fn#Footnote 26.1 — breast|26¹]] through [[Exodus-29.fn#Footnote 28.1 — peace|28¹]] in [[Exodus-29|Exo. 29]].
 
 ## Footnotes for verse 30
 
@@ -187,7 +187,7 @@ The word in [[Leviticus-07#v29|vv. 29-34]] signifies that we who take Christ as 
 
 **Verse:** [[Leviticus-07#v30|Leviticus 7:30]]
 
-See note 24¹ in [[Exodus-29|Exo. 29]].
+See [note 24¹](<Exodus-29.fn#Footnote 24.1 — wave>) in [[Exodus-29|Exo. 29]].
 
 ## Footnotes for verse 35
 
@@ -209,4 +209,4 @@ Lit., filling (of hands). So also throughout the book, unless otherwise noted. T
 
 **Verse:** [[Leviticus-07#v37|Leviticus 7:37]]
 
-The sequence of the five offerings in [[Leviticus-01#v1|1:1]]—[[Leviticus-06#v7|6:7]] is according to our practical experience (see notes 11 and 51 in [[Leviticus-03|Leviticus 3]] and note 34, par. 3, in [[Leviticus-04|Leviticus 4]]), whereas the sequence in [[Leviticus-06#v8|6:8]]—[[Leviticus-07#v38|7:38]] is according to the total picture of God’s economy. In God’s heart and in His desire God would have Christ to be four kinds of offerings to us—the burnt offering, the meal offering, the sin offering, and the trespass offering—that we may enjoy Christ as peace with God in every way. Christ’s being these four offerings consummates in peace between God and God’s people, and this peace is simply Christ Himself ([[Ephesians-02#v14|Eph. 2:14]]). Eventually, the enjoyment of Christ as all the offerings, issuing in the peace offering, will consummate in the New Jerusalem as the ultimate peace offering (Jerusalem means the foundation of peace), in which we will enjoy the Triune God as peace ([[Philippians-04#v7|Phil. 4:7]], [[Philippians-04#v9|9]]) for eternity. Thus, the ordinances concerning the offerings are a record of the totality of God’s economy.
+The sequence of the five offerings in [[Leviticus-01#v1|1:1]]—[[Leviticus-06#v7|6:7]] is according to our practical experience (see notes [1¹](<Leviticus-03.fn#Footnote 1.1 — peace>) and [5¹](<Leviticus-03.fn#Footnote 5.1 — burnt>) in [[Leviticus-03|Leviticus 3]] and note [3⁴](<Leviticus-04.fn#Footnote 3.4 — sin>), par. 3, in [[Leviticus-04|Leviticus 4]]), whereas the sequence in [[Leviticus-06#v8|6:8]]—[[Leviticus-07#v38|7:38]] is according to the total picture of God’s economy. In God’s heart and in His desire God would have Christ to be four kinds of offerings to us—the burnt offering, the meal offering, the sin offering, and the trespass offering—that we may enjoy Christ as peace with God in every way. Christ’s being these four offerings consummates in peace between God and God’s people, and this peace is simply Christ Himself ([[Ephesians-02#v14|Eph. 2:14]]). Eventually, the enjoyment of Christ as all the offerings, issuing in the peace offering, will consummate in the New Jerusalem as the ultimate peace offering (Jerusalem means the foundation of peace), in which we will enjoy the Triune God as peace ([[Philippians-04#v7|Phil. 4:7]], [[Philippians-04#v9|9]]) for eternity. Thus, the ordinances concerning the offerings are a record of the totality of God’s economy.

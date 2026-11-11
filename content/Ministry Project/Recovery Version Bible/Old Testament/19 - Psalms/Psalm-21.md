@@ -1,3 +1,6 @@
+> *To the choir director. A Psalm of David*
+
+---
 ## v1
 
 O Jehovah, in Your strength the king rejoices, / And in Your salvation how greatly does he exult.
@@ -48,4 +51,4 @@ For You make them turn their back; / You aim with Your bowstrings at their faces
 
 ## v13
 
-Be exalted, O Jehovah, in Your strength; / We will sing and psalm Your might.
+Be [[Psalm-21.fn#Footnote 13.1 — exalted|exalted]], O Jehovah, in Your strength; / We will sing and psalm Your might.

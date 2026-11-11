@@ -69,7 +69,7 @@ Here Abraham referred to Lot by implication ([[2 Peter-02#v7|2 Pet. 2:7-9]]). Ap
 
 **Verse:** [[Genesis-18#v25|Genesis 18:25]]
 
-In Abraham’s intercession for Lot, He did not beg God according to His love and grace; he challenged God according to His righteous way. God’s righteousness binds Him much more than His love and grace do (see note 171 in [[Romans-01|Rom. 1]]).
+In Abraham’s intercession for Lot, He did not beg God according to His love and grace; he challenged God according to His righteous way. God’s righteousness binds Him much more than His love and grace do (see [note 17¹](<Romans-01.fn#Footnote 17.1 — righteousness>) in [[Romans-01|Rom. 1]]).
 
 ## Footnotes for verse 33
 

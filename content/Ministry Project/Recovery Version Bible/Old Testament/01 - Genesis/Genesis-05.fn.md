@@ -29,7 +29,7 @@ Lit., In the day.
 
 **Verse:** [[Genesis-05#v1|Genesis 5:1]]
 
-See note 26³, par. 1, in [[Genesis-01|Genesis 1]].
+See [note 26³](<Genesis-01.fn#Footnote 26.3 — image>), par. 1, in [[Genesis-01|Genesis 1]].
 
 ## Footnotes for verse 2
 
@@ -37,7 +37,7 @@ See note 26³, par. 1, in [[Genesis-01|Genesis 1]].
 
 **Verse:** [[Genesis-05#v2|Genesis 5:2]]
 
-See note 26⁴ in [[Genesis-01|Genesis 1]].
+See [note 26⁴](<Genesis-01.fn#Footnote 26.4 — them>) in [[Genesis-01|Genesis 1]].
 
 ## Footnotes for verse 3
 
@@ -53,7 +53,7 @@ This genealogy does not record the deeds and activities of the people; it record
 
 **Verse:** [[Genesis-05#v5|Genesis 5:5]]
 
-See note 12⁴ in [[Romans-05|Rom. 5]].
+See [note 12⁴](<Romans-05.fn#Footnote 12.4 — death>) in [[Romans-05|Rom. 5]].
 
 ## Footnotes for verse 21
 

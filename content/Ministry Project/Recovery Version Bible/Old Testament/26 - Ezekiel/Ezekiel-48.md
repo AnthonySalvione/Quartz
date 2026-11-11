@@ -1,34 +1,34 @@
 ## v1
 
-Now these are the names of the tribes: From the north end, along the way of Hethlon to the entrance of Hamath, and Hazar-enan on the border of the territory of Damascus with Hamath to the north (with their sides extending from east to west), **Dan**, one portion.
+Now these are the names of the tribes: From the north end, along the way of Hethlon to the entrance of Hamath, and Hazar-enan on the border of the territory of Damascus with Hamath to the north (with their sides extending from east to west), Dan, one portion.
 
 ## v2
 
-And alongside the border of Dan, from the east side to the west side, **Asher**, one portion.
+And alongside the border of Dan, from the east side to the west side, Asher, one portion.
 
 ## v3
 
-And alongside the border of Asher, from the east side even to the west side, **Naphtali**, one portion.
+And alongside the border of Asher, from the east side even to the west side, Naphtali, one portion.
 
 ## v4
 
-And alongside the border of Naphtali, from the east side to the west side, **Manasseh**, one portion.
+And alongside the border of Naphtali, from the east side to the west side, Manasseh, one portion.
 
 ## v5
 
-And alongside the border of Manasseh, from the east side to the west side, **Ephraim**, one portion.
+And alongside the border of Manasseh, from the east side to the west side, Ephraim, one portion.
 
 ## v6
 
-And alongside the border of Ephraim, from the east side even to the west side, **Reuben**, one portion.
+And alongside the border of Ephraim, from the east side even to the west side, Reuben, one portion.
 
 ## v7
 
-And alongside the border of Reuben, from the east side to the west side, **Judah**, one portion.
+And alongside the border of Reuben, from the east side to the west side, Judah, one portion.
 
 ## v8
 
-And alongside the border of Judah, from the east side to the west side, shall be the heave offering of land which you shall offer, twenty-five thousand reeds in width, and in length just like one of the portions of the tribes from the east side to the west side; and the sanctuary shall be in its midst.
+And alongside the border of Judah, from the east side to the west side, shall be the [[Ezekiel-48.fn#Footnote 8.1 — heave|heave]] offering of land which you shall offer, twenty-five thousand reeds in width, and in length just like one of the portions of the tribes from the east side to the west side; and the [[Ezekiel-48.fn#Footnote 8.2 — sanctuary|sanctuary]] shall be in its midst.
 
 ## v9
 
@@ -88,23 +88,23 @@ And it shall be distinct from the possession of the Levites and from the possess
 
 ## v23
 
-And as for the rest of the tribes: from the east side to the west side, **Benjamin**, one portion.
+And as for the rest of the tribes: from the east side to the west side, Benjamin, one portion.
 
 ## v24
 
-And alongside the border of Benjamin, from the east side to the west side, **Simeon**, one portion.
+And alongside the border of Benjamin, from the east side to the west side, Simeon, one portion.
 
 ## v25
 
-And alongside the border of Simeon, from the east side to the west side, **Issachar**, one portion.
+And alongside the border of Simeon, from the east side to the west side, Issachar, one portion.
 
 ## v26
 
-And alongside the border of Issachar, from the east side to the west side, **Zebulun**, one portion.
+And alongside the border of Issachar, from the east side to the west side, Zebulun, one portion.
 
 ## v27
 
-And alongside the border of Zebulun, from the east side to the west side, **Gad**, one portion.
+And alongside the border of Zebulun, from the east side to the west side, Gad, one portion.
 
 ## v28
 
@@ -120,20 +120,20 @@ And these are the exits of the city: On the north side, which measures four thou
 
 ## v31
 
-(Now the gates of the city shall be according to the names of the tribes of Israel) three gates to the north: the gate of **Reuben**, one; the gate of **Judah**, one; the gate of **Levi**, one;
+(Now the gates of the [[Ezekiel-48.fn#Footnote 31.1 — city|city]] shall be according to the names of the tribes of Israel) [[Ezekiel-48.fn#Footnote 31.2 — three|three]] gates to the north: the gate of Reuben, one; the gate of Judah, one; the gate of Levi, one;
 
 ## v32
 
-And on the east side, which is four thousand five hundred reeds, another three gates: the gate of **Joseph**, one; the gate of **Benjamin**, one; the gate of **Dan**, one;
+And on the east side, which is four thousand five hundred reeds, another three gates: the gate of Joseph, one; the gate of Benjamin, one; the gate of Dan, one;
 
 ## v33
 
-And on the south side, which measures four thousand five hundred reeds, another three gates: the gate of **Simeon**, one; the gate of **Issachar**, one; the gate of **Zebulun**, one;
+And on the south side, which measures four thousand five hundred reeds, another three gates: the gate of Simeon, one; the gate of Issachar, one; the gate of Zebulun, one;
 
 ## v34
 
-On the west side, which is four thousand five hundred reeds, their three gates: the gate of **Gad**, one; the gate of **Asher**, one; the gate of **Naphtali**, one.
+On the west side, which is four thousand five hundred reeds, their three gates: the gate of Gad, one; the gate of Asher, one; the gate of Naphtali, one.
 
 ## v35
 
-It shall be eighteen thousand reeds all around, and the name of the city from that day shall be, **Jehovah Is There**.
+It shall be eighteen thousand reeds all around, and the name of the city from that day shall be, [[Ezekiel-48.fn#Footnote 35.1 — Jehovah|Jehovah]] Is There.

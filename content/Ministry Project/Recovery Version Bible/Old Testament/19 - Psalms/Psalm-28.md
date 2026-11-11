@@ -1,3 +1,6 @@
+> *Of David*
+
+---
 ## v1
 
 To You, O Jehovah, do I call out; / My rock, do not be deaf to me, / Lest, if You are silent to me, / I become like those who go down into the pit.
@@ -12,7 +15,7 @@ Do not drag me away with the wicked / And with the workers of iniquity, / Who sp
 
 ## v4
 
-Repay them according to what they have done / And according to the evil of their deeds; / According to the work of their hands repay them; / Return to them their due.
+[[Psalm-28.fn#Footnote 4.1 — Repay|Repay]] them according to what they have done / And according to the evil of their deeds; / According to the work of their hands repay them; / Return to them their due.
 
 ## v5
 
@@ -28,7 +31,7 @@ Jehovah is my strength and my shield; / My heart trusts in Him, and I am helped;
 
 ## v8
 
-Jehovah is their strength; / And He is a stronghold of salvation to His anointed.
+Jehovah is [[Psalm-28.fn#Footnote 8.1 — their|their]] strength; / And He is a stronghold of salvation to His anointed.
 
 ## v9
 

@@ -1,3 +1,6 @@
+> *A Song; a Psalm of Asaph*
+
+---
 ## v1
 
 O God, do not keep silent;  
@@ -10,8 +13,8 @@ And those who hate You lift up their heads.
 
 ## v3
 
-They devise crafty counsel against Your people,  
-And conspire against Your hidden ones.
+They [[Psalm-83.fn#Footnote 3.1 — devise|devise]] crafty counsel against Your people,  
+And conspire against Your [[Psalm-83.fn#Footnote 3.2 — hidden|hidden]] ones.
 
 ## v4
 
@@ -60,7 +63,7 @@ The habitations of God.
 
 ## v13
 
-O my God, make them like a tumbleweed,  
+[[Psalm-83.fn#Footnote 13.1 — O|O]] my God, make them like a tumbleweed,  
 Like stubble before the wind.
 
 ## v14

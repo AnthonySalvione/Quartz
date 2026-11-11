@@ -15,7 +15,7 @@ chapter_num: 32
 
 **Verse:** [[Numbers-32#v1|Numbers 32:1]]
 
-The prearrangement of the distribution of the good land shown in the last five chapters of this book typifies the sharing of the enjoyment of the rich Christ. At this point God’s chosen and redeemed people, after being formed into a priestly army to fight for God and to journey with God, were prepared by God to possess the good land, a type of the all-inclusive Christ as the portion allotted by God to the believers in Christ (see note 71 in [[Deuteronomy-08|Deut. 8]]).
+The prearrangement of the distribution of the good land shown in the last five chapters of this book typifies the sharing of the enjoyment of the rich Christ. At this point God’s chosen and redeemed people, after being formed into a priestly army to fight for God and to journey with God, were prepared by God to possess the good land, a type of the all-inclusive Christ as the portion allotted by God to the believers in Christ (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]).
 
 ## Footnotes for verse 5
 

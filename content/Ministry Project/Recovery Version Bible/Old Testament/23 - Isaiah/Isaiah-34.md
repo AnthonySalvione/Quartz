@@ -38,7 +38,7 @@ Jehovah’s sword is full of blood;
 It has fattened itself with fat,  
 With the blood of lambs and goats,  
 With the fat of the kidneys of rams;  
-For Jehovah has a sacrifice in Bozrah  
+For Jehovah has a [[Isaiah-34.fn#Footnote 6.1 — sacrifice|sacrifice]] in Bozrah  
 And a great slaughter in the land of Edom.
 
 ## v7
@@ -55,7 +55,7 @@ A year of recompense for Zion’s contention.
 
 ## v9
 
-And its streams will be turned into pitch,  
+And [[Isaiah-34.fn#Footnote 9.1 — its|its]] streams will be turned into pitch,  
 And its dust into brimstone;  
 And its land will become burning pitch.
 
@@ -89,8 +89,8 @@ And an abode for ostriches.
 ## v14
 
 Desert animals will meet with hyenas;  
-And the demon will call to his kind;  
-Indeed there Lilith will settle  
+And the [[Isaiah-34.fn#Footnote 14.1 — demon|demon]] will call to his kind;  
+Indeed there [[Isaiah-34.fn#Footnote 14.2 — Lilith|Lilith]] will settle  
 And find a resting place for herself.
 
 ## v15

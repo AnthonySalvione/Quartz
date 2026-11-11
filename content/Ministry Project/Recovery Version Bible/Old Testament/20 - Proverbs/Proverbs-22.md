@@ -36,7 +36,7 @@ And the borrower is servant to the lender.
 ## v8
 
 He who sows injustice will reap iniquity,  
-And the rod of his wrath will fail.
+And the rod of his wrath will [[Proverbs-22.fn#Footnote 8.1 — fail|fail]].
 
 ## v9
 
@@ -95,7 +95,7 @@ I have made them known to you today, even to you.
 
 ## v20
 
-Have I not written to you excellent things  
+Have I not written to you [[Proverbs-22.fn#Footnote 20.1 — excellent|excellent]] things  
 Of counsels and knowledge,
 
 ## v21

@@ -4,7 +4,7 @@ Then the word of Jehovah came to me, saying,
 
 ## v2
 
-Son of man, what becomes of the wood of the vine in comparison to every other kind of wood, of the pruned branch in comparison to that which was on the trees of the forest?
+Son of man, what becomes of the wood of the [[Ezekiel-15.fn#Footnote 2.1 — vine|vine]] in comparison to every other kind of wood, of the pruned branch in comparison to that which was on the trees of the forest?
 
 ## v3
 

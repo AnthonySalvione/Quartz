@@ -40,7 +40,7 @@ But the folly of fools is deceit.
 
 ## v9
 
-A trespass offering mocks fools,  
+[[Proverbs-14.fn#Footnote 9.1 — A|A]] trespass offering mocks fools,  
 But among the upright there is good will.
 
 ## v10

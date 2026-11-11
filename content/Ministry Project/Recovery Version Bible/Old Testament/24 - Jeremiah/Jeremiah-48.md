@@ -1,6 +1,6 @@
 ## v1
 
-Concerning Moab: / Thus says Jehovah of hosts, the God of Israel: /  
+Concerning [[Jeremiah-48.fn#Footnote 1.1 — Moab|Moab]]: / Thus says Jehovah of hosts, the God of Israel: /  
 Woe to Nebo, for it is destroyed; /  
 Kiriathaim is put to shame; it is captured; /  
 The lofty retreat is put to shame and dismayed.
@@ -10,7 +10,7 @@ The lofty retreat is put to shame and dismayed.
 The praise of Moab is no more; /  
 In Heshbon they have devised evil against her, saying: /  
 Come and let us cut her off from being a nation. /  
-You also, O Madmen, will be brought to silence; /  
+You also, O [[Jeremiah-48.fn#Footnote 2.1 — Madmen|Madmen]], will be brought to silence; /  
 A sword will go after you.
 
 ## v3
@@ -39,7 +39,7 @@ And be like a shrub in the wilderness.
 
 For because of your trust in your works and in your treasures, /  
 You also will be captured; /  
-And Chemosh will go forth into exile; /  
+And [[Jeremiah-48.fn#Footnote 7.1 — Chemosh|Chemosh]] will go forth into exile; /  
 His priests and his princes together.
 
 ## v8
@@ -59,7 +59,7 @@ Without inhabitant in them.
 
 ## v10
 
-Cursed is he who does the work of Jehovah negligently, /  
+Cursed is he who does the work of Jehovah [[Jeremiah-48.fn#Footnote 10.1 — negligently|negligently]], /  
 And cursed is he who keeps his sword from blood.
 
 ## v11
@@ -77,7 +77,7 @@ Therefore indeed, days are coming, declares Jehovah, /
 When I will send pourers to him, /  
 And they will pour him out /  
 And empty his vessels /  
-And shatter his jars.
+And shatter [[Jeremiah-48.fn#Footnote 12.1 — his|his]] jars.
 
 ## v13
 
@@ -258,7 +258,7 @@ And spread its wings against Moab.
 
 ## v41
 
-Kerioth is captured, /  
+[[Jeremiah-48.fn#Footnote 41.1 — Kerioth|Kerioth]] is captured, /  
 And the strongholds are seized, /  
 And the heart of the mighty men of Moab in that day /  
 Will be like the heart of a woman in labor.
@@ -301,6 +301,6 @@ And your daughters have gone into captivity.
 
 ## v47
 
-But I will turn again the captivity of Moab /  
+[[Jeremiah-48.fn#Footnote 47.1 — But|But]] I will turn again the captivity of Moab /  
 In the last days, declares Jehovah. /  
 Thus far is the judgment of Moab.

@@ -15,7 +15,7 @@ chapter_num: 13
 
 **Verse:** [[Exodus-13#v2|Exodus 13:2]]
 
-The purpose of the exodus of God’s people from the world is to be sanctified to the Lord. Sanctification is based on redemption. The Lord required only the firstborn ([[Exodus-13#v2|vv. 2]], [[Exodus-13#v12|12-13]]) to be sanctified because they were the redeemed ones ([[Exodus-12#v12|12:12-13]]). According to the divine requirement, all who are redeemed must also be sanctified. Redemption is for the security of God’s people; sanctification is for the fulfillment of God’s purpose. See [[Romans-06#v19|Rom. 6:19]], 22 and note 192.
+The purpose of the exodus of God’s people from the world is to be sanctified to the Lord. Sanctification is based on redemption. The Lord required only the firstborn ([[Exodus-13#v2|vv. 2]], [[Exodus-13#v12|12-13]]) to be sanctified because they were the redeemed ones ([[Exodus-12#v12|12:12-13]]). According to the divine requirement, all who are redeemed must also be sanctified. Redemption is for the security of God’s people; sanctification is for the fulfillment of God’s purpose. See [[Romans-06#v19|Rom. 6:19]], [[Romans-06#v22|22]] and [[Romans-06.fn#Footnote 19.2 — sanctification|note 19²]].
 
 ## Footnotes for verse 3
 
@@ -23,7 +23,7 @@ The purpose of the exodus of God’s people from the world is to be sanctified t
 
 **Verse:** [[Exodus-13#v3|Exodus 13:3]]
 
-See note 33¹ in [[Exodus-12|Exodus 12]].
+See [note 33¹](<Exodus-12.fn#Footnote 33.1 — urged>) in [[Exodus-12|Exodus 12]].
 
 ## Footnotes for verse 4
 
@@ -31,7 +31,7 @@ See note 33¹ in [[Exodus-12|Exodus 12]].
 
 **Verse:** [[Exodus-13#v4|Exodus 13:4]]
 
-Meaning sprouting, budding and denoting a new beginning of life. This is required for God’s people to be sanctified to Him for His satisfaction. In this new beginning there must be no leaven ([[Exodus-13#v6|vv. 6-7]]; see note 152 in [[Exodus-12|Exodus 12]]).
+Meaning sprouting, budding and denoting a new beginning of life. This is required for God’s people to be sanctified to Him for His satisfaction. In this new beginning there must be no leaven ([[Exodus-13#v6|vv. 6-7]]; see [note 15²](<Exodus-12.fn#Footnote 15.2 — unleavened>) in [[Exodus-12|Exodus 12]]).
 
 ## Footnotes for verse 9
 
@@ -77,7 +77,7 @@ Because of the possibility of war with the Philistines, God did not lead the chi
 
 **Verse:** [[Exodus-13#v19|Exodus 13:19]]
 
-A bone signifies an unbreakable life, a life in resurrection ([[Genesis-02#v21|Gen. 2:21]] and note 2; [[John-19#v33|John 19:33]], [[John-19#v36|36]]). Thus, the bringing of Joseph’s bones out of Egypt into the good land signifies resurrection and indicates that those who share in the kingdom of God will no longer be in the natural life, signified by flesh and blood, but in the resurrection life, signified by Joseph’s bones ([[1 Corinthians-15#v50|1 Cor. 15:50]]). In the eyes of God all the children of Israel had been dead and buried in Egypt (see note 61 in [[Exodus-01|Exodus 1]]). The exodus from Egypt, therefore, was actually a resurrection. The exodus from the world, the genuine sanctification to the Lord ([[Exodus-13#v2|v. 2]]), and a new beginning of a sinless life ([[Exodus-13#v4|vv. 4-7]]) can be accomplished only by the resurrection life.
+A bone signifies an unbreakable life, a life in resurrection ([[Genesis-02#v21|Gen. 2:21]] and [note 2](<Genesis-02.fn#Footnote 21.2 — ribs>); [[John-19#v33|John 19:33]], [[John-19#v36|36]]). Thus, the bringing of Joseph’s bones out of Egypt into the good land signifies resurrection and indicates that those who share in the kingdom of God will no longer be in the natural life, signified by flesh and blood, but in the resurrection life, signified by Joseph’s bones ([[1 Corinthians-15#v50|1 Cor. 15:50]]). In the eyes of God all the children of Israel had been dead and buried in Egypt (see [note 6¹](<Exodus-01.fn#Footnote 6.1 — died>) in [[Exodus-01|Exodus 1]]). The exodus from Egypt, therefore, was actually a resurrection. The exodus from the world, the genuine sanctification to the Lord ([[Exodus-13#v2|v. 2]]), and a new beginning of a sinless life ([[Exodus-13#v4|vv. 4-7]]) can be accomplished only by the resurrection life.
 
 ## Footnotes for verse 21
 
@@ -85,4 +85,4 @@ A bone signifies an unbreakable life, a life in resurrection ([[Genesis-02#v21|G
 
 **Verse:** [[Exodus-13#v21|Exodus 13:21]]
 
-In typology the cloud signifies the Spirit ([[1 Corinthians-10#v1|1 Cor. 10:1-2]] and notes 14 and 23), and the fire, for enlightening, signifies the Word of God ([[Psalm-119#v105|Psa. 119:105]]). Hence, the instant, living leading from God comes through either the Spirit or the Word. The two pillars symbolize God Himself, for He is both the Spirit and the Word ([[John-04#v24|John 4:24]]; [[John-01#v1|1:1]]). Furthermore, the Word is also the Spirit ([[John-06#v63|John 6:63]]; [[Ephesians-06#v17|Eph. 6:17]]). Thus, God, the Word, and the Spirit are one to lead and guide us continually, whether by day or by night. In the Christian life there is no difference between day and night, for the light from the pillar of fire causes the night to become day.
+In typology the cloud signifies the Spirit ([[1 Corinthians-10#v1|1 Cor. 10:1-2]] and [[1 Corinthians-10.fn#Footnote 1.4 — cloud|notes 1⁴]] and [[1 Corinthians-10.fn#Footnote 2.3 — in|2³]]), and the fire, for enlightening, signifies the Word of God ([[Psalm-119#v105|Psa. 119:105]]). Hence, the instant, living leading from God comes through either the Spirit or the Word. The two pillars symbolize God Himself, for He is both the Spirit and the Word ([[John-04#v24|John 4:24]]; [[John-01#v1|1:1]]). Furthermore, the Word is also the Spirit ([[John-06#v63|John 6:63]]; [[Ephesians-06#v17|Eph. 6:17]]). Thus, God, the Word, and the Spirit are one to lead and guide us continually, whether by day or by night. In the Christian life there is no difference between day and night, for the light from the pillar of fire causes the night to become day.

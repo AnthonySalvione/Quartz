@@ -15,7 +15,7 @@ chapter_num: 3
 
 **Verse:** [[2 Chronicles-03#v1|2 Chronicles 3:1]]
 
-God’s choosing of Jerusalem as His worship center began with His word to Abraham in [[Genesis-22#v2|Gen. 22:2]] (see note 2 there) and is clearly seen in [[Deuteronomy-12#v5|Deut. 12:5-18]] (see notes there). Hence, Solomon did not need to select a place in which to build the temple, for the place had already been selected by God and made known to David ([[2 Samuel-24#v18|2 Sam. 24:18-25]]).
+God’s choosing of Jerusalem as His worship center began with His word to Abraham in [[Genesis-22#v2|Gen. 22:2]] (see [[Genesis-22.fn#Footnote 2.2 — Moriah|note 2]] there) and is clearly seen in [[Deuteronomy-12#v5|Deut. 12:5-18]] (see notes there). Hence, Solomon did not need to select a place in which to build the temple, for the place had already been selected by God and made known to David ([[2 Samuel-24#v18|2 Sam. 24:18-25]]).
 
 ## Footnotes for verse 3
 
@@ -39,7 +39,7 @@ Referring to the Holy Place.
 
 **Verse:** [[2 Chronicles-03#v15|2 Chronicles 3:15]]
 
-See note 151 in [[1 Kings-07|1 Kings 7]].
+See [note 15¹](<1 Kings-07.fn#Footnote 15.1 — pillars>) in [[1 Kings-07|1 Kings 7]].
 
 ## Footnotes for verse 17
 

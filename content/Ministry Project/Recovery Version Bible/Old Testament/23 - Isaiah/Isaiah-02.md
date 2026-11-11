@@ -5,7 +5,7 @@ The word which Isaiah the son of Amoz saw concerning Judah and Jerusalem.
 ## v2
 
 But in the last days  
-The mountain of the house of Jehovah will be established  
+The [[Isaiah-02.fn#Footnote 2.1 — mountain|mountain]] of the house of Jehovah will be established  
 On the top of the mountains;  
 And it will be lifted up above the hills;  
 And all the nations will stream to it,
@@ -15,14 +15,14 @@ And all the nations will stream to it,
 And many peoples will come and say,  
 Come and let us go up to the mountain of Jehovah,  
 To the house of the God of Jacob,  
-That He may instruct us in His ways,  
+That He may instruct us [[Isaiah-02.fn#Footnote 3.1 — in|in]] His ways,  
 And that we may walk in His paths.  
-For from Zion will go forth instruction,  
+For from Zion will go forth [[Isaiah-02.fn#Footnote 3.2 — instruction|instruction]],  
 And the word of Jehovah from Jerusalem;
 
 ## v4
 
-And He will judge between the nations,  
+And He will [[Isaiah-02.fn#Footnote 4.1 — judge|judge]] between the nations,  
 And will decide matters for many peoples.  
 And they will beat their swords into plowshares,  
 And their spears into pruning knives;  
@@ -43,7 +43,7 @@ And they clasp hands with the children of foreigners.
 
 ## v7
 
-Their land is full of silver and gold,  
+Their land is full of [[Isaiah-02.fn#Footnote 7.1 — silver|silver]] and gold,  
 And their treasures are limitless;  
 Their land is also full of horses,  
 And their chariots are limitless.
@@ -69,27 +69,27 @@ And from the splendor of His majesty.
 
 ## v11
 
-Man’s haughty look will be abased,  
+Man’s [[Isaiah-02.fn#Footnote 11.1 — haughty|haughty]] look will be abased,  
 And the loftiness of men will be humbled;  
 But Jehovah alone will be exalted  
 In that day.
 
 ## v12
 
-For Jehovah of hosts will have a day  
+For Jehovah of hosts will have a [[Isaiah-02.fn#Footnote 12.1 — day|day]]  
 Over everything proud and lofty,  
 And over everything lifted up that it may be abased;
 
 ## v13
 
-Over all the cedars of Lebanon,  
+Over all the [[Isaiah-02.fn#Footnote 13.1 — cedars|cedars]] of Lebanon,  
 Which are lofty and lifted up,  
-And over all the oaks of Bashan;
+And over all the [[Isaiah-02.fn#Footnote 13.1 — cedars|oaks]] of Bashan;
 
 ## v14
 
-Over all the lofty mountains,  
-And over all the hills that are lifted up;
+Over all the [[Isaiah-02.fn#Footnote 14.1 — lofty|lofty]] mountains,  
+And over all the [[Isaiah-02.fn#Footnote 14.1 — lofty|hills]] that are lifted up;
 
 ## v15
 
@@ -99,7 +99,7 @@ And over every fortified wall;
 ## v16
 
 Over all the ships of Tarshish,  
-And over all their pleasant artifacts.
+And over all their pleasant [[Isaiah-02.fn#Footnote 16.1 — artifacts|artifacts]].
 
 ## v17
 

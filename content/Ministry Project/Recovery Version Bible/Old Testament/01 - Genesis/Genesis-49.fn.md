@@ -15,7 +15,7 @@ chapter_num: 49
 
 **Verse:** [[Genesis-49#v1|Genesis 49:1]]
 
-Jacob’s prophesying with blessing ([[Genesis-49#v28|v. 28]]) concerning his twelve sons is a further manifestation of his maturity in the divine life. As a God-constituted person, Jacob was saturated with God; thus, his speaking was God’s speaking and his word was God’s word (cf. [[1 Corinthians-07#v25|1 Cor. 7:25]], 40 and notes). 
+Jacob’s prophesying with blessing ([[Genesis-49#v28|v. 28]]) concerning his twelve sons is a further manifestation of his maturity in the divine life. As a God-constituted person, Jacob was saturated with God; thus, his speaking was God’s speaking and his word was God’s word (cf. [[1 Corinthians-07#v25|1 Cor. 7:25]], [[1 Corinthians-07#v40|40]] and notes). 
 
 Jacob’s twelve sons eventually became the twelve tribes of the house of Israel, a type of the church as God’s house, composed of all the believers ([[1 Timothy-03#v15|1 Tim. 3:15]]; [[Hebrews-03#v5|Heb. 3:5-6]]). Thus, whatever was spoken prophetically by Jacob concerning his sons was a type, a picture, of the church and should be applied to the church and to the spiritual experience of the believers, as well as to the sons of Israel (cf. [[1 Corinthians-10#v6|1 Cor. 10:6]]).
 
@@ -25,7 +25,7 @@ Jacob’s twelve sons eventually became the twelve tribes of the house of Israel
 
 **Verse:** [[Genesis-49#v4|Genesis 49:4]]
 
-Although Reuben had the preeminence of the birthright, because of his defilement he lost the birthright (cf. [[Ephesians-05#v5|Eph. 5:5]]; see note 23 in [[Matthew-01|Matt. 1]]) and became in danger of dying or of being greatly decreased ([[Deuteronomy-33#v6|Deut. 33:6]]). This should be a solemn warning to us.
+Although Reuben had the preeminence of the birthright, because of his defilement he lost the birthright (cf. [[Ephesians-05#v5|Eph. 5:5]]; see [note 2³](<Matthew-01.fn#Footnote 2.3 — Judah>) in [[Matthew-01|Matt. 1]]) and became in danger of dying or of being greatly decreased ([[Deuteronomy-33#v6|Deut. 33:6]]). This should be a solemn warning to us.
 
 ## Footnotes for verse 5
 
@@ -41,7 +41,7 @@ Because of their cruelty ([[Genesis-34#v25|34:25-30]]) Simeon and Levi received 
 
 **Verse:** [[Genesis-49#v7|Genesis 49:7]]
 
-Cf. note 8¹ in [[Numbers-35|Num. 35]].
+Cf. [note 8¹](<Numbers-35.fn#Footnote 8.1 — cities>) in [[Numbers-35|Num. 35]].
 
 ## Footnotes for verse 8
 
@@ -57,7 +57,7 @@ Cf. note 8¹ in [[Numbers-35|Num. 35]].
 
 **Verse:** [[Genesis-49#v9|Genesis 49:9]]
 
-Judah, likened poetically to a young lion here, is a type of Christ as the ultimate Overcomer, the fighting, victorious Lion ([[Revelation-05#v5|Rev. 5:5]] and note 1).
+Judah, likened poetically to a young lion here, is a type of Christ as the ultimate Overcomer, the fighting, victorious Lion ([[Revelation-05#v5|Rev. 5:5]] and [note 1](<Revelation-05.fn#Footnote 5.1 — Lion>)).
 
 ### Footnote 9.2 — up
 
@@ -115,7 +115,7 @@ A foal or a donkey is an animal used for transportation (cf. [[Matthew-21#v5|Mat
 
 **Verse:** [[Genesis-49#v11|Genesis 49:11]]
 
-Garments signify our behavior in our daily living, and wine signifies life ([[John-02#v3|John 2:3]]). Hence, to wash our garments in wine and our robe in the blood of grapes signifies to soak our behavior, our daily walk, in the enjoyment of the riches of Christ’s life ([[Matthew-09#v17|Matt. 9:17]] and note 1).
+Garments signify our behavior in our daily living, and wine signifies life ([[John-02#v3|John 2:3]]). Hence, to wash our garments in wine and our robe in the blood of grapes signifies to soak our behavior, our daily walk, in the enjoyment of the riches of Christ’s life ([[Matthew-09#v17|Matt. 9:17]] and [note 1](<Matthew-09.fn#Footnote 17.1 — new>)).
 
 ## Footnotes for verse 12
 
@@ -131,7 +131,7 @@ Or, Red. The eyes being red with wine and the teeth being white with milk signif
 
 **Verse:** [[Genesis-49#v13|Genesis 49:13]]
 
-The prophecy concerning Judah portrays the contents of the gospel (see note 81). Jacob’s prophecy concerning Zebulun is a picture of the preaching of the gospel. Zebulun was part of Galilee, the place where the Lord Jesus began His ministry of the preaching of the gospel of the kingdom ([[Matthew-04#v12|Matt. 4:12-23]]; [[Matthew-28#v7|28:7]], [[Matthew-28#v10|10]], [[Matthew-28#v16|16-20]]). It was a shore for ships, a seaport. In ancient times the ships sailed from the seaport with their cargoes by the power of the wind. This portrays the sending out of the glad tidings of the gospel by the Galilean preachers under the power of the Holy Spirit as the heavenly wind ([[Acts-01#v8|Acts 1:8]]; [[Acts-02#v2|2:2-41]]). See note 273 in [[Psalm-68|Psa. 68]].
+The prophecy concerning Judah portrays the contents of the gospel (see [note 8¹](<Genesis-49.fn#Footnote 8.1 — Judah>)). Jacob’s prophecy concerning Zebulun is a picture of the preaching of the gospel. Zebulun was part of Galilee, the place where the Lord Jesus began His ministry of the preaching of the gospel of the kingdom ([[Matthew-04#v12|Matt. 4:12-23]]; [[Matthew-28#v7|28:7]], [[Matthew-28#v10|10]], [[Matthew-28#v16|16-20]]). It was a shore for ships, a seaport. In ancient times the ships sailed from the seaport with their cargoes by the power of the wind. This portrays the sending out of the glad tidings of the gospel by the Galilean preachers under the power of the Holy Spirit as the heavenly wind ([[Acts-01#v8|Acts 1:8]]; [[Acts-02#v2|2:2-41]]). See [note 27³](<Psalm-68.fn#Footnote 27.3 — Zebulun>) in [[Psalm-68|Psa. 68]].
 
 ### Footnote 13.2 — Sidon
 
@@ -145,7 +145,7 @@ The mentioning of Sidon, a Gentile seaport, indicates that the gospel would reac
 
 **Verse:** [[Genesis-49#v14|Genesis 49:14]]
 
-The strong donkey signifies the natural man; to couch is to rest in satisfaction; and the sheepfolds signify the denominations and various religions based on the law (cf. [[John-10#v1|John 10:1-9]], 16 and notes). The poetry in this verse portrays the genuine church life as the issue of the preaching of the gospel, in which our natural man rests in satisfaction between (outside) the religious sheepfolds. 
+The strong donkey signifies the natural man; to couch is to rest in satisfaction; and the sheepfolds signify the denominations and various religions based on the law (cf. [[John-10#v1|John 10:1-9]], [[John-10#v16|16]] and notes). The poetry in this verse portrays the genuine church life as the issue of the preaching of the gospel, in which our natural man rests in satisfaction between (outside) the religious sheepfolds. 
 
 In Moses’ blessing in [[Deuteronomy-33#v18|Deut. 33:18b]], Issachar was to rejoice for his tents. There the tents signify the local churches as the expressions of the unique Body of Christ ([[Ephesians-04#v4|Eph. 4:4a]]), in which the believers rejoice in the enjoyment of Christ’s riches ([[Philippians-04#v4|Phil. 4:4]]; [[1 Thessalonians-05#v16|1 Thes. 5:16]]).
 
@@ -155,7 +155,7 @@ In Moses’ blessing in [[Deuteronomy-33#v18|Deut. 33:18b]], Issachar was to rej
 
 **Verse:** [[Genesis-49#v15|Genesis 49:15]]
 
-The land typifies Christ as the green pasture ([[John-10#v9|John 10:9]] and note 2) enjoyed by the believers in the church life.
+The land typifies Christ as the green pasture ([[John-10#v9|John 10:9]] and [note 2](<John-10.fn#Footnote 9.2 — pasture>)) enjoyed by the believers in the church life.
 
 ### Footnote 15.2 — task-worker
 
@@ -167,7 +167,7 @@ A task-worker does work assigned by his master. This signifies the members of th
 
 **Verse:** [[Genesis-49#v15|Genesis 49:15]]
 
-The second group of Jacob’s sons portray the gospel, signified by Judah and fulfilled in the four Gospels; the preaching of the gospel, signified by Zebulun and fulfilled in Acts; and the church life, signified by Issachar and fulfilled in the remaining books of the New Testament. The consummation of Jacob’s prophecy concerning Judah, Zebulun, and Issachar is seen in [[Deuteronomy-33#v19|Deut. 33:19]], which says that the peoples, the nations, will be called to the mountain, signifying the kingdom of God ([[Daniel-02#v35|Dan. 2:35]]), where they will offer sacrifices of righteousness and enjoy the abundance of the seas (the church composed mainly of Gentile believers—see note 11 in [[Matthew-13|Matt. 13]]) and the hidden treasures of the sand (the kingdom hidden in the earth—[[Matthew-13#v44|Matt. 13:44]]). This shows that the gospel, the preaching of the gospel, and the church life as the issue of the gospel result in the enjoyment of the church life and the kingdom life (cf. [[Romans-14#v17|Rom. 14:17]] and note 1).
+The second group of Jacob’s sons portray the gospel, signified by Judah and fulfilled in the four Gospels; the preaching of the gospel, signified by Zebulun and fulfilled in Acts; and the church life, signified by Issachar and fulfilled in the remaining books of the New Testament. The consummation of Jacob’s prophecy concerning Judah, Zebulun, and Issachar is seen in [[Deuteronomy-33#v19|Deut. 33:19]], which says that the peoples, the nations, will be called to the mountain, signifying the kingdom of God ([[Daniel-02#v35|Dan. 2:35]]), where they will offer sacrifices of righteousness and enjoy the abundance of the seas (the church composed mainly of Gentile believers—see [note 1¹](<Matthew-13.fn#Footnote 1.1 — On>) in [[Matthew-13|Matt. 13]]) and the hidden treasures of the sand (the kingdom hidden in the earth—[[Matthew-13#v44|Matt. 13:44]]). This shows that the gospel, the preaching of the gospel, and the church life as the issue of the gospel result in the enjoyment of the church life and the kingdom life (cf. [[Romans-14#v17|Rom. 14:17]] and [note 1](<Romans-14.fn#Footnote 17.1 — kingdom>)).
 
 ## Footnotes for verse 16
 
@@ -175,7 +175,7 @@ The second group of Jacob’s sons portray the gospel, signified by Judah and fu
 
 **Verse:** [[Genesis-49#v16|Genesis 49:16]]
 
-The Hebrew word also means scepters. This prophecy with blessing indicates that Jacob was concerned that Dan would be cut off because of his apostasy ([[Genesis-49#v17|v. 17]]; [[Deuteronomy-13#v5|Deut. 13:5-18]]). Jacob’s word here means that Dan not only would remain as a tribe but also would be a scepter, an authority. In [[1 Chronicles-02|1 Chron. 2—9]] and in [[Revelation-07|Rev. 7]] Dan is omitted in the record of God’s holy people (cf. [[Revelation-03#v5|Rev. 3:5]]), but he will still be a tribe in the millennium because of his father’s blessing ([[Ezekiel-48#v1|Ezek. 48:1]]). See note 61, par. 2, in [[Revelation-07|Rev. 7]].
+The Hebrew word also means scepters. This prophecy with blessing indicates that Jacob was concerned that Dan would be cut off because of his apostasy ([[Genesis-49#v17|v. 17]]; [[Deuteronomy-13#v5|Deut. 13:5-18]]). Jacob’s word here means that Dan not only would remain as a tribe but also would be a scepter, an authority. In [[1 Chronicles-02|1 Chron. 2—9]] and in [[Revelation-07|Rev. 7]] Dan is omitted in the record of God’s holy people (cf. [[Revelation-03#v5|Rev. 3:5]]), but he will still be a tribe in the millennium because of his father’s blessing ([[Ezekiel-48#v1|Ezek. 48:1]]). See [note 6¹](<Revelation-07.fn#Footnote 6.1 — Manasseh>), par. 2, in [[Revelation-07|Rev. 7]].
 
 ## Footnotes for verse 17
 
@@ -183,7 +183,7 @@ The Hebrew word also means scepters. This prophecy with blessing indicates that 
 
 **Verse:** [[Genesis-49#v17|Genesis 49:17]]
 
-In [[Deuteronomy-33#v22|Deut. 33:22]] Dan is likened to a young lion leaping from Bashan. As a young lion, Dan fought in order to gain more land ([[Joshua-19#v47|Josh. 19:47]]; [[Judges-18#v27|Judg. 18:27-29]]), the land signifying Christ (see note 71 in [[Deuteronomy-08|Deut. 8]]). After his success in his victory Dan became a serpent, a viper, acting individualistically and independently in his pride to set up an idol and a divisive center of worship and to ordain a hired priest in the city of Dan during the time that the house of God was in Shiloh ([[Judges-18#v30|Judg. 18:30-31]]; cf. [[Deuteronomy-12#v5|Deut. 12:5]] and note). As a serpent Dan bit the horse’s heels so that its rider fell backward, signifying that the apostasy brought in by Dan became a great stumbling block to the nation of Israel. Throughout the history of the church many spiritual people have followed Dan’s example, thereby frustrating God’s people from going on in His ordained way. A further fulfillment of Jacob’s prophecy concerning Dan is seen in [[1 Kings-12#v26|1 Kings 12:26-31]] (see notes there).
+In [[Deuteronomy-33#v22|Deut. 33:22]] Dan is likened to a young lion leaping from Bashan. As a young lion, Dan fought in order to gain more land ([[Joshua-19#v47|Josh. 19:47]]; [[Judges-18#v27|Judg. 18:27-29]]), the land signifying Christ (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]). After his success in his victory Dan became a serpent, a viper, acting individualistically and independently in his pride to set up an idol and a divisive center of worship and to ordain a hired priest in the city of Dan during the time that the house of God was in Shiloh ([[Judges-18#v30|Judg. 18:30-31]]; cf. [[Deuteronomy-12#v5|Deut. 12:5]] and [note](<Deuteronomy-12.fn#Footnote 5.1 — choose>)). As a serpent Dan bit the horse’s heels so that its rider fell backward, signifying that the apostasy brought in by Dan became a great stumbling block to the nation of Israel. Throughout the history of the church many spiritual people have followed Dan’s example, thereby frustrating God’s people from going on in His ordained way. A further fulfillment of Jacob’s prophecy concerning Dan is seen in [[1 Kings-12#v26|1 Kings 12:26-31]] (see notes there).
 
 ## Footnotes for verse 18
 
@@ -221,7 +221,7 @@ Lit., fat. Both Jacob’s prophecy in this verse and Moses’ blessing in [[Deut
 
 **Verse:** [[Genesis-49#v21|Genesis 49:21]]
 
-The hind typifies the resurrected Christ (see title of [[Psalm-22|Psa. 22]] and note). The beautiful words are uttered by Christ and by those who experience Christ in His resurrection ([[Luke-04#v22|Luke 4:22]]; [[John-07#v46|John 7:46]]; [[Matthew-28#v16|Matt. 28:16]], [[Matthew-28#v18|18-20]]; [[Acts-02#v32|Acts 2:32-36]]). According to [[Deuteronomy-33#v23|Deut. 33:23]], Naphtali is satisfied with favor (the Old Testament equivalent of New Testament grace) and is full of the blessing of Jehovah (referring to the spiritual blessings in the heavenlies—[[Ephesians-01#v3|Eph. 1:3]]). Furthermore, Naphtali will possess the sea (the Gentile world—see note 11 in [[Matthew-13|Matt. 13]]) and the south (the land of Israel), signifying that those who experience the resurrected Christ will possess the whole earth through their proclaiming of Christ ([[Matthew-28#v19|Matt. 28:19]]; [[Acts-01#v8|Acts 1:8]]; [[Romans-15#v19|Rom. 15:19]]). See note 274 in [[Psalm-68|Psa. 68]].
+The hind typifies the resurrected Christ (see title of [[Psalm-22|Psa. 22]] and note). The beautiful words are uttered by Christ and by those who experience Christ in His resurrection ([[Luke-04#v22|Luke 4:22]]; [[John-07#v46|John 7:46]]; [[Matthew-28#v16|Matt. 28:16]], [[Matthew-28#v18|18-20]]; [[Acts-02#v32|Acts 2:32-36]]). According to [[Deuteronomy-33#v23|Deut. 33:23]], Naphtali is satisfied with favor (the Old Testament equivalent of New Testament grace) and is full of the blessing of Jehovah (referring to the spiritual blessings in the heavenlies—[[Ephesians-01#v3|Eph. 1:3]]). Furthermore, Naphtali will possess the sea (the Gentile world—see [note 1¹](<Matthew-13.fn#Footnote 1.1 — On>) in [[Matthew-13|Matt. 13]]) and the south (the land of Israel), signifying that those who experience the resurrected Christ will possess the whole earth through their proclaiming of Christ ([[Matthew-28#v19|Matt. 28:19]]; [[Acts-01#v8|Acts 1:8]]; [[Romans-15#v19|Rom. 15:19]]). See [note 27⁴](<Psalm-68.fn#Footnote 27.4 — Naphtali>) in [[Psalm-68|Psa. 68]].
 
 ## Footnotes for verse 22
 
@@ -245,13 +245,13 @@ Or, strong. [[Genesis-49#v23|Verses 23-24]] refer to Joseph’s suffering at the
 
 **Verse:** [[Genesis-49#v25|Genesis 49:25]]
 
-Heb. Shaddai. See note 12 in [[Genesis-17|Genesis 17]].
+Heb. Shaddai. See [note 1²](<Genesis-17.fn#Footnote 1.2 — All-sufficient>) in [[Genesis-17|Genesis 17]].
 
 ### Footnote 25.2 — bless
 
 **Verse:** [[Genesis-49#v25|Genesis 49:25]]
 
-The blessings bestowed on Joseph, as seen in [[Genesis-49#v25|vv. 25-26]] and [[Deuteronomy-33#v13|Deut. 33:13-16]], encompass all time, from ancient times to eternity ([[Genesis-49#v26|v. 26]]; [[Deuteronomy-33#v15|Deut. 33:15]]), and all space, from heaven to earth, including the deep under the earth ([[Genesis-49#v25|v. 25b]]; [[Deuteronomy-33#v13|Deut. 33:13-14]], [[Deuteronomy-33#v16|16a]]). Time plus space equals the universe. As the one universally blessed by his father, Joseph typifies Christ, the appointed Heir of all things ([[Hebrews-01#v2|Heb. 1:2]]; [[Colossians-01#v16|Col. 1:16]]), and His believers, Christ’s partners who participate in His inheritance ([[1 Corinthians-03#v21|1 Cor. 3:21-22]]; [[Romans-08#v17|Rom. 8:17]]; [[Hebrews-01#v9|Heb. 1:9]]; [[Hebrews-03#v14|3:14]]; [[Hebrews-01#v14|1:14]] and note). The universal blessing on Joseph will consummate in the new heaven and new earth, in which everything will be a blessing to Christ and His believers ([[Revelation-21#v1|Rev. 21:1]], [[Revelation-21#v4|4-5]]; [[Revelation-22#v3|22:3]], [[Revelation-22#v5|5]]).
+The blessings bestowed on Joseph, as seen in [[Genesis-49#v25|vv. 25-26]] and [[Deuteronomy-33#v13|Deut. 33:13-16]], encompass all time, from ancient times to eternity ([[Genesis-49#v26|v. 26]]; [[Deuteronomy-33#v15|Deut. 33:15]]), and all space, from heaven to earth, including the deep under the earth ([[Genesis-49#v25|v. 25b]]; [[Deuteronomy-33#v13|Deut. 33:13-14]], [[Deuteronomy-33#v16|16a]]). Time plus space equals the universe. As the one universally blessed by his father, Joseph typifies Christ, the appointed Heir of all things ([[Hebrews-01#v2|Heb. 1:2]]; [[Colossians-01#v16|Col. 1:16]]), and His believers, Christ’s partners who participate in His inheritance ([[1 Corinthians-03#v21|1 Cor. 3:21-22]]; [[Romans-08#v17|Rom. 8:17]]; [[Hebrews-01#v9|Heb. 1:9]]; [[Hebrews-03#v14|3:14]]; [[Hebrews-01#v14|1:14]] and [note](<Hebrews-01.fn#Footnote 14.1 — those>)). The universal blessing on Joseph will consummate in the new heaven and new earth, in which everything will be a blessing to Christ and His believers ([[Revelation-21#v1|Rev. 21:1]], [[Revelation-21#v4|4-5]]; [[Revelation-22#v3|22:3]], [[Revelation-22#v5|5]]).
 
 ## Footnotes for verse 26
 
@@ -259,7 +259,7 @@ The blessings bestowed on Joseph, as seen in [[Genesis-49#v25|vv. 25-26]] and [[
 
 **Verse:** [[Genesis-49#v26|Genesis 49:26]]
 
-Heb. nazir; translated Nazarite in [[Judges-13#v5|Judg. 13:5]], [[Judges-13#v7|7]]; [[Judges-16#v17|16:17]]. Here Joseph typifies Christ as the Nazarite, the One who was separated from the common people to live wholly for God (see note 22 in [[Numbers-06|Num. 6]]). The universal blessing is bestowed on the crown of the head of such a Nazarite (cf. [[Deuteronomy-33#v16|Deut. 33:16b]]).
+Heb. nazir; translated Nazarite in [[Judges-13#v5|Judg. 13:5]], [[Judges-13#v7|7]]; [[Judges-16#v17|16:17]]. Here Joseph typifies Christ as the Nazarite, the One who was separated from the common people to live wholly for God (see [note 2²](<Numbers-06.fn#Footnote 2.2 — Nazarite>) in [[Numbers-06|Num. 6]]). The universal blessing is bestowed on the crown of the head of such a Nazarite (cf. [[Deuteronomy-33#v16|Deut. 33:16b]]).
 
 ## Footnotes for verse 27
 
@@ -283,4 +283,4 @@ Moses’ blessing in [[Deuteronomy-33#v12|Deut. 33:12]] says that Benjamin will 
 
 **Verse:** [[Genesis-49#v29|Genesis 49:29]]
 
-See note 30¹ in [[Genesis-47|Genesis 47]].
+See [note 30¹](<Genesis-47.fn#Footnote 30.1 — lie>) in [[Genesis-47|Genesis 47]].

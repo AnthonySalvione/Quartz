@@ -4,7 +4,7 @@ At that time Merodach-baladan the son of Baladan, the king of Babylon, sent lett
 
 ## v2
 
-And Hezekiah was glad for them and showed them his treasury, the silver and the gold, and the spices and the fine oil, and his whole armory and everything which was found among his treasures; there was nothing in his house or in all his dominion that Hezekiah did not show them.
+And Hezekiah was glad for them and showed them [[Isaiah-39.fn#Footnote 2.1 — his|his]] treasury, the silver and the gold, and the spices and the fine oil, and his whole armory and everything which was found among his treasures; there was nothing in his house or in all his dominion that Hezekiah did not show them.
 
 ## v3
 
@@ -28,4 +28,4 @@ And they will take away some of your sons who will issue from you, whom you will
 
 ## v8
 
-And Hezekiah said to Isaiah, The word of Jehovah which you have spoken is good. He said moreover, Indeed there will be peace and truth in my days.
+And Hezekiah said to Isaiah, The word of Jehovah which you have spoken is good. He said moreover, Indeed there will be peace and truth in [[Isaiah-39.fn#Footnote 8.1 — my|my]] days.

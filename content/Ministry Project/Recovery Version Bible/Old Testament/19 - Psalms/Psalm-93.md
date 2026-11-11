@@ -1,8 +1,8 @@
 ## v1
 
-Jehovah reigns; He is clothed with majesty.  
+Jehovah [[Psalm-93.fn#Footnote 1.1 — reigns|reigns]]; He is clothed with majesty.  
 Jehovah is clothed, He has girded Himself, with strength.  
-Indeed the world has been established; it will not be moved.
+Indeed the world has been [[Psalm-93.fn#Footnote 1.2 — established|established]]; it will not be moved.
 
 ## v2
 

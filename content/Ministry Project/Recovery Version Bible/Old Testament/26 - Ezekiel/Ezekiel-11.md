@@ -24,7 +24,7 @@ You have multiplied your slain in this city, and you have filled its streets wit
 
 ## v7
 
-Therefore thus says the Lord Jehovah, Your slain whom you have put in the midst of the city, they will be the flesh, and the city, the pot; but you I will bring forth from the midst of it.
+Therefore thus says the Lord Jehovah, Your slain whom you have put in the midst of the city, they will be the flesh, and the city, the pot; but you [[Ezekiel-11.fn#Footnote 7.1 — I|I]] will bring forth from the midst of it.
 
 ## v8
 
@@ -60,7 +60,7 @@ Son of man, your brothers, your brothers, your kinsmen and the whole house of Is
 
 ## v16
 
-Therefore say, Thus says the Lord Jehovah, Though I have sent them far away among the nations and though I have scattered them among the countries, I have been a sanctuary to them for a little while in the countries where they went.
+Therefore say, Thus says the Lord Jehovah, Though I have sent them far away among the nations and though I have scattered them among the countries, I have been a [[Ezekiel-11.fn#Footnote 16.1 — sanctuary|sanctuary]] to them for a little while in the countries where they went.
 
 ## v17
 
@@ -72,7 +72,7 @@ And they will come there and take away all its detestable things and all its abo
 
 ## v19
 
-And I will give them one heart, and a new spirit I will put within them; and I will take the heart of stone out of their flesh and give them a heart of flesh,
+[[Ezekiel-11.fn#Footnote 19.1 — And|And]] I will give them one heart, and a new spirit I will put within [[Ezekiel-11.fn#Footnote 19.2 — them|them]]; and I will take the heart of stone out of their flesh and give them a heart of flesh,
 
 ## v20
 
@@ -88,7 +88,7 @@ Then the cherubim lifted up their wings, and the wheels were next to them; and t
 
 ## v23
 
-And the glory of Jehovah went up from the midst of the city and stood upon the mountain which is east of the city.
+And the [[Ezekiel-11.fn#Footnote 23.1 — glory|glory]] of Jehovah went up from the midst of the city and stood upon the [[Ezekiel-11.fn#Footnote 23.2 — mountain|mountain]] which is east of the city.
 
 ## v24
 

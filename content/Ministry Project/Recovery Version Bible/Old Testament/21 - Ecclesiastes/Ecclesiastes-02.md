@@ -1,6 +1,6 @@
 ## v1
 
-I said in my heart, Come now, I will test out pleasure; so taste enjoyment.  
+I said in my heart, Come now, I will test out pleasure; so [[Ecclesiastes-02.fn#Footnote 1.1 — taste|taste]] enjoyment.  
 But indeed, this also is vanity.
 
 ## v2
@@ -36,7 +36,7 @@ Also I had great possessions of herds and flocks, more than all that had been be
 ## v8
 
 I gathered also silver and gold for myself and the treasures of kings and provinces;  
-I got for myself male singers and female singers and the delights of the children of men, concubine after concubine.
+I got for myself male singers and female singers and the delights of the children of men, [[Ecclesiastes-02.fn#Footnote 8.1 — concubine|concubine]] after concubine.
 
 ## v9
 
@@ -124,13 +124,13 @@ This also is vanity.
 
 ## v24
 
-There is nothing better for man than to eat and to drink  
+There is nothing better for man than to [[Ecclesiastes-02.fn#Footnote 24.1 — eat|eat]] and to drink  
 And to make his soul taste enjoyment in his labor.  
 This also I saw, that it is from the hand of God.
 
 ## v25
 
-For who can eat or who can enjoy without Him?
+For who can eat or who can enjoy [[Ecclesiastes-02.fn#Footnote 25.1 — without|without]] Him?
 
 ## v26
 

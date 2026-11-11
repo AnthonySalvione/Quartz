@@ -1,3 +1,6 @@
+> *A Psalm of David, when he was in the wilderness of Judah*
+
+---
 ## v1
 
 O God, You are my God; I seek You diligently.  
@@ -42,7 +45,7 @@ Your right hand upholds me.
 
 ## v9
 
-But those who seek my life to destroy it  
+But those who seek my [[Psalm-63.fn#Footnote 9.1 — life|life]] to destroy it  
 Will go into the lower parts of the earth;
 
 ## v10

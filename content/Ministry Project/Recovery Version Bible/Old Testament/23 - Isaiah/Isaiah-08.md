@@ -2,7 +2,7 @@
 
 Then Jehovah said to me,  
 Take a large tablet and write on it in plain letters,  
-For Maher-shalal-hash-baz;
+For [[Isaiah-08.fn#Footnote 1.1 — Maher-shalal-hash-baz|Maher-shalal-hash-baz]];
 
 ## v2
 
@@ -11,7 +11,7 @@ Urijah the priest and Zechariah the son of Jeberechiah.
 
 ## v3
 
-And I went to the prophetess, and she conceived and bore a son.  
+And I went to the prophetess, and she [[Isaiah-08.fn#Footnote 3.1 — conceived|conceived]] and bore a son.  
 And Jehovah said to me,  
 Call his name Maher-shalal-hash-baz,
 
@@ -29,13 +29,13 @@ Then Jehovah spoke further to me, saying,
 ## v6
 
 Because these people have rejected  
-The gently flowing waters of Shiloah, and exult  
+The gently flowing [[Isaiah-08.fn#Footnote 6.1 — waters|waters]] of Shiloah, and exult  
 In Rezin and the son of Remaliah,
 
 ## v7
 
 Now therefore the Lord is bringing up upon them  
-The mighty and abundant waters of the Euphrates,  
+The mighty and abundant [[Isaiah-08.fn#Footnote 7.1 — waters|waters]] of the Euphrates,  
 The king of Assyria and all his glory;  
 And it will overflow all its channels,  
 And go over all its banks.
@@ -45,7 +45,7 @@ And go over all its banks.
 It will sweep through Judah; it will overflow and rise  
 Until it reaches the neck;  
 And the spreading out of its wings  
-Will fill the breadth of Your land, O Immanuel.
+Will fill the breadth of Your [[Isaiah-08.fn#Footnote 8.1 — land|land]], O Immanuel.
 
 ## v9
 
@@ -79,21 +79,21 @@ And He shall be the One to hold in awe.
 
 ## v14
 
-Then He will become a sanctuary,  
-Yet a stone to strike against  
-And a rock of stumbling  
+Then He will become a [[Isaiah-08.fn#Footnote 14.1 — sanctuary|sanctuary]],  
+Yet a [[Isaiah-08.fn#Footnote 14.1 — sanctuary|stone]] to strike against  
+And a [[Isaiah-08.fn#Footnote 14.1 — sanctuary|rock]] of stumbling  
 To both houses of Israel,  
 A trap and a snare to the inhabitants of Jerusalem.
 
 ## v15
 
-And many will stumble at these,  
+And many will stumble [[Isaiah-08.fn#Footnote 15.1 — at|at]] these,  
 And will fall and be broken to pieces,  
 And will be snared and taken captive.
 
 ## v16
 
-Bind up the testimony;  
+Bind up the [[Isaiah-08.fn#Footnote 16.1 — testimony|testimony]];  
 Seal the instruction among my disciples;
 
 ## v17
@@ -104,7 +104,7 @@ And I will look eagerly for Him.
 
 ## v18
 
-See, I and the children whom Jehovah has given me  
+See, [[Isaiah-08.fn#Footnote 18.1 — I|I]] and the [[Isaiah-08.fn#Footnote 18.1 — I|children]] whom Jehovah has given me  
 Are for signs and wonders in Israel  
 From Jehovah of hosts,  
 Who abides on Mount Zion.

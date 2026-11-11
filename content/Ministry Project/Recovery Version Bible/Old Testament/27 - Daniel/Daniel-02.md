@@ -12,7 +12,7 @@ And the king said to them, I have dreamed a dream, and my spirit is troubled to 
 
 ## v4
 
-Then the Chaldeans spoke to the king in Aramaic, O king, live forever! Tell the dream to your servants, and we will declare the interpretation.
+Then the Chaldeans spoke to the king in Aramaic, [[Daniel-02.fn#Footnote 4.1 — O|O]] king, live forever! Tell the dream to your servants, and we will declare the interpretation.
 
 ## v5
 
@@ -64,7 +64,7 @@ Daniel then went in and sought from the king that he would give him a time to de
 
 ## v17
 
-Then Daniel went to his house and made the thing known to Hananiah, Mishael, and Azariah, his companions,
+Then [[Daniel-02.fn#Footnote 17.1 — Daniel|Daniel]] went to his house and made the thing known to Hananiah, Mishael, and Azariah, his companions,
 
 ## v18
 
@@ -119,7 +119,7 @@ Daniel answered before the king and said, As to the mystery which the king has i
 
 ## v28
 
-But there is a God in the heavens who reveals mysteries, and He has made known to King Nebuchadnezzar what will happen in the last days. This is your dream, even the visions of your head upon your bed.
+But there is a [[Daniel-02.fn#Footnote 28.1 — God|God]] in the heavens who reveals mysteries, and He has made known to King Nebuchadnezzar what will happen in the last days. This is your dream, even the visions of your head upon your bed.
 
 ## v29
 
@@ -131,23 +131,23 @@ But as for me, this mystery has not been revealed to me because of some wisdom t
 
 ## v31
 
-You, O king, were watching, and there was a single great image. This image, large and its brightness surpassing, stood opposite you; and its appearance was frightful.
+You, O king, were watching, and there was a single great [[Daniel-02.fn#Footnote 31.1 — image|image]]. This image, large and its brightness surpassing, stood opposite you; and its appearance was frightful.
 
 ## v32
 
-Concerning this image, its head was of fine gold, its breast and its arms of silver, its abdomen and its thighs of bronze,
+Concerning this image, its [[Daniel-02.fn#Footnote 32.1 — head|head]] was of fine gold, its [[Daniel-02.fn#Footnote 32.1 — head|breast]] and its arms of silver, its [[Daniel-02.fn#Footnote 32.1 — head|abdomen]] and its thighs of bronze,
 
 ## v33
 
-Its legs of iron, its feet partly of iron and partly of clay.
+Its [[Daniel-02.fn#Footnote 33.1 — legs|legs]] of iron, its feet partly of iron and partly of clay.
 
 ## v34
 
-You were watching until a stone was cut out without hands, and it struck the image at its feet of iron and clay and crushed them.
+You were watching until a [[Daniel-02.fn#Footnote 34.1 — stone|stone]] was cut out without hands, and it [[Daniel-02.fn#Footnote 34.2 — struck|struck]] the image at its feet of iron and clay and [[Daniel-02.fn#Footnote 34.2 — struck|crushed]] them.
 
 ## v35
 
-Then the iron, the clay, the bronze, the silver, and the gold were crushed all at once, and they became like chaff from the summer threshing floors; and the wind carried them away so that no trace of them was found. And the stone that struck the image became a great mountain and filled the whole earth.
+Then the iron, the clay, the bronze, the silver, and the gold were crushed [[Daniel-02.fn#Footnote 35.1 — all|all]] at once, and they became like chaff from the summer threshing floors; and the wind carried them away so that [[Daniel-02.fn#Footnote 35.2 — no|no]] trace of them was found. And the stone that struck the image became a great [[Daniel-02.fn#Footnote 35.3 — mountain|mountain]] and filled the whole earth.
 
 ## v36
 
@@ -171,7 +171,7 @@ And there will be a fourth kingdom as strong as iron, inasmuch as iron crushes a
 
 ## v41
 
-And in that you saw the feet and the toes, partly of potter’s clay and partly of iron, the kingdom will be a confused mass; but there will be some of the firmness of iron in it, for you saw the iron mixed with the earthy clay.
+And in that you saw the feet and the toes, partly of potter’s clay and partly of iron, the kingdom will be a [[Daniel-02.fn#Footnote 41.1 — confused|confused]] mass; but there will be some of the [[Daniel-02.fn#Footnote 41.2 — firmness|firmness]] of iron in it, for you saw the iron mixed with the [[Daniel-02.fn#Footnote 41.3 — earthy|earthy]] clay.
 
 ## v42
 

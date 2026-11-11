@@ -6,20 +6,20 @@ And He has stricken us, but He will bind us up.
 
 ## v2
 
-He will enliven us after two days;  
-On the third day He will raise us up,  
+He will enliven us after [[Hosea-06.fn#Footnote 2.1 — two|two]] days;  
+On the [[Hosea-06.fn#Footnote 2.1 — two|third]] day He will raise us up,  
 And we will live in His presence.
 
 ## v3
 
 Therefore let us know, let us pursue knowing Jehovah:  
-His going forth is as sure as the dawn,  
+[[Hosea-06.fn#Footnote 3.1 — His|His]] going forth is as sure as the dawn,  
 And He will come to us as the rain,  
 As the late rain which waters the earth.
 
 ## v4
 
-What shall I do with you, O Ephraim?  
+What shall I do with you, O [[Hosea-06.fn#Footnote 4.1 — Ephraim|Ephraim]]?  
 What shall I do with you, O Judah?  
 For your lovingkindness is like a morning cloud  
 And like dew that departs early.
@@ -28,7 +28,7 @@ And like dew that departs early.
 
 Therefore I hewed them to pieces by the prophets;  
 I slew them by the words of My mouth,  
-And My judgments went forth as light.
+And [[Hosea-06.fn#Footnote 5.1 — My|My]] judgments went forth as light.
 
 ## v6
 
@@ -59,5 +59,5 @@ Israel has defiled itself.
 
 ## v11
 
-Also, O Judah, there is a harvest appointed for you,  
+Also, O Judah, there is a [[Hosea-06.fn#Footnote 11.1 — harvest|harvest]] appointed for you,  
 When I will turn the captivity of My people.

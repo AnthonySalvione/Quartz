@@ -15,7 +15,7 @@ chapter_num: 2
 
 **Verse:** [[Leviticus-02#v1|Leviticus 2:1]]
 
-The meal offering typifies Christ in His human living. The emphasis of the burnt offering ([[Leviticus-01|Leviticus 1]]) is on Christ’s living for God, being obedient to God even unto death ([[Philippians-02#v8|Phil. 2:8]]), implying His living but emphasizing His death. The emphasis of the meal offering is on Christ’s human living and daily walk, implying His death but emphasizing His living (see note 131). The burnt offering emphasizes that Christ is the righteousness of God ([[1 Corinthians-01#v30|1 Cor. 1:30]]; cf. [[2 Corinthians-05#v21|2 Cor. 5:21]]), whereas the meal offering emphasizes that Christ is righteous before God ([[1 John-02#v1|1 John 2:1]]).
+The meal offering typifies Christ in His human living. The emphasis of the burnt offering ([[Leviticus-01|Leviticus 1]]) is on Christ’s living for God, being obedient to God even unto death ([[Philippians-02#v8|Phil. 2:8]]), implying His living but emphasizing His death. The emphasis of the meal offering is on Christ’s human living and daily walk, implying His death but emphasizing His living (see [note 13¹](<Leviticus-02.fn#Footnote 13.1 — salt>)). The burnt offering emphasizes that Christ is the righteousness of God ([[1 Corinthians-01#v30|1 Cor. 1:30]]; cf. [[2 Corinthians-05#v21|2 Cor. 5:21]]), whereas the meal offering emphasizes that Christ is righteous before God ([[1 John-02#v1|1 John 2:1]]).
 
 ### Footnote 1.2 — fine
 
@@ -29,7 +29,7 @@ In contrast to the burnt offering, nothing of the animal life, but only the vege
 
 **Verse:** [[Leviticus-02#v1|Leviticus 2:1]]
 
-The oil of the meal offering signifies the Spirit of God as the divine element of Christ (see note 183 in [[1 Peter-03|1 Pet. 3]]). In the meal offering the oil was mingled with the fine flour ([[Leviticus-02#v4|vv. 4-5]]) and poured upon it ([[Leviticus-02#v1|vv. 1]], [[Leviticus-02#v6|6]], [[Leviticus-02#v15|15]]) to anoint it ([[Leviticus-02#v4|v. 4]]), signifying that the Spirit of God as Christ’s divinity was mingled with His humanity ([[Matthew-01#v18|Matt. 1:18]], [[Matthew-01#v20|20]]; [[Luke-01#v35|Luke 1:35]]) and that the Spirit was poured upon Him ([[Matthew-03#v16|Matt. 3:16]]; [[John-01#v32|John 1:32]]) to anoint Him ([[Luke-04#v18|Luke 4:18]]; [[Hebrews-01#v9|Heb. 1:9]]). This is a picture of the two aspects of Christ’s experience of the Spirit of God.
+The oil of the meal offering signifies the Spirit of God as the divine element of Christ (see [note 18³](<1 Peter-03.fn#Footnote 18.3 — Spirit>) in [[1 Peter-03|1 Pet. 3]]). In the meal offering the oil was mingled with the fine flour ([[Leviticus-02#v4|vv. 4-5]]) and poured upon it ([[Leviticus-02#v1|vv. 1]], [[Leviticus-02#v6|6]], [[Leviticus-02#v15|15]]) to anoint it ([[Leviticus-02#v4|v. 4]]), signifying that the Spirit of God as Christ’s divinity was mingled with His humanity ([[Matthew-01#v18|Matt. 1:18]], [[Matthew-01#v20|20]]; [[Luke-01#v35|Luke 1:35]]) and that the Spirit was poured upon Him ([[Matthew-03#v16|Matt. 3:16]]; [[John-01#v32|John 1:32]]) to anoint Him ([[Luke-04#v18|Luke 4:18]]; [[Hebrews-01#v9|Heb. 1:9]]). This is a picture of the two aspects of Christ’s experience of the Spirit of God.
 
 ### Footnote 1.4 — frankincense
 
@@ -45,7 +45,7 @@ The frankincense in the meal offering signifies the fragrance of Christ in His r
 
 Part of the flour and oil and all of the frankincense of the meal offering were God’s food ([[Leviticus-02#v9|vv. 9]], [[Leviticus-02#v16|16]]). This signifies that a considerable portion of Christ’s excellent, perfect, Spirit-filled, and resurrection-saturated living is offered to God as food for His enjoyment. This portion is so satisfying to God that it becomes a memorial. The remainder of the offering, consisting of fine flour and oil but no frankincense, was food for the serving priests ([[Leviticus-02#v3|vv. 3]], [[Leviticus-02#v10|10]]). 
 
-Whereas the burnt offering is God’s food for His satisfaction ([[Numbers-28#v2|Num. 28:2]]), the meal offering is our food for our satisfaction, a portion also being shared with God. Proper worship is a matter of satisfying God with Christ as the burnt offering and of being satisfied with Christ as the meal offering and sharing this satisfaction with God (cf. [[John-04#v24|John 4:24]] and note 4).
+Whereas the burnt offering is God’s food for His satisfaction ([[Numbers-28#v2|Num. 28:2]]), the meal offering is our food for our satisfaction, a portion also being shared with God. Proper worship is a matter of satisfying God with Christ as the burnt offering and of being satisfied with Christ as the meal offering and sharing this satisfaction with God (cf. [[John-04#v24|John 4:24]] and [note 4](<John-04.fn#Footnote 24.4 — spirit>)).
 
 ### Footnote 2.2 — fire
 
@@ -87,7 +87,7 @@ The cakes of fine flour are the largest kind of meal offering and signify the st
 
 **Verse:** [[Leviticus-02#v5|Leviticus 2:5]]
 
-The meal offering could be in the form of flour mingled with oil ([[Leviticus-02#v1|vv. 1-2]]) or in the form of a cake ([[Leviticus-02#v4|v. 4]]). The former signifies the individual Christ and also the individual Christian. The latter signifies the corporate Christ, Christ with His Body, the church. The individual Christ has become the corporate Christ ([[1 Corinthians-12#v12|1 Cor. 12:12]]), signified by the cake ([[1 Corinthians-10#v17|1 Cor. 10:17]]). This indicates that eventually Christ’s life and our individual Christian life issue in a totality—the church life as a corporate meal offering. Such a life is a life of humanity mingled with the Holy Spirit and which has the Holy Spirit poured upon it, a life with salt and frankincense but with no leaven or honey (see notes 14, 111, 112, and 131). Both forms of the meal offering—the individual Christ and the corporate Christ, the church life—are food for God’s satisfaction and our nourishment.
+The meal offering could be in the form of flour mingled with oil ([[Leviticus-02#v1|vv. 1-2]]) or in the form of a cake ([[Leviticus-02#v4|v. 4]]). The former signifies the individual Christ and also the individual Christian. The latter signifies the corporate Christ, Christ with His Body, the church. The individual Christ has become the corporate Christ ([[1 Corinthians-12#v12|1 Cor. 12:12]]), signified by the cake ([[1 Corinthians-10#v17|1 Cor. 10:17]]). This indicates that eventually Christ’s life and our individual Christian life issue in a totality—the church life as a corporate meal offering. Such a life is a life of humanity mingled with the Holy Spirit and which has the Holy Spirit poured upon it, a life with salt and frankincense but with no leaven or honey (see notes [1⁴](<Leviticus-02.fn#Footnote 1.4 — frankincense>), [11¹](<Leviticus-02.fn#Footnote 11.1 — leaven>), [11²](<Leviticus-02.fn#Footnote 11.2 — honey>), and [13¹](<Leviticus-02.fn#Footnote 13.1 — salt>)). Both forms of the meal offering—the individual Christ and the corporate Christ, the church life—are food for God’s satisfaction and our nourishment.
 
 ## Footnotes for verse 6
 
@@ -95,7 +95,7 @@ The meal offering could be in the form of flour mingled with oil ([[Leviticus-02
 
 **Verse:** [[Leviticus-02#v6|Leviticus 2:6]]
 
-That the meal offering was broken into pieces signifies that Christ’s humanity is perfect but is never kept whole; it is always broken. This breaking signifies another kind of suffering that Christ passed through in His humanity. Cf. note 62 in [[Leviticus-01|Leviticus 1]].
+That the meal offering was broken into pieces signifies that Christ’s humanity is perfect but is never kept whole; it is always broken. This breaking signifies another kind of suffering that Christ passed through in His humanity. Cf. [note 6²](<Leviticus-01.fn#Footnote 6.2 — cut>) in [[Leviticus-01|Leviticus 1]].
 
 ## Footnotes for verse 11
 
@@ -123,7 +123,7 @@ Salt functions to season, kill germs, and preserve. In typology salt signifies t
 
 **Verse:** [[Leviticus-02#v13|Leviticus 2:13]]
 
-The basic factor of God’s covenant is the cross, the crucifixion of Christ, signified by salt. It is by the cross that God’s covenant is preserved to be an everlasting covenant (cf. [[Hebrews-13#v20|Heb. 13:20]] and note 2, par. 2).
+The basic factor of God’s covenant is the cross, the crucifixion of Christ, signified by salt. It is by the cross that God’s covenant is preserved to be an everlasting covenant (cf. [[Hebrews-13#v20|Heb. 13:20]] and [note 2](<Hebrews-13.fn#Footnote 20.2 — eternal>), par. 2).
 
 ## Footnotes for verse 14
 

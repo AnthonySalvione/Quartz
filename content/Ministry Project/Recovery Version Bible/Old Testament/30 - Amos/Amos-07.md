@@ -1,11 +1,11 @@
 ## v1
 
-Thus the Lord Jehovah showed me, and there He was, forming locusts in the beginning of the springing up of the spring crop; and it was the spring crop after the king’s mowings.
+Thus the Lord Jehovah showed me, and there He was, forming [[Amos-07.fn#Footnote 1.1 — locusts|locusts]] in the beginning of the springing up of the spring crop; and it was the spring crop after the king’s mowings.
 
 ## v2
 
 And when their eating of the herbage of the land was complete, I said,  
-O Lord Jehovah, forgive, I beseech You!  
+[[Amos-07.fn#Footnote 2.1 — O|O]] Lord Jehovah, forgive, I beseech You!  
 How will Jacob stand, for he is small?
 
 ## v3
@@ -30,7 +30,7 @@ This also shall not be, says the Lord Jehovah.
 
 ## v7
 
-Thus He showed me, and there the Lord was, standing upon a perfectly plumbed wall; and in His hand was a plumb line.
+Thus He showed me, and there the Lord was, standing upon a perfectly plumbed wall; and in His hand was a [[Amos-07.fn#Footnote 7.1 — plumb|plumb]] line.
 
 ## v8
 
@@ -40,13 +40,13 @@ And the Lord said, I am now setting a plumb line in the midst of My people Israe
 
 ## v9
 
-And the high places of Isaac will be desolated, /  
-And the sanctuaries of Israel will be made waste; /  
+And the [[Amos-07.fn#Footnote 9.1 — high|high]] places of Isaac will be desolated, /  
+And the [[Amos-07.fn#Footnote 9.1 — high|sanctuaries]] of Israel will be made waste; /  
 And I will rise up against the house of Jeroboam with a sword.
 
 ## v10
 
-Then Amaziah the priest of Bethel sent word to Jeroboam the king of Israel, saying, Amos has conspired against you in the midst of the house of Israel; the land is not able to endure all his words.
+Then Amaziah the [[Amos-07.fn#Footnote 10.1 — priest|priest]] of Bethel sent word to Jeroboam the king of Israel, saying, Amos has conspired against you in the midst of the house of Israel; the land is not able to endure all his words.
 
 ## v11
 

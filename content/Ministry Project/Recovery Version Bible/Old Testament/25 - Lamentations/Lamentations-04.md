@@ -149,5 +149,5 @@ You will become drunk and make yourself naked.
 
 The punishment for your iniquity has been accomplished, O daughter of Zion; /  
 He will no longer take you into exile. /  
-But He will punish your iniquity, O daughter of Edom; /  
+But He will [[Lamentations-04.fn#Footnote 22.1 — punish|punish]] your iniquity, O daughter of Edom; /  
 He will uncover your sins.

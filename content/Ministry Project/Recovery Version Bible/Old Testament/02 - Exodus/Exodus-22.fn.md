@@ -23,7 +23,7 @@ In [[Exodus-22#v1|vv. 1-6]] there are many details related to the eighth command
 
 **Verse:** [[Exodus-22#v8|Exodus 22:8]]
 
-Or, the judges; Heb. elohim. So also in [[Exodus-22#v9|v. 9]].
+Or, the judges; Heb. Elohim. So also in [[Exodus-22#v9|v. 9]].
 
 ### Footnote 8.2 — neighbor’s
 
@@ -45,7 +45,7 @@ Lit., it came for its hire.
 
 **Verse:** [[Exodus-22#v16|Exodus 22:16]]
 
-The ordinances in [[Exodus-22#v16|vv. 16-17]], 19 are related to the seventh commandment, which forbids adultery ([[Exodus-20#v14|20:14]]). These ordinances signify that Satan’s sinful nature works in man to corrupt him by confusing him in his breaking of God’s regulations concerning the relationships man should have with God, with people, and with other things (cf. [[James-04#v4|James 4:4]]; [[Revelation-17#v1|Rev. 17:1-5]]).
+The ordinances in [[Exodus-22#v16|vv. 16-17]], [[Exodus-22#v19|19]] are related to the seventh commandment, which forbids adultery ([[Exodus-20#v14|20:14]]). These ordinances signify that Satan’s sinful nature works in man to corrupt him by confusing him in his breaking of God’s regulations concerning the relationships man should have with God, with people, and with other things (cf. [[James-04#v4|James 4:4]]; [[Revelation-17#v1|Rev. 17:1-5]]).
 
 ## Footnotes for verse 18
 
@@ -67,7 +67,7 @@ Sorcery involves contact with demons.
 
 **Verse:** [[Exodus-22#v21|Exodus 22:21]]
 
-The ordinance concerning sojourners, widows, orphans, and the poor ([[Exodus-22#v21|vv. 21-27]]; [[Exodus-23#v9|23:9]]) signify that God is a God who cares for fallen man, who has become a stranger to God’s blessing, a widow without Christ as the husband, an orphan without God as the Father, and the poor deprived of the riches of God (cf. [[Ephesians-02#v12|Eph. 2:12]], [[Ephesians-02#v19|19]]; [[Matthew-11#v5|Matt. 11:5]] and note 6).
+The ordinance concerning sojourners, widows, orphans, and the poor ([[Exodus-22#v21|vv. 21-27]]; [[Exodus-23#v9|23:9]]) signify that God is a God who cares for fallen man, who has become a stranger to God’s blessing, a widow without Christ as the husband, an orphan without God as the Father, and the poor deprived of the riches of God (cf. [[Ephesians-02#v12|Eph. 2:12]], [[Ephesians-02#v19|19]]; [[Matthew-11#v5|Matt. 11:5]] and [note 6](<Matthew-11.fn#Footnote 5.6 — poor>)).
 
 ## Footnotes for verse 28
 
@@ -83,13 +83,13 @@ Submission to God and His authority signifies the subduing of the rebellious nat
 
 **Verse:** [[Exodus-22#v29|Exodus 22:29]]
 
-The fullness of the harvest signifies the produce, the reaping of the rich experiences of Christ, gained from growing Christ by laboring on Him as the good land (see note 71 in [[Deuteronomy-08|Deut. 8]]), and the tears, the outflow of the wine and oil from the presses (see note 361 in [[Matthew-26|Matt. 26]]), signify the overflow from our experience of Christ through the suffering of the cross, which produces wine to cheer God and man and oil to please God (cf. [[2 Corinthians-04#v7|2 Cor. 4:7-12]]; [[Philippians-02#v17|Phil. 2:17]]; [[2 TImothy-04#v6|2 Tim. 4:6]]). These should be offered to God for His enjoyment without delay.
+The fullness of the harvest signifies the produce, the reaping of the rich experiences of Christ, gained from growing Christ by laboring on Him as the good land (see [note 7¹](<Deuteronomy-08.fn#Footnote 7.1 — good>) in [[Deuteronomy-08|Deut. 8]]), and the tears, the outflow of the wine and oil from the presses (see [note 36¹](<Matthew-26.fn#Footnote 36.1 — Gethsemane>) in [[Matthew-26|Matt. 26]]), signify the overflow from our experience of Christ through the suffering of the cross, which produces wine to cheer God and man and oil to please God (cf. [[2 Corinthians-04#v7|2 Cor. 4:7-12]]; [[Philippians-02#v17|Phil. 2:17]]; [[2 TImothy-04#v6|2 Tim. 4:6]]). These should be offered to God for His enjoyment without delay.
 
 ### Footnote 29.2 — firstborn
 
 **Verse:** [[Exodus-22#v29|Exodus 22:29]]
 
-The firstborn of the sons and the cattle ([[Exodus-22#v30|v. 30]]) were to be given to God (to be separated to God and to become holy to Him) because the firstborn had been redeemed, purchased, by the passover lamb and belonged to God ([[Exodus-12#v12|12:12-13]]; [[Exodus-13#v2|13:2]] and note; cf. [[1 Corinthians-06#v19|1 Cor. 6:19]]).
+The firstborn of the sons and the cattle ([[Exodus-22#v30|v. 30]]) were to be given to God (to be separated to God and to become holy to Him) because the firstborn had been redeemed, purchased, by the passover lamb and belonged to God ([[Exodus-12#v12|12:12-13]]; [[Exodus-13#v2|13:2]] and [note](<Exodus-13.fn#Footnote 2.1 — Sanctify>); cf. [[1 Corinthians-06#v19|1 Cor. 6:19]]).
 
 ## Footnotes for verse 30
 
@@ -105,10 +105,10 @@ The eighth day is the first day of a new week. Hence, on the eighth day signifie
 
 **Verse:** [[Exodus-22#v31|Exodus 22:31]]
 
-To be holy men to God, according to the Bible as a whole, especially the New Testament, indicates that God’s chosen people should be saturated by Christ and with Christ as their holiness before God ([[1 Corinthians-01#v30|1 Cor. 1:30]]; [[Romans-06#v19|Rom. 6:19]] and note 2).
+To be holy men to God, according to the Bible as a whole, especially the New Testament, indicates that God’s chosen people should be saturated by Christ and with Christ as their holiness before God ([[1 Corinthians-01#v30|1 Cor. 1:30]]; [[Romans-06#v19|Rom. 6:19]] and [note 2](<Romans-06.fn#Footnote 19.2 — sanctification>)).
 
 ### Footnote 31.2 — eat
 
 **Verse:** [[Exodus-22#v31|Exodus 22:31]]
 
-Flesh torn by beasts signifies things that bear the nature of death, and dogs signify unclean persons ([[Matthew-07#v6|Matt. 7:6]] and note 2; [[Philippians-03#v2|Phil. 3:2]] and note 2). This ordinance signifies that we should eat only Christ as our life supply, not anything of death. Cf. notes 71 in [[Genesis-08|Gen. 8]] and 311 in [[Leviticus-11|Lev. 11]].
+Flesh torn by beasts signifies things that bear the nature of death, and dogs signify unclean persons ([[Matthew-07#v6|Matt. 7:6]] and [note 2](<Matthew-07.fn#Footnote 6.2 — dogs>); [[Philippians-03#v2|Phil. 3:2]] and [note 2](<Philippians-03.fn#Footnote 2.2 — dogs>)). This ordinance signifies that we should eat only Christ as our life supply, not anything of death. Cf. notes [7¹](<Genesis-08.fn#Footnote 7.1 — raven>) in [[Genesis-08|Gen. 8]] and [31¹](<Leviticus-11.fn#Footnote 31.1 — dead>) in [[Leviticus-11|Lev. 11]].

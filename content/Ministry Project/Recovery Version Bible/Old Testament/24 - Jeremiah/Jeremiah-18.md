@@ -4,7 +4,7 @@ The word which came to Jeremiah from Jehovah, saying,
 
 ## v2
 
-Arise and go down to the potter’s house,  
+Arise and go down to the [[Jeremiah-18.fn#Footnote 2.1 — potter’s|potter’s]] house,  
 And there I will let you hear My words.
 
 ## v3
@@ -61,7 +61,7 @@ With which I said I would benefit it.
 
 ## v11
 
-And now speak to the men of Judah  
+[[Jeremiah-18.fn#Footnote 11.1 — And|And]] now speak to the men of Judah  
 And to the inhabitants of Jerusalem, saying,  
 Thus says Jehovah,  
 Look, I am forming evil against you  
@@ -81,7 +81,7 @@ The stubbornness of his evil heart.
 Therefore thus says Jehovah,  
 Ask now among the nations,  
 Who has heard such things?  
-The virgin of Israel  
+The [[Jeremiah-18.fn#Footnote 13.1 — virgin|virgin]] of Israel  
 Has done a very horrible thing.
 
 ## v14
@@ -96,8 +96,8 @@ Coming from afar be dried up?
 But My people have forgotten Me;  
 They burn incense to vanity,  
 And they have been stumbled in their ways  
-From the ancient paths  
-To walk on bypaths,  
+From the [[Jeremiah-18.fn#Footnote 15.1 — ancient|ancient]] paths  
+To walk on [[Jeremiah-18.fn#Footnote 15.1 — ancient|bypaths]],  
 On a way which is not cast up,
 
 ## v16
@@ -140,7 +140,7 @@ To turn away Your wrath from them.
 
 ## v21
 
-Therefore deliver up their children to famine,  
+Therefore [[Jeremiah-18.fn#Footnote 21.1 — deliver|deliver]] up their children to famine,  
 And give them over to the power of the sword;  
 And let their wives become  
 Bereaved of child and be widows;  
